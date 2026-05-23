@@ -6,7 +6,7 @@ Balsamiq Mockups For Desktop 3.3.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821057.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Prison Architect (2015) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821053.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ EverWeb (Standalone) 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821038.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ FontExplorer X Pro 7 v7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821031.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Numi 3.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821027.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Capture One 20 Pro v13.1.0.159 beta 3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821025.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ iTrash 5.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821023.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Super PhotoCut Pro 2.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821020.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VMware Fusion Pro 8.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820915.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Amarra Symphony 4.0.223 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820793.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ TinkerTool System 5.85 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820625.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Yate 3.17.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820622.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ EditReady 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820526.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Movavi Video Editor 4 v4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820333.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Boinx FotoMagico 5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819891.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ CARROT Weather - Talking Forecast Robot 1.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819817.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Fantastical 2.2.1 (AppStore) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819812.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ goPanel 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819811.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Waltr 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819810.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ The Clock - The Best World Clock 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819805.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Uplet: bulk instagram uploader 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819760.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Super Resize 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819753.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Filmage Screen-Screen Recorder 1.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819697.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Artstudio Pro 3.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819692.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Acon Digital Acoustica Premium Edition 7.3.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819691.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Viper FTP 6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819689.jpg" />
 </div>
 
 

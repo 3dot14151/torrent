@@ -1,29 +1,3 @@
-###  Публикация: 1736411   (50246) от 12.07.2024
-
-SunnySide (2024) [Multi] (1.15.11) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-SunnySide показывает приключения молодых ребят, что отправляются в деревенскую местность на территорию Японии. Игроки смогут преодолевать разрыв между традиционными обычаями и современным влиянием, стараясь приобрести гармонию для протагониста. Предстоит заниматься работой на ферме, развивая участок земли в небольшом поселении. Придется обустраивать дом, двор и выращивать (   Читать дальше...   )Тип издания: RepackРазработчик: RainyGamesЖанр: Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D427A97B496416A46CDFA16EF5139F5618496CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588316   (50213) от 13.07.2024
 
 Euro Truck Simulator 2 (2013) [Ru/Multi] (1.50.3.7s/dlc) Repack dixen18
@@ -32,7 +6,7 @@ Euro Truck Simulator 2 (2013) [Ru/Multi] (1.50.3.7s/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50213.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Clash II (2) (2022) [Multi] (497) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50208.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Wolfenstein: Youngblood (2019) [Ru/Multi] (11991189/dlc) Repack Decepticon [Delu
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50199.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Frostpunk (2018) [Ru/Multi] (1.6.2/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50193.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Grand Theft Auto San Andreas (2021) [Ru/Multi] (1.17.37984884) Scene Razor 1911 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50180.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50166.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Songs of Syx (2020) [En] (0.66.49) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50107.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Land of the Vikings (2023) [Ru/Multi] (1.2.1a) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50105.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.102179.0/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50097.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ HEIRS / Наследники (2024) [Ru/En] (Build 14928619) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50088.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Grand Theft Auto III (3) (2021) [Ru/Multi] (1.17.37984884) Scene Razor 1911 [The
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50087.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Grand Theft Auto Vice City (2021) [Ru/Multi] (1.14718) Scene Razor 1911 [The Def
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50080.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Barn Finders (2020) [Ru/Multi] (25982/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50079.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Project Zero 2: Apocalypse Party / Вечеринка Апокалипсиса (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50077.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ HEIRS / Наследники (2024) [Ru/En] (Build 14928619) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50027.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Anomaly Collapse (2024) [Ru/Multi] (1.0.14117.737) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50014.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Station to Station (2023) [Ru/Multi] (1.4.1) Scene Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50011.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Daymare: 1994 Sandcastle (2023) [Ru/Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49990.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (3.617.1.0/dlc) Repack We
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49988.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Last Alchemist (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49976.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Dark Envoy (2023) [Ru/Multi] (1.5.2.73561) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49975.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/Multi] (1.0) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49974.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Madhouse Madness: Streamer's Fate (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49965.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ KAKU: Ancient Seal (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49903.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ System Shock Remake (2023) [Ru/Multi] (1.2.18898) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49889.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ System Shock - это полноценный ремейк хита 1994 года
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62C689B3E0F4A9310AF8CB3EC2517C8A47D5A08D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640417   (49888) от 16.07.2024
+
+Layers of Fear (2023) [Ru/Multi] (1.6.1/dlc) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Холст в ожидании последних штрихов. Исполнителя главной роли ждут на сцене. Роману не хватает лишь последней главы. Пришло время столкнуться со своими страхами в последний раз. Серия, оставившая глубокий след в жанре психологических хорроров от первого лица с упором на сюжет, вновь возвращается на экраны, чтобы рассказать заключительную леденящую кровь историю в (   Читать дальше...   )Тип издания: LicenseРазработчик: Anshar Studios, Bloober TeamЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4762B82EEE5070EE4DF22606D554433725A596
 ```
 
 https://mybot314.ru/tekegram_catalog/

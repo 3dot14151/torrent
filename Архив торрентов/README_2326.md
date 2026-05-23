@@ -6,7 +6,7 @@ Download Master 6.5.2.1475 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533300.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DVDFab 9.2.0.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533294.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ save2pc Ultimate 5.43 Build 1525 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533292.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Rutube v26.0.68 Ad-Free by Alex.Strannik [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533272.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Beyond The Confines (2015) Fent Plates [FLAC|Lossless|WEB-DL|tracks] <Ambie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533244.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Mozilla Thunderbird 60.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533238.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ CrystalDiskInfo 7.1.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533232.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Wise Care 365 Pro 4.6.8.452 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533228.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Cacheman 10.20.0.0  RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533224.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Google Chrome 60.0.3112.90 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533211.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ TreeSize Professional 6.3.7.1231 RePack by Kopejkin [Ua/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533207.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ TeamViewer Server Enterprise 10.0.45862 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533202.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ TeamViewer Corporate 10.0.45862 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533200.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ WinToUSB Free 2.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533193.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ X-Mouse Button Control 2.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533191.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AIDA64 Extreme / Engineer Edition 5.30.3513 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533187.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Zoner Photo Studio X 19.1806.2.74 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533163.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ NetSetMan 4.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533159.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Flip PDF Professional 2.4.9.23 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533156.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ JetBrains ReSharper Ultimate 2018.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533154.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Google Chrome 60.0.3112.90 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533143.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Cumulative Update KB4032188 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533140.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Beautiful Rock Ballads Vol.7 (Compiled by Виктор31Rus) (2017) [MP3|32
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533138.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ ESET Endpoint Antivirus 5.0.2248.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533123.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ NetLimiter 4.0.13.0 Enterprise Edition [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533106.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Best HD Wallpapers Pack (09.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533085.jpg" />
 </div>
 
 

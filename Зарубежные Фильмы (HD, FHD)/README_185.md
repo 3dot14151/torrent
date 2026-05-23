@@ -1,55 +1,3 @@
-###  Публикация: 990319   (911062) от 25.02.2016
-
-Черная месса / Black Mass (2015) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Картина расскажет об Уайти Балджере, знаменитом бостонском гангстере, который 16 лет находился в бегах и был арестован в июне 2011 года в Санта-Монике. Балджер, которому уже за 80, обвинялся в рэкете, был замешан в 19 убийствах и в то же время работал информатором на ФБР. Чтобы не попасть за решетку, он исчез в 1995 году и 16 лет успешно скрывался от правосудия.Производство: США, Великобритания / Cross Creek Pictures, Free State Pictures, Grisbi Productions, LeЖанр: драма, криминал, биографияРежиссер: Скотт КуперАктеры: Джонни Депп, Джоэл Эдгертон, Бенедикт Камбербэтч, Кевин Бейкон, Джесси Племонс, Питер Сарсгаард, Кори Столл, Дакота Джонсон, Рори Кокрейн, Дэвид ХарборПеревод: Дублированный (Лицензия BD CEE), Авторский (одноголосый, закадровый) М.ЯроцкийЯзык субтитров: Русский, Украинский, АнглийскийПродолжительность: 02:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE95C440C222102086B1DA0A30B1672B3DAA502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990303   (910936) от 25.02.2016
-
-Крампус / Krampus (2015) WEB-DL [H.264/1080p-LQ]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-История о демоне, который во время Рождества выискивает непослушных детей, чтобы наказать их.Производство: США, Новая Зеландия, Universal PicturesЖанр: Ужасы, Фэнтези, КомедияРежиссер: Майкл ДогертиАктеры: Адам Скотт, Тони Коллетт, Дэвид Кокнер, Эллисон Толман, Кончата Феррелл, Эмджей Энтони, Стефания Оуэн, Криста Штадлер, Марк Аткин, Тревор ПауПеревод: Дублированный (iTunes)Продолжительность: 01:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38354F802A1598DD086C14CFE00F7A5F72D10BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368391   (910512) от 19.03.2020
 
 Сокровище нации: Книга Тайн / National Treasure: Book of Secrets (2007) WEB-DL [H.264/1080p] [Open Matte]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910512.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910385.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910342.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910245.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910173.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910160.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910156.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910129.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910126.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910099.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Starперцы / Last Vegas (2013) BDRip [1080p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910058.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910055.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910037.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910019.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909963.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909962.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909784.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909778.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909692.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909680.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909554.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909553.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909412.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909357.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDC22188A16B58340310BC8680ADFC2E7C21EC93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990799   (909290) от 26.02.2016
+
+Черная месса / Black Mass (2015) Blu-ray [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина расскажет об Уайти Балджере, знаменитом бостонском гангстере, который 16 лет находился в бегах и был арестован в июне 2011 года в Санта-Монике. Балджер, которому уже за 80, обвинялся в рэкете, был замешан в 19 убийствах и в то же время работал информатором на ФБР. Чтобы не попасть за решетку, он исчез в 1995 году и 16 лет успешно скрывался от правосудия.Производство: США, Великобритания / Cross Creek Pictures, Free State Pictures, Grisbi Productions, LeЖанр: драма, криминал, биографияРежиссер: Скотт КуперАктеры: Джонни Депп, Джоэл Эдгертон, Бенедикт Камбербэтч, Кевин Бейкон, Джесси Племонс, Питер Сарсгаард, Кори Столл, Дакота Джонсон, Рори Кокрейн, Дэвид ХарборПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Английский, Арабский, Китайский, Чешский, Иврит, Венгерский, Корейский, Польский, Португальский, Румынский, Русский, Тайский, ТурецкийПродолжительность: 02:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814AA951F45835A26D4A789C89D266007CFCB560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990700   (909254) от 26.02.2016
+
+Острие стрелы / Arrowhead (2016) BDRip [H.264/1080p] [VO]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Далёкое будущее. На Земле царит диктатура группировки под предводительством Тобиаса Хатча и в планах у него колонизировать Вселенную. Опальному летчику Kею Кортленду в обмен на свободу предложено возглавить захватническую межпланетную операцию на корабле «Arrowhead». Кей вынужден согласиться, но терпит крушение на неизвестной планете, которая лишь на первый взгляд (   Читать дальше...   )Производство: Австралия / TV1 General Entertainment, GRLAЖанр: Фантастика, Боевик, Детектив, ПриключенияРежиссер: Джесси О’БрайэнАктеры: Алейша Грот, Кристофер Кирби, Дэн Мор, Шон Микаллеф, Джек Уайлд, Марк Редпаф, Акира Брэдли, Адам ТухиПеревод: Одноголосый закадровый, любительский (Вадим Назаров)Субтитры: ОтсутствуютПродолжительность: 01:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B0BF5EE1315D0D3C84831A1409BFE4E8DD2B58
 ```
 
 https://mybot314.ru/tekegram_catalog/

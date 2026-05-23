@@ -1,55 +1,3 @@
-###  Публикация: 1868221   (1067300) от 29.04.2026
-
-Advanced PC Cleanup 3.32.32.10081 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Advanced PC Cleanup — это универсальная программа для очистки и оптимизации ПК, которая упрощает обслуживание компьютера. С помощью одного сканирования она выявляет ненужные файлы, старые загрузки, временные данные и скрытые проблемы, замедляющие работу системы. Сканирование также обнаруживает вредоносное ПО, показывает, какое свободное место можно освободить, предупреждает (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336723EE440DFB51C531A2CDD97FE6BD23C2280A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867801   (1067093) от 27.04.2026
-
-CCleaner 6.40.11562 Free / Professional / Business / Technician Edition RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C242393E4CC0219A69A2E9089CDD0E93340B9DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867846   (1067062) от 27.04.2026
 
 RAM Saver Professional 26.4.1 [Multi/Ru]
@@ -58,7 +6,7 @@ RAM Saver Professional 26.4.1 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067062.jpg" />
 </div>
 
 
@@ -87,7 +35,7 @@ Process Lasso Pro 18.0.1.24 RePack (& Portable) by TryRooM [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067012.jpg" />
 </div>
 
 
@@ -113,7 +61,7 @@ DISMTools 0.7.3.26042 + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066832.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ Kudu 1.36.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066758.jpg" />
 </div>
 
 
@@ -167,7 +115,7 @@ IObit Driver Booster Pro 13.4.0.234  RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066747.jpg" />
 </div>
 
 
@@ -193,7 +141,7 @@ IObit Driver Booster Pro 13.4.0.234 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066733.jpg" />
 </div>
 
 
@@ -219,7 +167,7 @@ Glary Utilities Pro 6.41.0.45 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066699.jpg" />
 </div>
 
 
@@ -245,7 +193,7 @@ WinTools.net Premium 26.4.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066695.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ IObit Driver Booster Pro 13.4.0.234 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066663.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ WinScript 2.4.1 + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066478.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ Glary Utilities Pro 6.41.0.45 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066342.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ WinTools.net 26.4.1 Classic / Professional / Premium RePack (& Portable) by Doda
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066338.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ Glary Disk Cleaner 6.0.1.44 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066337.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ WinTools.net Premium 26.4.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066331.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ Revo Registry Cleaner Pro 2.1.2 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066320.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ Prevent Restore 120 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066240.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ Windows Manager 2.3.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066172.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ WinScript 2.4.0 + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066160.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ IObit Uninstaller Pro 15.4.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066142.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ ASCOMP Secure Eraser Pro 7.102 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066128.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ Glary Utilities Pro 6.41.0.45 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066086.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ Duplicate File Detective Enterprise 7.4.70 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066032.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ NirLauncher Package 1.30.23 Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065817.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ Reg Organizer 9.92 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065748.jpg" />
 </div>
 
 
@@ -674,6 +622,58 @@ Reg Organizer® - это многофункциональная программ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D28812BFADBAFDF4F6BEE5E1426BB05382B50E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865513   (1065734) от 
+
+Soft Organizer Pro 10.40 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного его разработчиками). Программа Soft Organizer (ранее Full Uninstall) предназначена (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D852BF382923A5B7EBCE4A23BB5956C3AB44872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865520   (1065730) от 
+
+FolderSizes Enterprise 10.0.43 [En]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065730.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью программы FolderSizes вы сможете определить количество свободного места на жестком диске. FolderSizes предоставляет подробную информацию о размере папок и файлов по каждому разделу жесткого диска. Кроме этого, программа использует диаграммы для наглядности. Используя данный программный продукт, вы сможете найти файлы, удаление которых позволит освободить (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDE2B2DF5E16C4AB7C6F03D7C0912907E3EDD115
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Athentech Perfectly Clear QuickDesk & QuickServer v4 4.1.2 [Multi/ Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482436.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WiFiSpoof 3.8.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482348.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MarsEdit 4 v4.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482338.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Virtual Background Customizer 1.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482333.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482214.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TinyAlarm 1.9.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482164.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ iRamDisk 3.6.12 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482158.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Document Writer Pro 1.6.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482083.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Disk Drill Enterprise 4.7.382 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482075.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ TunesKit iPhone Data Recovery 1.0.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482068.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ New Paint X 1.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482018.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Trim Enabler Pro 4.0.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481853.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Network Kit X 7.2.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481480.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ CodeKit 2.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481392.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Movist 2.7.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480365.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Rumpus PRO 8.1.16 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480174.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Chronicle 8 8.5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480160.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Social Media Lab - Templates 1.2.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480043.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ SimpleMind 1.20.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479819.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Current for Facebook 1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479497.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ SQL Dynamite 2.1.4.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479237.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Xcode 6.0.1 (6A317) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479204.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ MKV2MP4 1.4.15 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477234.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ CCleaner Pro 1.14.451 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476928.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Textbundle Editor 1.2.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476635.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Auto Highlight 4.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476512.jpg" />
 </div>
 
 

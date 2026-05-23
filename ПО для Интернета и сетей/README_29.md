@@ -6,7 +6,7 @@ UC Browser 7.0.185.1002 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811311.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FlylinkDC++ r503 build 19684 Stable Portable (x64/x86) + Хаблист [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805345.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ cFosSpeed 10.22 Build 2290 Final RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801629.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Artisteer 4.3.0.60858 Home [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801000.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Becky! Internet Mail 2.73 Portable by A2671 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800312.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Internet Download Manager 6.39 Build 8 Final + Retail + Themes [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799879.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Reverso Context 1.4.11.423 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798366.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ WirelessNetView 1.72 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794182.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Management Remote PC 3.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792353.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Basilisk 2021.11.14 + Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791962.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mozilla Firefox Quantum ESR 68.9.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791172.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mozilla Firefox Quantum ESR 68.9.0 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790004.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Bigasoft Video Downloader Pro 3.15.4.6600 RePack by вовава [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789838.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Coolutils Total Mail Converter 5.1.0.213 RePack (& Portable) by ZVSRus [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788051.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VNC Connect Enterprise 6.4.0 [Multi/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787458.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786288.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ YouTube Video Downloader PRO 5.8.2 (20170315) Portable by Dave Green [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786065.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ BitTorrent 7.10.0 build 43581 + skins & ico pack [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785509.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Lunascape 6.15.2 (Standard/Full) + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779336.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ FlipCreator 5.0.0.3 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778670.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ ePageCreator 6.0.0.8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778655.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ K-Meleon 76.0 RC + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777804.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ MetaProducts Portable Offline Browser 7.8.4654 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770586.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ QupZilla 2.2.6 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763060.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ ProgDVB 7.26.08 Professional [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758076.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ RusTV Player 3.2 Final [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755232.jpg" />
 </div>
 
 

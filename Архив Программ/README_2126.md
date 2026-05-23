@@ -6,7 +6,7 @@ OpenNumismat 1.9.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61382.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Opera One 109.0.5097.35 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61376.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ ThisIsMyFile 4.24 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61311.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Topaz Photo AI 2.4.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61307.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Notepad++ 8.6.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61298.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ CrystalMark Retro 1.0.0 RC3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61286.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v16 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61211.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ CyberLink PowerDirector 2024 Ultimate 22.3.2727.1 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61174.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Adobe Illustrator 2024 28.4.1.86 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61159.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Adobe Acrobat Pro 2024.001.20629 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61106.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ StartAllBack 3.7.8 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61095.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VideoProc Converter AI 6.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61094.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.40.33721.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61088.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Office Tool Plus 10.10.3.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61085.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Balabolka 2.15.0.867 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61083.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Aiseesoft Video Converter Ultimate 10.8.28 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61079.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ AnyBurn 6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61075.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ LDPlayer 9.0.68.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61070.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.2.0 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61065.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Topaz Video AI 4.2.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61060.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ ADB AppControl 1.8.3 hotfix 1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61020.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ StartAllBack 3.7.8 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60989.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Topaz Gigapixel AI 7.0.5 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60970.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ V-Ray 6.20.06 for 3ds Max 2020-2025 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60944.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ The Bat! Professional 11.1.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60931.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ GoodbyeDPI 0.2.2 Launcher 7.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60927.jpg" />
 </div>
 
 

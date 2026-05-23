@@ -1,29 +1,3 @@
-###  Публикация: 1786972   (23762) от 23.03.2025
-
-Kaiserpunk (2025) [Ru/Multi] (1.00.002/dlc) Repack FitGirl [Supporter Edition]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Приведите свою империю к мировому господству в Kaiserpunk - масштабном градостроительном симуляторе, действие которого разворачиваются в альтернативной вселенной, где из пепла Первой мировой войны восстали многочисленные города-государства, жаждущие власти.Тип издания: RePackРазработчик: Overseer GamesЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94AEE4DB6BFFECF3408B8DD1E56AB005EBC93DA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787071   (23760) от 23.03.2025
 
 Ale & Tale Tavern (2024) [Ru/Multi] (1.3.21) Repack FitGirl
@@ -32,7 +6,7 @@ Ale & Tale Tavern (2024) [Ru/Multi] (1.3.21) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23760.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The LEGO NINJAGO Movie Video Game (2017) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23749.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Scene Investigators (2023) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23741.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Starground (2024) [Ru/Multi] (0.11.1.2) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23725.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Wonder Ball (2024) [Ru/Multi] (1.03) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23724.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Lumencraft (2022) [Ru/Multi] (9257) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23699.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Wanderstop (2025) [Multi] (Build #15399) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23695.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Kaiserpunk (2025) [Ru/Multi] (1.00.002/dlc) Repack dixen18 [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23686.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Easy Red 2: All Fronts (2020) [Ru/Multi] (1.5.0/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23673.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack FitGirl [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23664.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack Other s [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23657.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23648.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Curse of the Sea Rats (2023) [Ru/Multi] (1.5.7) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23639.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Human: Fall Flat (2016) [Ru/Multi] (1092002) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23626.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ House Builder (2021) [Ru/Multi] (Build 20-03-2025/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23622.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ ROBOBEAT (2024) [Ru/Multi] (1.3.10) Repack FitGirl [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23603.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Easy Red 2 (2020) [Ru/Multi] (1.5.0/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23593.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Armored Core VI Fires of Rubicon (2023) [Ru/Multi] (1.08.1/dlc) Repack Wanterlud
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23584.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Urban Jungle (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23583.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Blackthorn Arena: Reforged (2024) [Ru/Multi] (2.01g/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23582.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Rogue: Genesia (2022) [Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23578.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23576.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23572.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack dixen18 [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23569.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Nobody Saves the World (2022) [Ru/Multi] (18.01.2023/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23563.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Nobody Saves the World (2022) [Ru/Multi] (18.01.2023/dlc) Repack Pioneer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78112C2FAF2067E2BCDE0F62B64E3137ED25A02F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787465   (23561) от 25.03.2025
+
+Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack seleZen [Ultimate Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Them and Us - классический хоррор на выживание с уклоном на погружение в атмосферу игры. Узнайте правду о прошлом Алиши, пока она всё глубже погружается в нескончаемый кошмар. На дворе 1978 год. Автобус попал в ужасную аварию на извилистых грунтовых дорогах бескрайней американской пустыни. Выжил лишь один человек.Тип издания: RepackРазработчик: TendoGamesЖанр: Экшны, Survival, ХоррорЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49BC1860BACAED6B0A914EC64D36617E368C5E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

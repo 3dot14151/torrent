@@ -6,7 +6,7 @@ AMD Ryzen Master 2.14.2.3341 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34345.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ NIUBI Partition Editor 10.1.0 Pro / Server / Unlimited / Technician Edition RePa
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33791.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ HDD Low Level Format Tool 4.50 RePack (& Portable)  by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33113.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ NIUBI Partition Editor 10.2.0 Pro / Server / Unlimited / Technician Edition RePa
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30995.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Macrorit Partition Expert 8.6.0 Pro / Technician / Server / Unlimited Edition Re
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30374.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Macrorit Disk Scanner 7.1.0 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30361.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Auslogics SSD Optimizer Pro 2.0.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30087.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Macrorit Partition Extender 2.6.0 Unlimited Edition RePack (& Portable) by elchu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29290.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Macrorit Disk Scanner 7.1.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29265.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Active@ Disk Editor 25.0.7 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29254.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ DiskSavvy Pro/Ultimate/Server/Enterprise 17.3.14 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29173.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Memtest86+ 7.20 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28736.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ MemTest86 11.2 Build 1000 Free [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28701.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ IM-Magic Partition Resizer 7.5.1 Professional |Server | Unlimited Edition RePack
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28697.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Hard Disk Sentinel PRO 6.30 Build 13191 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24429.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Hard Disk Sentinel Pro 6.30 Build 13391 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24421.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Hard Disk Sentinel Pro 6.30 Build 13391 RePack (& Portable) by Dodakaedr [Multi/
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24313.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ ChrisPC Win Experience Index 7.25.0318 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24067.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 7.65.7400 + Portable [Multi
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22107.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ IObit Smart Defrag Pro 10.4.0.441 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18548.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Hard Disk Sentinel PRO 6.30.1 Build 13402 Beta [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16725.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Kingston SSD Manager 1.5.5.5 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15585.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ CrystalDiskMark 9.0.1 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14019.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Abelssoft SSD Fresh Plus 2026 15.03.62686 Portable by FC Portables [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13940.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ MSI Afterburner 4.6.6.16591 Beta 6 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12393.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ CPU-Z 2.16.0 Portable [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12388.jpg" />
 </div>
 
 

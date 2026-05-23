@@ -6,7 +6,7 @@ SketchUp Pro 2021 21.1.299 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008512.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Total Commander 10 final 64bit 32bit VIM 43 portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008507.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008495.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Microsoft Edge 91.0.864.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008458.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ GIMP 2.10.24 Update 3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008446.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Maxthon Browser 6.1.2.1800 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008445.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Acon Digital Collection 07.2021 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008417.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ NVIDIA GeForce Desktop Game Ready 471.22 Hotfix + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008412.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Futuremark 3DMark 2.19.7225 Developer Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008399.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Blackmagic Design DaVinci Resolve Studio 17.2.2 Build 4 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008387.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ CorelDRAW Graphics Suite 2021 23.1.0.389 Portable by conservator [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008368.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ KMSAuto++ Portable 1.5.7 by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008357.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ BurnAware Professional / Premium 14.5 RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008327.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ CrystalDiskMark 8.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008298.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Soft Organizer Pro 9.02 (акция Comss) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008294.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008290.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Media Player Classic Home Cinema 1.9.14 RePack (& portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008286.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ CrystalDiskInfo 8.12.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008284.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ GPU Shark 0.22.2.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008283.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ EssentialPIM Pro Business Edition 9.9.6 RePack (& portable) by Kolya3D79 [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008273.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.14 + Portable (unofficial) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008270.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ PIDKey Lite 1.64.4 b16 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008268.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ KLS Backup 2019 Professional 10.0.3.7 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008255.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ IObit Driver Booster Pro 8.5.0.496 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008226.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Mirillis Action! 4.20.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008158.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ XYplorer 22.00 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008137.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ macOS High Sierra 10.13.2 (17C88) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266535.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ macOS Mojave 10.14.2 (18C54) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264802.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ A Better Finder Attributes 7 v7.04 [En]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227234.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ macOS Big Sur 11.0.1 (20B50) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217207.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ App Cleaner & Uninstaller Pro 7.8.2 [Multi/Ru]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210234.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ macOS 13 Ventura 13.0 Beta (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209213.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ macOS 13 Ventura 13.5.0 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208047.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ macOS 13 Ventura 13.4.1 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196687.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ macOS 14 Sonoma Public 1 Beta (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195136.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ macOS Big Sur 11.7.9 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195106.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ macOS 13 Ventura 13.5.2 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189590.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ macOS 13 Ventura 13.0.1 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177055.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ macOS 14 Sonoma 14.014 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173139.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ macOS 13 Ventura 13.1 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162844.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ macOS Monterey 12.1 (21C52) [образ для BDU]
 >>macOS (osx86project/hackintosh)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150161.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ macOS 13 Ventura 13.6.4 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121185.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Mac OS X Lion 10.7.3 для MSI P35 Neo Combo (MS-7365) [Eng/Rus]
 >>macOS (osx86project/hackintosh)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90577.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ macOS 12 Monterey 12.7.4 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63014.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ macOS 14 Sonoma 14.4.1 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61686.jpg" />
 </div>
 
 

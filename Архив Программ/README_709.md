@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691924.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4390.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691916.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ KMSAuto Lite 1.2.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691914.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Autodesk AutoCAD Plant 3D 2017 HF31 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691912.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4390.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691910.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Tor Browser Bundle 6.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691899.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Driver Magician 4.6 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691867.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Driver Magician 4.6 Final Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691859.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ MKVToolNix 32.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691848.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ eM Client Pro 7.2.34959.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691840.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Google Chrome 73.0.3683.75 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691839.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ K-Lite Codec Pack 14.8.4 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691837.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Avidemux 2.7.2 Portable by FC Portables (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691834.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Adobe Acrobat Pro DC 2020.012.20043 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_691792.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ R-Wipe & Clean 10.7 Build 1975 Corporate RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691759.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Wondershare Filmora 9.0.8.2 (x64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691720.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Google Earth Pro 7.3.2.5776 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691710.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ UltraUXThemePatcher 2.5.10 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691592.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Hotspot Shield Elite 4.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691495.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Nero Recode 2015 16.0.15000 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691489.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Allavsoft Video Downloader Converter 3.15.7.6690 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691461.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Opera 52.0.2871.97 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691458.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Vivaldi 1.15.1147.36 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691455.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Wise Care 365 Pro 4.8.4.466 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691373.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ KLS Backup 2017 Professional 9.1.0.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691366.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ K-Lite Codec Pack Update 14.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691363.jpg" />
 </div>
 
 

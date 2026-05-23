@@ -1,108 +1,3 @@
-###  Публикация: 938626   (221737) от 03.12.2019
-
-Eat Lead: The Return of Matt Hazard (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Речь идет о шутере от третьего лица, главную роль в котором играет Мэтт Хазард – легендарный герой боевиков из 80-х. Фактически, Eat Lead: The Return of Matt Hazard – это первая игра серии, легенда про Мэтта Хазарда была выдумана разработчиками, чтобы показать фиктивную историю взлетов и падений главного героя и то, как он собирается вернуть себе популярность.
-Данная (   Читать дальше...   )Тип издания: LicenseРазработчик: Vicious Cycle SoftwareЖанр: Shooter, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20343EB0CCA380DD338E2BC6636231631ACEC287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965986   (221581) от 16.12.2015
-
-Tony Hawk's Pro Skater 5 (2015) [Xbox360] [RegionFree] FreeBoot [License] [En] | R.G. X360CLUB
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Tony Hawk’s Pro Skater 5 - это очередная игра серии симуляторов скейтбордиста. Уровни можно проходить в одиночном режиме или в кооперативе с друзьями, доступны и соревновательные онлайн-режимы. Между онлайновым и оффлайновым режимом игры можно свободно переключаться. Игроку доступна возможность собирать пауэрапы и «стрелять объектами» — в отдельных миссиях.Тип издания: LicenseРазработчик: Robomodo и Disruptive GamesЖанр: Sport (Extreme sports), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E24EF374EA5C3495B72F726ECB3AAD6E22029B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424816   (221385) от 20.11.2020
-
-Hyrule Warriors: Age of Calamity (2020) [Switch] [USA] 10.2.0 [NSZ / 1.0.1] [License] [En]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Судьба Хайрула висит на волоске. Командуйте союзниками на поле боя и сражайтесь с Бедствием Ганоном в этой ожесточенной борьбе за выживание. Hyrule Warriors: Age of Calamity объединяет динамичный геймплей с яркими пейзажами The Legend of Zelda: Breath of the Wild и создает нечто совершенно новое!Тип издания: LicenseРазработчик: Koei TecmoЖанр: Экшн, МусоуЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BEFF6E5A947E8EC9A3B6E11E8774F4E05A3101F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966217   (219535) от 17.12.2015
-
-Tony Hawk's Pro Skater 5 (2015) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Экстремальный спорт - это модное и красивое увлечение, однако не стоит забывать о переломах, увечьях и травмах. Виртуальные трюки выглядят ничуть не хуже настоящих, а зачастую намного зрелищней, а главное безопасней для себя и окружающих! В предлагаемой игре можно стать королем скейтбординга, не утруждаясь изнурительными тренировками и не вставая со стула.Тип издания: PSNРазработчик: RobomodoЖанр: Arcade, Sport (Extreme sports), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104571B924ED738D702E8E47D39167D28E37B740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423279   (219531) от 21.11.2020
 
 Ghostrunner (2020) [Switch] [USA] 10.2.0  [NSP] [License / 1.2 / DLC] [Ru/Multi]
@@ -111,7 +6,7 @@ Ghostrunner (2020) [Switch] [USA] 10.2.0  [NSP] [License / 1.2 / DLC] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219531.jpg" />
 </div>
 
 
@@ -137,7 +32,7 @@ FIFA 23 (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218563.jpg" />
 </div>
 
 
@@ -163,7 +58,7 @@ Assassins Creed Odyssey (2018) [PS4] [EUR] 9.00 [HEN] [License / 1.56 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218551.jpg" />
 </div>
 
 
@@ -189,7 +84,7 @@ MultiMan Singstar X-Mas Edition (2015) [PS3] 4.xx [Repack] [Ru/En]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217315.jpg" />
 </div>
 
 
@@ -215,7 +110,7 @@ Persona 5 Royal (2022) [Switch] [EUR] 14.1.2 [eShop] [Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216227.jpg" />
 </div>
 
 
@@ -241,7 +136,7 @@ Assassins Creed The Rebel Collection (2019) [Switch] [USA] 9.0.1 [NSZ] [License 
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215700.jpg" />
 </div>
 
 
@@ -268,7 +163,7 @@ BIT.TRIP RUNNER 2: Future Legend of Rhythm Alien (2013) [Xbox360] [RegionFree] F
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215386.jpg" />
 </div>
 
 
@@ -294,7 +189,7 @@ NieR:Automata The End of YoRHa Edition (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215073.jpg" />
 </div>
 
 
@@ -320,7 +215,7 @@ MorphX / Симбионт (2010) [Xbox360] [RegionFree] FreeBoot [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214928.jpg" />
 </div>
 
 
@@ -346,7 +241,7 @@ Need For Speed: Carbon (2006) [Xbox360] [Region Free] FreeBoot [License / 13 DLC
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214677.jpg" />
 </div>
 
 
@@ -372,7 +267,7 @@ Spider-Man: The Movie (2002) [PS2] [NTSC] [Unofficial] [Ru]
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214591.jpg" />
 </div>
 
 
@@ -398,7 +293,7 @@ Alan Wake Remastered (2022) [Switch] [EUR] 14.1.2 [eShop / DLC] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214239.jpg" />
 </div>
 
 
@@ -424,7 +319,7 @@ Far Cry Classic (2014) [PS3] [USA] 4.21 [PSN]  [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213983.jpg" />
 </div>
 
 
@@ -451,7 +346,7 @@ Aragami 2 (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213290.jpg" />
 </div>
 
 
@@ -477,7 +372,7 @@ Conan Exiles (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.78 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213269.jpg" />
 </div>
 
 
@@ -503,7 +398,7 @@ LEGO The Hobbit (2014) [PS4] [EUR] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213106.jpg" />
 </div>
 
 
@@ -529,7 +424,7 @@ Project CARS 2 (2017) [PS4] [EUR] 6.72 [HEN] [License / 7.10] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213055.jpg" />
 </div>
 
 
@@ -555,7 +450,7 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [PS4] [EUR] 9.
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212950.jpg" />
 </div>
 
 
@@ -581,7 +476,7 @@ CROSS✝CHANNEL ～For all people～ (2014) [PS3] [JAP] 4.55 [Cobra ODE / E3 ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212841.jpg" />
 </div>
 
 
@@ -609,7 +504,7 @@ GRID Legends (2022) [PS4] [USA] 5.05 [HEN] [License / 3.11] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212650.jpg" />
 </div>
 
 
@@ -635,7 +530,7 @@ Farming Simulator 22 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.10 / DLC] [Ru/Mu
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212468.jpg" />
 </div>
 
 
@@ -661,7 +556,7 @@ Minecraft (2019) [PS4] [EUR] 9.00 [HEN] [License / 2.35 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212055.jpg" />
 </div>
 
 
@@ -672,6 +567,110 @@ Minecraft (2019) [PS4] [EUR] 9.00 [HEN] [License / 2.35 / DLC] [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18AFF20DED3CBC867E4FF6663D44E220A3713159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585915   (211514) от 24.10.2022
+
+Farm Together (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.35 / DLC] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте собственную ферму самостоятельно или сотрудничайте с друзьями. Начните с нуля, с маленького участка, и закончите с огромной фермой, которая простирается дальше, чем может видеть глаз!Тип издания: LicenseРазработчик: Milkstone StudiosЖанр: SimulationЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15EBA80692D6FAAF8168608296C9F6FB5B92B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567137   (211447) от 01.08.2022
+
+Martha Is Dead (2022) [PS4] [USA] 5.05 [HEN] [License / 1.04] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Martha Is Dead - это мрачный психологический триллер от первого лица, события которого разворачиваются в 1944 году в Италии. В этой игре стираются границы между реальностью, суевериями и трагедией войны. На фоне обострения конфликта между немецкими и союзными войсками находят оскверненное тело утонувшей женщины... Марты!Тип издания: LicenseРазработчик: LKAЖанр: Adventure, HorrorЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53AEBAB81E15B465EAC0E1A6AA67E63291301193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567118   (211435) от 01.08.2022
+
+MX vs ATV Legends (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.08] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мчитесь к победе верхом на мотоцикле, вездеходе или квадроцикле в игре MX vs ATV Legends! Вас ждут разнообразные трассы и режим карьеры, в котором все риски окупятся с лихвой — ведь вы сможете стать звездой гонок международного масштаба. Станьте легендой гонок по бездорожью!Тип издания: LicenseРазработчик: Rainbow StudiosЖанр: RacingЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485AF008997C12274820BAD9203AA22A97A79F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567145   (211431) от 01.08.2022
+
+NBA 2K22 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.13] [Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211431.jpg" />
+</div>
+
+
+###  Подробнее
+
+2K22 подарит вам целую вселенную баскетбола. ИГРАЙТЕ на настоящих площадках NBA и WNBA против реальных команд и игроков. Соберите команду своей мечты в режиме MyTEAM и добавьте в нее звезд настоящего и легенд прошлого. Сделайте карьеру в профессиональном спорте в режиме MyCAREER и преодолейте путь к вершинам NBA. Продемонстрируйте навыки профессионального менеджмента (   Читать дальше...   )Тип издания: LicenseРазработчик: Visual ConceptsЖанр: СпортЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A50EEACDB4D00D082075DD28A8F0182AB58B84
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Enderal: Forgotten Stories (2019) [Ru] (1.9.32.0/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579985.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bully Scholarship Edition [Ru] (RePack) 2008 | Spieler
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579442.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579435.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Rise of the Tomb Raider (2016) [Ru/En] (1.0.668.1/dlc) Repack R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579116.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ This Is the Police (2016) [Ru/Multi] (1.0.34) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579060.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Surviving Mars (2018) [Ru/Multi] (244677/dlc) Repack xatab [Digital Deluxe Editi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578875.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Endless Space (Repack/1.0.9) [En] 2012 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578269.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Kingdoms of Amalur: Reckoning + 10 DLC [Ru] (RePack/1.0.0.2) 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578268.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578255.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576104.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Harry Potter and the Deathly Hallows: Part 2 / Гарри Поттер и Дар
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576088.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Warhammer 40,000: Sanctus Reach (2017) [Ru/Multi] (1.2.5/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575538.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Inversion (RePack) [Ru/En] 2012 l Sash HD
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575122.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Super Laser Racer (Eng) [L] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_574762.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Angry Birds Space [En] (L/1.2.2) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574480.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Inversion [En] (L) 2012 | SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574312.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Dead Drunk / Симулятор пьяного сисадмина / Пьяниц
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_574302.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Inversion [Ru/En] (RePack/1.0.1) 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574301.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Chernobyl Terrorist Attack / Чернобыль: Зона отчуждения [
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574294.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574285.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Crazy Machines [Wii] [PAL] [EN/DE] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_574212.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Kenshi (2018) [Ru/Multi] (1.0.21) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573880.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ The Solus Project (2016) [Ru/Multi] (1.021) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573867.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Galactic Civilizations III (2015) [Ru/Multi] (1.81/dlc) License POSTMORTEM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573862.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Inversion (RePack/1.0.1) [Ru] 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573201.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Inversion (RePack) [Ru] 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573056.jpg" />
 </div>
 
 

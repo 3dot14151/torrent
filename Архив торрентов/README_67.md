@@ -6,7 +6,7 @@ MacX MediaTrans 7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036043.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Animated Wallpapers 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036042.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ EazyDraw 10.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036041.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Firefox Browser 78.7.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036038.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Awaken 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036035.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Keka 1.2.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036032.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Firefox Browser 85.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036031.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Canvas X Draw 7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036027.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ FonePaw iPhone Data Recovery 6.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036026.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Camtasia 2020 Studio v2020.0.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036020.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ DearMob iPhone Manager 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036019.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Sandboxie 5.46.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036013.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - Best Of Inception 2020 (2021) [MP3|320 Kbps] <Trance, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036011.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Chromium 88.0.4324.104 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036010.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Mozilla Thunderbird 78.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036005.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Opera GX 72.0.3815.487 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035999.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Microsoft Edge 88.0.705.53 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035993.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ WinSCP 5.17.10 Build 11087 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035992.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Etcher 1.5.115 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035991.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Mushikago no Cagaster | Cagaster of an Insect Cage | Убийца насеком
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035988.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Topaz DeNoise AI 2.4.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035985.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Icecream PDF Editor PRO 2.45 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035984.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ OCCT 7.3.0 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035980.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Luminar AI 1.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035975.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Auslogics Disk Defrag Pro 10.0.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035968.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Acme CAD Converter 2021 8.10.0.1526 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035964.jpg" />
 </div>
 
 

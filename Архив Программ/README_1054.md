@@ -6,7 +6,7 @@ HDCleaner 2.030 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512438.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera 89.0.4447.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512437.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Edge 103.0.1264.49 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512436.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kaspersky Rescue Disk 10.0.31.4 (20.08.2012) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512433.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ McRip SystemFiles 1.3.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512425.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Free Studio 5.7.0.819 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512420.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Pale Moon 31.1.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512415.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ IK Multimedia - T-RackS 5 Complete 5.9.0 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512410.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ BELOFF [dp] 2022.06.5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512404.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512402.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VLC Media Player 2.1.0-git-20120820 (x32/x64) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512384.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ YoWindow Unlimited Edition 3.0 Build 98 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512375.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Strawberry 1.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512371.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ IK Multimedia - AmpliTube 5 Complete 5.4.1 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512370.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Win7codecs 3.7.6 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512313.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ MInstAll v.02.07.2022 By Andreyonohov (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512236.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VirtualBox 4.1.20.80170 Final + Extension Pack [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512223.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VMware Workstation 8.0.4 Build 744019 Lite + VMware-tools 8.8.4 by qazwsxe [Eng 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512120.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Classic Shell 3.6.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512119.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ GenArts Sapphire Plugins for OFX systems v6.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512013.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Eyeon Fusion & Rendernode(RenderSlave) (32/64) 6.4  build 1092 [Английск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512005.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Fraps 3.5.7 Build 15516 Portable by punsh [Английский / Русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511999.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ WPI DVD By Andreyonohov & Leha342 (RUS/2012) 19.08.2012 [Русский]  (ав�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511992.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Windows Server 2012 RTM 9200 x64 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511991.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Inkscape 0.48.2 + Portable by PortableAppZ [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511959.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ DVDFab 9.2.1.0 Final Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511884.jpg" />
 </div>
 
 

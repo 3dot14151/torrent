@@ -6,7 +6,7 @@ Picture Cutout Guide v2.9 [English / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257285.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ XWidget Release 1.4.0.502 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257274.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Windows 8 Codecs 1.09 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257239.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VirtualBox 4.1.16. r78094 Final + Extension Pack [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257234.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Boilsoft Video Joiner 6.57.5 / Video Splitter 6.34.4 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257215.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Photo Montage Guide 1.4 [Rus] Portable by BALISTA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257198.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ WinISO Standard 6.2.0.4526 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257189.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ ooVoo 3.5.1.70 Final [Multi/Rus] Portable by Baltagy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257147.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ SMPlayer beta 0.8.0.4322 + portable  [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257135.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Klanghelm - DC8C 'advanced compressor' v.1.2 by SYNTHiC4TE[английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256943.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Photo Montage Guide 1.3.2 [Rus] Portable by SevaSDT
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256901.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Wise Registry Cleaner v7.22 build 459 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256558.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ TNod User & Password Finder 1.4.2 Beta 5 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256550.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Total Uninstall Pro 6.1.0 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256528.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Drive Space Indicator 5.3.4.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256509.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Nokia Suite 3.4.49 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256469.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ ooVoo 3.5.1.70 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256422.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ WebcamMax 7.6.4.2 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256419.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Moo0 TransparentMenu 1.12 [Multi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256410.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ ToolWiz Care 2.0.0.2600 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256378.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Magic Partition Recovery 1.0 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256253.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Sonnoxplugins - Sonnox Oxford Elite Collection Native v.1.0 by AIR x86[VST][aн�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256229.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ WPI DVD 15.05.2012 By Andreyonohov & Leha342 (RUS/2012) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256222.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Magic Uneraser 3.2 [Multi/Rus] + Portable by Valx
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256216.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Directory Opus 10.0.5.0.4497 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256207.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Driver Genius Professional v11.0.0.1128 Final + RePack + Portable + RePack & Por
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256204.jpg" />
 </div>
 
 

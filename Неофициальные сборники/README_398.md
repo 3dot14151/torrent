@@ -1,32 +1,3 @@
-###  Публикация: 931133   (512874) от 25.08.2015
-
-VA - Попсовая соточка MTV. Выпуск 2 (2015) [MP3|256-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Ирина Дубцова И Brandon Stone - Игра Теней
-002. Tokio Hotel - Stormy Weather
-003. Лариса Долина - Очередь За Мечтой
-004. Mia Martina - Damn(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816628E56F234CEE4F494B4D0799C630DCBB1DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931237   (512809) от 25.08.2015
 
 VA - Горячий музон. Тусим все вместе (2015) [MP3|256-320 кб/с]<Pop>
@@ -35,7 +6,7 @@ VA - Горячий музон. Тусим все вместе (2015) [MP3|256-3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512809.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Всё сразу 200 хитов Выпуск 4 (2015) [MP3|186 - 320 кб/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512796.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - ЕвроХит Топ 40 Europa Plus 19.07.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512777.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Blues Forever, Vol.91 (2019) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512700.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Зайцев нет. Лучшие новинки августа (2015) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512667.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Rock instrumental classics (2008) [MP3|160-320 кб/с]<Rock/Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512314.jpg" />
 </div>
 
 
@@ -206,7 +177,7 @@ VA - Club Hits 2k15 (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511944.jpg" />
 </div>
 
 
@@ -235,7 +206,7 @@ VA - Hot And Sexy Lounge Grooves Vol. 1 (2015) [MP3|320 кб/с]<Downtempo, Chil
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511940.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ VA - Lounge Music Cafe - Cafe IBIZA (2015) [MP3|320 кб/с]<Downtempo, Chillout
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511932.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ VA - Fifty Shades Of Lounge (50 Smooth & Sexy Chill Tunes 4 Erotic Moments) (201
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511874.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ VA - Наше радио - Чартова дюжина ТОП-13  (24.08.2010)  
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511859.jpg" />
 </div>
 
 
@@ -357,7 +328,7 @@ VA - Acoustic Chill Songs (2015) [MP3|320 кб/с]<Instrumental, Acoustic, Guita
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511838.jpg" />
 </div>
 
 
@@ -386,7 +357,7 @@ VA - eXXXplicit chill (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511462.jpg" />
 </div>
 
 
@@ -421,7 +392,7 @@ VA - Pumping Storm - 11 (Back to Underground) (2012) [MP3|320 кб/с]<Pumping H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511411.jpg" />
 </div>
 
 
@@ -454,7 +425,7 @@ VA Радио 7. Tоп 100 (2011) [MP3|320 кб/с]<Pop, Rock, Jazz>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511271.jpg" />
 </div>
 
 
@@ -489,7 +460,7 @@ VA - Carnaval House (2015) [MP3|320 кб/с]<Progressive House, Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511115.jpg" />
 </div>
 
 
@@ -518,7 +489,7 @@ VA - Lounge Deluxe Collection [Cane Garden Bay Records] (2015) [MP3|320 кб/с]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511111.jpg" />
 </div>
 
 
@@ -547,7 +518,7 @@ VA - A Chill House Affair Vol. 1 (60 Fantastic Summer Tunes) (2015) [MP3|320 к�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511109.jpg" />
 </div>
 
 
@@ -576,7 +547,7 @@ VA - Playlist: Best Of Lounge & Chillout Playlists (2015) [MP3|320 кб/с]<Down
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511092.jpg" />
 </div>
 
 
@@ -605,7 +576,7 @@ VA - HGM International House Departures (2019) [MP3|320 Kbps] <Electro, Dance, C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511077.jpg" />
 </div>
 
 
@@ -634,7 +605,7 @@ VA - Beatport Trance Top 100 August [edited by ZIMIANDR] (2015) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511017.jpg" />
 </div>
 
 
@@ -663,7 +634,7 @@ VA - Dancehall And Reggae Party (2019) [MP3|320 Kbps] <Reggae, Dancehall>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510990.jpg" />
 </div>
 
 
@@ -692,7 +663,7 @@ VA - The Official UK Top 40 Singles Chart 19.07.2019 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510984.jpg" />
 </div>
 
 
@@ -721,7 +692,7 @@ VA - Summer Chill Lounge (50 Selected Chillout Grooves For Love, Sex And Relax) 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510949.jpg" />
 </div>
 
 
@@ -750,7 +721,7 @@ VA - German Top 100 Single Charts 26.07.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510910.jpg" />
 </div>
 
 
@@ -764,6 +735,35 @@ VA - German Top 100 Single Charts 26.07.2019 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ACC659BEF60012FCF6F657C2480E6CE6577E46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315879   (510896) от 22.07.2019
+
+VA - Acid Maschine: Hard Techno Compilation (2019) [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510896.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Twob - Pursuit (Original Mix)
+002. Mark Kramer - Proton X (Original Mix)
+003. Alvinho L Noise - Manifesto (Original Mix)
+004. Space Zombie - Leuchtturm(   Читать дальше...   )Жанр: TechnoПродолжительность: 09:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13ED877B9F570F62B521D7CEA0E326AF9844CE4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

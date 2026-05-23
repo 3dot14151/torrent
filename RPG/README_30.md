@@ -6,7 +6,7 @@ Wasteland 2: Director's Cut (2015) [Ru/Multi] (1.0/u1) Repack R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412908.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rezrog (2017) [Ru/En] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412814.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (SC:6879) Repack xatab (об�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411012.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Final Fantasy XII International: Zodiac Job System (En) [RePack/Emulator] 2007 |
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410945.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Overlord: Fellowship of Evil (2015) [En/Multi] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410639.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Legends of Dawn Reborn (2015) [Ru/Multi] (2.01s) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408931.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.2.0/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408900.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Gerda: A Flame in Winter (2022) [Ru/Multi] (1.1.14-00f6b) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407225.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Middle-earth: Shadow of Mordor (2014) [Ru/Multi] (rc2/dlc) License GOG [Game of 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407217.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Kingdom Hearts [En] [RePack/Emul] 2002 | MoveXX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406264.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ R.A.W.: Realms of Ancient War / R.A.W.: Проклятье древних кор
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405660.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Lichdom: Battlemage (2014) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402903.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Of Orcs And Men [Ru/En] (Repack/1.0.0.2) 2012 | Fenixx
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402654.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Might & Magic: Heroes VI. Gold Edition / Герои Меча и Магии 6. З
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402582.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Stonekeep (1995) [Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402151.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Of Orcs and Men [Ru/En] (RePack/1.0.0.2) 2012 | Audioslave
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401828.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Risen 2. Dark Waters / Risen 2. Тёмные воды [Ru/En/Gr] (RePack/1.0.121
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401677.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Risen 2: Dark Waters [Ru/En] (RePack/1.1.0.0/3 DLC) 2012 | R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400652.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Spirit of Excalibur [En] (RePack) 1990 | RG Games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398038.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Dark Heart of Uukrul [En] (RePack) 1989 | RG games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397858.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (22997) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396395.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Darkspyre [En] (RePack) 1990 | RG Games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395900.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (22997) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395459.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.0.18) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391640.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/Multi] (3.0.146.
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389519.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ The Harvest (2013) [Multi] (1.0) Unofficial ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387516.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ WRC 7 FIA World Rally Championship (2017) [Ru/Multi] (1.4/dlc) Repack R.G. Catal
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417269.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Need for Speed: The Run (2011) [Ru] (1.1.0.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416302.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WRC 7 FIA World Rally Championship (2017) [Ru/Multi] (1.0/dlc) License CPY
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408333.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Road Redemption (2017) [Ru/Multi] (20181003/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407572.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ WRC 3 FIA World Rally Championship [En] (RePack) 2012 l YelloSOFT
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405692.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ WRC 7 FIA World Rally Championship (2017) [Ru/En] (1.0/dlc) Repack =nemos=
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404718.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ WRC 7 FIA World Rally Championship (2017) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404532.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Crash Time Anthology / Антология Crash Time [Ru/En] (RePack/3.1.3/1.3.3
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404274.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ FlatOut Anthology / Антология FlatOut [Ru/En] (RePack) 2004 - 2011 | R.
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399636.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Road Redemption (2017) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396402.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ F1 2017 (2017) [Ru/En] (1.7) Repack =nemos=
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395406.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Need for Speed: Most Wanted [Ru/Multi7] (L) 2012
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394375.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Auto Age: Standoff (2017) [En] (1.1.0) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391654.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Monster Truck Destruction (2013) [Ru/Multi] (1.02) Unofficial Unleashed
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389195.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Carmageddon: Max Damage (2016) [Ru/Multi] (1.0.0.5853) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379556.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Glacier / Ледниковый патруль (L) [Ru] 2009
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375524.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Knight Rider: The Game / Рыцарь дорог (2003) [Ru] (1.0) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375189.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Project CARS 2 (2017) [Ru/Multi] (1.2.0.1/dlc) Repack R.G. Revenants
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371355.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Monster Truck Championship (2020) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366846.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ MotoGP 19 (2019) [Multi] (1.0/upd12/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362641.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Carmageddon: Max Damage (2016) [Ru/En] (1.0.0.9857/dlc/u3) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346747.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ F1 2013 (2013) [En] (1.06/dlc) Repack R.G. Catalyst [Classic Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344619.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Antigraviator (2018) [Ru/Multi] (1.292/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340189.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ FURIDASHI: Drift Cyber Sport (2017) [Ru/En] (101/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334779.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ FURIDASHI: Drift Cyber Sport (2017) [Ru/En] (101/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334770.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Dakar Desert Rally (2022) [Multi] (Build 9579948/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326954.jpg" />
 </div>
 
 

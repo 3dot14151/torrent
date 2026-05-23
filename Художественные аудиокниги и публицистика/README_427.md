@@ -1,81 +1,3 @@
-###  Публикация: 1293993   (627867) от 08.04.2019
-
-Марк Калашников | Путь Зверя (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Когда в спину дышит старуха с косой, готов согласиться на многое, а тут всего-то работу предлагают, в игре — подарок судьбы! Разве что раса досталась весьма специфическая и не очень почётная, да болевой фильтр чуть выше, чем у остальных. Главное — живём! С этими мыслями Артём уже не просто играет, а живёт в виртуальном мире, не догадываясь, что «Трансформа» не просто (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGПродолжительность: 15:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4156D8E053A3193347BCCB0EE0A3FA0DC4CB570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294233   (627862) от 08.04.2019
-
-Фрэнк Герберт, Билл Рэнсом | Эффект Лазаря (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-С тех пор как погиб последний из естественных островов Пандоры, общество планеты расслоилось на островитян и мутантов морян. Напряжение между ними растет, готовое вылиться в открытый конфликт. Все надежды на второе пришествие Корабля, ставшего для людей этого мира воплощением Господа Бога.Жанр: Научная фантастикаПродолжительность: 12:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFF68B18DDEBE8EF51CFFF5923F66A45B7CD580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293271   (627859) от 08.04.2019
-
-Евгений Сухов | СМЕРШ – спецназ Сталина. Связной (2017) [MP3, Сергей Дадыко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На допрос к начальнику 3 отдела СМЕРШ доставили арестованного немецкого диверсанта Николая Зотова. Предатель сообщил, что в ближайшее время немцы планируют выбросить двух диверсантов у железнодорожного узла Люберцы. Так и случилось. Контрразведчики получили информацию о пролетевшем над лесом самолёте ЛИ-2, а затем - о появлении в городе двух странных сержантов. Диверсантов (   Читать дальше...   )Жанр: БоевикИздательство: Нигде не купишьПродолжительность: 11:13:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB17DB05BB1583267A378802824E31FA1059D04A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292577   (627847) от 08.04.2019
 
 Филип Дик и др. | Литературный аудиопроект «Глубина» [выпуск 14] (2019) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627847.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627762.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627750.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627739.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627732.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627713.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627687.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627601.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627598.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627592.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627579.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627574.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627569.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627566.jpg" />
 </div>
 
 
@@ -454,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627564.jpg" />
 </div>
 
 
@@ -480,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627558.jpg" />
 </div>
 
 
@@ -506,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627495.jpg" />
 </div>
 
 
@@ -532,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627488.jpg" />
 </div>
 
 
@@ -559,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627487.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627485.jpg" />
 </div>
 
 
@@ -613,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627479.jpg" />
 </div>
 
 
@@ -639,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627446.jpg" />
 </div>
 
 
@@ -665,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627247.jpg" />
 </div>
 
 
@@ -676,6 +598,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D778CA238BB816086076C3C62F979684BC13E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035366   (626719) от 17.07.2016
+
+Дмитрий Чурсин | Непраздные на распутье - дорога скорби или путь испытаний (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беременность бывает разной. Часто женщина с волнением и трепетом ждет ее прихода, чутко прислушиваясь к своему организму, и порой узнавая о своем новом статусе еще до появления первых признаков задержки. Тогда две полоски на тесте вызывают такую бурю радости и восторга, что этот день запоминается на всю жизнь, а сам тест порой занимает достойное место в собрании (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 06:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9302A21D8A160D2062F46A11AFB467005CBB313C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035168   (626714) от 17.07.2016
+
+Сэм Шепард | Века Луны (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обладатель Пулитцеровской и других литературных премий, автор пьес «Город ангелов», «Проклятие голодающего класса», «Уловка разума», «Узы любви», «Шоковое состояние», Шепард не менее известен и как киносценарист — автор сценариев к фильмам «Забриски пойнт» (реж. М. Антониони), «Париж — Техас» (реж. В. Вендерс), «Дурак в любви» и др. И это не всё: Сэм Шепард — режиссер (   Читать дальше...   )Жанр: ДрамаПродолжительность: 01:20:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F93A2BFCFA195ADDCA0C67492EB36E4F0EEB65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035152   (626654) от 17.07.2016
+
+Мария Метлицкая | Второе дыхание (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спортсмены знают – как бы ни было тяжело на дистанции, нельзя сдаваться: у самых упрямых обязательно открывается второе дыхание.
+Жизнь очень напоминает бег на длинную дистанцию – чего только не случается, пока бежишь, и никогда не знаешь, что ждет на финише.
+Бывает, что отчаяние перехлестывает, ты задыхаешься, кажется – нет больше сил. Но тем, кто сумел побороть (   Читать дальше...   )Жанр: Современная проза,РассказыПродолжительность: 08:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52CC2FE4D7ACCDFB0497C922FF0AA782DD251D6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

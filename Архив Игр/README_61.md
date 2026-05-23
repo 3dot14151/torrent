@@ -6,7 +6,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363960.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Transport Fever (2016) [Ru/Multi] (1.0.11807) License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363648.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dead Age (2016) [Multi] (1.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363442.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Transport Fever (2016) [Ru/Multi] (1.0.11807) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363427.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hybrid Wars (2016) [Ru/Multi] (4.89.11186/dlc) License GOG [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363237.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.5.2-f3/dlc) Repack xatab [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360692.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dawn of Man (2019) [Multi] (1.3.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360665.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Record of Agarest War (Agarest: Generations of War) (2007) [Xbox360] [RegionFree
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360394.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Baldur's Gate II/2: Enhanced Edition (2013) [En] (1.0) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359591.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Sword of the Stars II: Lords of Winter [En] (Steam-Rip/1.1.23976.3/4 DLC) 2011 |
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_359455.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Counter-Strike: Source [Ru] (RePack/v34/4044) 2012 | kami sama и _Данил_
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359452.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Baldur's Gate (2012) [En] (1.2.0) SteamRip R.G. GameWorks [Enhanced Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359445.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Medieval II: Total War Gold Edition [Ru] (RePack) 2008 | R.G.R3PacK {Medieval II
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359003.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Amnesia: A Machine for Pigs (2013) [Ru/Multi] (1.0 Upd2) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358228.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Deadly Premonition (2013) [Ru/Multi] (1.1b) Repack R.G. Catalyst [The Director's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358021.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Pro Evolution Soccer 2012 [Wii] [Multi3] [PAL] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357752.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Skullgirls 2nd Encore (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357553.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Minecraft [Ru/En/Multi56] (L/1.3.2) 2012 l sOka!
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356997.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ NASCAR Kart Racing [Wii] [NTSC2PAL] [Eng] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356958.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Assassin's Creed 3 [Ru] (Rip) 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356849.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Tyranny (2016) [Ru/Multi] (1.0.0008) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356079.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ The Banner Saga (2014) [Ru/En] (2.7.01) RePack Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355594.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.9.0-f5/dlc) Repack R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355260.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ ELEX (2017) [Ru/Multi] (1.0.2) License BAT [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355247.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354759.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Assassin's Creed III/3 [Ru] (Rip/1.01) 2012 l ShTeCvV
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354639.jpg" />
 </div>
 
 

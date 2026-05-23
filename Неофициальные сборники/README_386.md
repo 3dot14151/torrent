@@ -1,32 +1,3 @@
-###  Публикация: 1050982   (534916) от 10.09.2016
-
-VA - Beatport Top 100 Drum & Bass August (2016) [MP3|320 Kbps] <Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Friction Ft. Stylo G - Bring It Back (Tantrum Desire Remix)
-002. Mob Tactics - Body Check
-003. Drumsound & Bassline Smith - The Truth VIP (Vip Mix)
-004. Tantrum Desire - Tesoro(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 08:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78221E5F9F835FC6E9632C116F7E347AEFA7596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050923   (534911) от 10.09.2016
 
 VA - Попсовый Драйв Зарубежный (2016) [MP3|256 Kbps] <Pop>
@@ -35,7 +6,7 @@ VA - Попсовый Драйв Зарубежный (2016) [MP3|256 Kbps] <Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534911.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Mega Dance Party Summer Vol.6 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534884.jpg" />
 </div>
 
 
@@ -99,7 +70,7 @@ VA - Улетная попсовая 100ка (2016) [MP3|192-256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534803.jpg" />
 </div>
 
 
@@ -128,7 +99,7 @@ VA - Mega Dance Party Summer Vol.5 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534778.jpg" />
 </div>
 
 
@@ -163,7 +134,7 @@ VA - DEEP'КАЧ 90-х Vol.2 (2017) [MP3|320 Kbps] <Deep House, Nu Disco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534732.jpg" />
 </div>
 
 
@@ -192,7 +163,7 @@ VA - Звездный Хит - Парад. Русский Выпуск (2016) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534655.jpg" />
 </div>
 
 
@@ -221,7 +192,7 @@ VA - Танцевальная хитовая дискотека. Зарубеж�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534652.jpg" />
 </div>
 
 
@@ -250,7 +221,7 @@ VA - Музыкальное Наслаждение Радио Шансон (2016
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534651.jpg" />
 </div>
 
 
@@ -279,7 +250,7 @@ VA - Mega Dance Party Summer Vol.8 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534633.jpg" />
 </div>
 
 
@@ -314,7 +285,7 @@ VA - Beatport Top 100 Indie Dance / Nu Disco August (2016) [MP3|320 Kbps] <Indie
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534558.jpg" />
 </div>
 
 
@@ -343,7 +314,7 @@ VA - Мега хиты хорошего настроения 6 (2016) [MP3|256 K
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534556.jpg" />
 </div>
 
 
@@ -372,7 +343,7 @@ VA - House Garden Music (2019) [MP3|320 Kbps] <Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534488.jpg" />
 </div>
 
 
@@ -401,7 +372,7 @@ VA - Erozion: Metal Collection (2019) 2CD [MP3|320 Kbps] <Death, Black Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534388.jpg" />
 </div>
 
 
@@ -430,7 +401,7 @@ VA - Retribution Therapy: Hard Rock Aggregation (2019) [MP3|320 Kbps] <Hard Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534293.jpg" />
 </div>
 
 
@@ -459,7 +430,7 @@ VA - Urban City Lounge Sexy Ambient Music and Cool Summer Chillout Tunes (2015) 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533655.jpg" />
 </div>
 
 
@@ -488,7 +459,7 @@ VA - HarDD NRG OverDoZZe 7 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533652.jpg" />
 </div>
 
 
@@ -517,7 +488,7 @@ VA - В машине с музыкой Vol.270 (2022) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533636.jpg" />
 </div>
 
 
@@ -546,7 +517,7 @@ VA - Infinity Lounge Pool Cool and Sexy Ambient Bar Downbeat Chill Music (2015) 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533568.jpg" />
 </div>
 
 
@@ -575,7 +546,7 @@ VA - Original Sun Mix (2015) [MP3|320 кб/с]<Vocal, Uplifting Trance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533563.jpg" />
 </div>
 
 
@@ -604,7 +575,7 @@ VA - Extendet Mix Club House (2022) [MP3|320 Kbps] <Club, Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533546.jpg" />
 </div>
 
 
@@ -633,7 +604,7 @@ VA - ЕвроХит Топ 40 Europa Plus 17.06.2022 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533537.jpg" />
 </div>
 
 
@@ -662,7 +633,7 @@ VA - Deep House and Techno - Dream Selection 2010-2015 vol.4 (2017) [MP3|320 Kbp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533535.jpg" />
 </div>
 
 
@@ -691,7 +662,7 @@ Otta-Orchestra - Compilation (2022) [MP3|320 Kbps] <Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533471.jpg" />
 </div>
 
 
@@ -720,7 +691,7 @@ VA - Psychedelic Euphoria: Infinite Realites Future Trance (2017) [MP3|257-320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533453.jpg" />
 </div>
 
 
@@ -749,7 +720,7 @@ VA - Night To Night (2017) [MP3|320 Kbps] <Synthwave, Outrun, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533447.jpg" />
 </div>
 
 
@@ -763,6 +734,35 @@ VA - Night To Night (2017) [MP3|320 Kbps] <Synthwave, Outrun, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D440EAC1C8878992EE0F2D6BDC9778A46721CD67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051437   (532940) от 11.09.2016
+
+VA - Musical Weekend Electro House Set (2016) [MP3|320 Kbps] <Club, Electro, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532940.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lost Frequencies - Beautiful Life (Extended Mix) ( feat. Sandro Cavazza) 03:35
+002. Galantis - No Money 03:10
+003. Dimitri Vegas & Like Mike - Stay a While (Extended Mix) 05:03
+004. Robin Schulz feat. Akon - Heatwave 03:08(   Читать дальше...   )Жанр: Club, Electro, Progressive HouseПродолжительность: 08:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E446102AE9815F7C45863175FB50670FE5697D
 ```
 
 https://mybot314.ru/tekegram_catalog/

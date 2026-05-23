@@ -6,7 +6,7 @@ MEmu 9.0.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205927.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ YouTube ReVanced Extended 18.30.37 (RVP v2.187.1) Mod by Vooltmace + Micro G [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205924.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VPN Inf - Security Fast VPN 7.5.713 Mod by ModdingUnited [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205922.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Etcher 1.18.4 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205920.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Rename Expert 5.30.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205916.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Microsoft Visual Studio 2022 Enterprise 17.3.6 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205900.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Registry Finder 2.56 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205898.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Skype 8.102.0.211 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205894.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Root Explorer / Root Проводник 4.12 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205891.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Ventusky: Прогноз погоды v27.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205889.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Sigil 2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205883.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Ungoogled Chromium 116.0.5845.82-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205879.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ RS Explorer / RS Проводник 2.0.3 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205865.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Atlantis Word Processor 4.2.2.4 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205863.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.34
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205852.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Advanced Renamer 3.89.2 Final + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205849.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ App Builder 2023.44 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205848.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Bandicam 6.0.4.2024 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205846.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ IObit Smart Defrag Pro 9.0.0.311 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205843.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ NokoPrint v5.0.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205840.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ PageEdit 2.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205836.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ AOMEI Partition Assistant Professional, Server, Technician, Unlimited Edition 9.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205833.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Within Temptation - Bleed Out (2023) [FLAC|24/96|tracks|WEB-DL] <Metal, Symphoni
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205830.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Ashampoo WinOptimizer 25.00.18 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205827.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ FxFactory Pro 8.0.8 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205813.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205807.jpg" />
 </div>
 
 

@@ -1,83 +1,3 @@
-###  Публикация: 1150665   (577732) от 16.07.2017
-
-Александра Лисина | Мэтр на охоте (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Светлому студенту Академии всеобщей магии, а по совместительству — некроманту, который, как считают, погиб еще пятьдесят лет назад, не до скуки. Столько дел, что голова кругом. Тайный заговор раскрой, с наемными убийцами договорись, новые знания по светлой магии освой… И пусть на вид ты всего лишь рыжий мальчишка-первокурсник — не беда. Чем меньше подозрений вызывает (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 11:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750CB4AA3294C7F3FCEFD2AA2F3C102C984E7B63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554477   (577628) от 30.05.2022
-
-Абрахам Меррит | «Доктор Гудвин» Книга 2. Металлическое чудовище (2022) [MP3, Владимир Соловейчик]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Металлическое чудовище – фантастический роман Абрахама Меррита, вторая книга цикла «Доктор Гудвин», жанр научная фантастика.
-
-Доктор Гудвин исследует недоступный район Гималаев и сталкивается с явными проявлениями коллективного сознания у загадочных металлических существ, которые имеют форму кубов, шаров и конусов и способны свободно передвигаться в пространстве (   Читать дальше...   )Жанр: Зарубежная фантастика, Научная фантастикаПродолжительность: 07:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64CCEE1617B62A8AD455C6C3B32D2313EA1D46C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554486   (577604) от 30.05.2022
-
-Чайна Мьевиль | Посольский город (2022) [MP3, Александра Грин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В далеком будущем люди колонизировали планету Ариеку, обитатели которой владеют самым уникальным языком во Вселенной. И лишь немногие из землян, специально модифицированные, способны общаться с этими существами. После долгих лет, проведенных в глубоком космосе, на планету возвращается Ависа Беннер Чо. Она не может говорить на языке ариекаев, но она – неотделимая (   Читать дальше...   )Жанр: Космическая фантастика, Социальная фантастикаПродолжительность: 15:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4531DCD1FC3A7B0C81795383837862A759021490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150641   (577555) от 16.07.2017
 
 Дэн Миллмэн | Путь мирного воина (2016) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577555.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577511.jpg" />
 </div>
 
 
@@ -139,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577359.jpg" />
 </div>
 
 
@@ -167,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577257.jpg" />
 </div>
 
 
@@ -193,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576758.jpg" />
 </div>
 
 
@@ -219,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576658.jpg" />
 </div>
 
 
@@ -247,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576154.jpg" />
 </div>
 
 
@@ -276,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576072.jpg" />
 </div>
 
 
@@ -303,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575993.jpg" />
 </div>
 
 
@@ -329,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575973.jpg" />
 </div>
 
 
@@ -355,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575906.jpg" />
 </div>
 
 
@@ -381,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575808.jpg" />
 </div>
 
 
@@ -408,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575778.jpg" />
 </div>
 
 
@@ -436,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575768.jpg" />
 </div>
 
 
@@ -463,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575752.jpg" />
 </div>
 
 
@@ -489,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575732.jpg" />
 </div>
 
 
@@ -516,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575699.jpg" />
 </div>
 
 
@@ -543,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575679.jpg" />
 </div>
 
 
@@ -569,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575577.jpg" />
 </div>
 
 
@@ -596,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575576.jpg" />
 </div>
 
 
@@ -622,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575564.jpg" />
 </div>
 
 
@@ -648,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575560.jpg" />
 </div>
 
 
@@ -675,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575466.jpg" />
 </div>
 
 
@@ -688,6 +608,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF167E705EB4D300D2511589781D7633967658BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554700   (575463) от 31.05.2022
+
+Анджей Сапковский | Ведьмак (Книга 3). Кровь эльфов (2019) [MP3, PL, Krzysztof Gosztyła]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья книга из расказов о Ведьмаке. Лучшие польские актеры и актрисы сыграли персонажей саги о ведьмаке Геральте. 79 актеров озвучили эту аудиокнигу. Читает Кшиштоф Гоштила, музыка Адама Скорупы.
+
+"Истинно, истинно говорю вам, придет век Меча и Топора, век Волчьей Пурги. Придет Час Белого Хлада и Белого Света. Час Безумия и Час Презрения, Tedd Deireadh. Час (   Читать дальше...   )Жанр: Героическое фэнтезиЯзык озвучки: ПольскийПродолжительность: 12:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150470B636BD4F2A4A8196823876E5384D8AA316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554643   (575459) от 31.05.2022
+
+Алексей Доронин | Кабельщики (2022) [MP3, Проводник]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ближайшее будущее. На Земле, которую и так сотрясают социальные и политические кризисы, группа ученых расшифровала сигнал, отправителем которого могла быть только внеземная цивилизация. Но на этом они не собираются останавливаться. В нарушение всех запретов четверо энтузиастов хотят отправить в космос ответ. Какой будет реакция на их действия остальных землян? И (   Читать дальше...   )Жанр: Научная фантастика, Космическая фантастикаПродолжительность: 02:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B16DDDA578AA7F008B8103D0799914CC9CAD8CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554707   (575458) от 31.05.2022
+
+Филип K. Дик | Убик (2022) [MP3, Александр Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недалекое будущее. Корпорации ведут между собой бесконечную войну. Нанятые ими контр-телепаты преследуют агентов-телепатов конкурентов. Смерти нет – теперь умерших родственников погружают в специальные криокамеры, где они продолжают существование. Но вдруг время начинает обращаться вспять, реальность разрушается, а с ней и люди.. И есть только одно спасение – Убик!Жанр: Зарубежная фантастика, Научная фантастикаПродолжительность: 07:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E629D33C70F42A403D571DF53EE7E3424518284B
 ```
 
 https://mybot314.ru/tekegram_catalog/

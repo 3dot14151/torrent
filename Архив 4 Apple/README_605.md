@@ -6,7 +6,7 @@ Storyist 4 v.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168374.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Blocs 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168358.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ RAR Extractor Max-Unzip Winrar 8.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168357.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Cookie 7.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168354.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Keep It 1.7.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168347.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Wattagio 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168342.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ SILKYPIX JPEG Photography 11E v.11.2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168339.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Kiwi for Gmail 2.0.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168333.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ SILKYPIX Developer Studio Pro 11E v.11.0.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168321.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Cookie 7.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168320.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Rocket Typist Pro 3.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168308.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Exposure Software Blow Up 3 v3.1.4.276 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168306.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ TG Pro (Temperature Gauge Pro) 2.85 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168295.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ AnyGo 5.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168290.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Jettison 1.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168288.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Live Wallpaper & Themes 4K Pro 14.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168267.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ System Dashboard Pro 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168215.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ CADintosh X 8.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168178.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ MediaHuman Youtube Downloader 3.9.9.29 (build 0412) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168158.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Scapple 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168157.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Sensei 1.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168152.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Multitouch 1.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168087.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ OmniFocus Pro 3.15.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168084.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ FSNotes 4 v4.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168064.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Privatus 6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168059.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Wirecast 16.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168054.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Dark City 8: Kyiv / Мрачный город 8: Киев (2023) [Ru] (1.0) Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194349.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sugar Sweet Temptation (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194246.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lost Lands 8: Sand Captivity / Затерянные земли 8: Песчаны
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193823.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Lady Mabel Mysteries: Death on Board (2025) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193470.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Criminal Archives 2: Alphabetic Murders / Криминальные архивы 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192948.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Myth or Reality 2: Mystery of the Lake (2023) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192636.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dark City 7: International Intrigue / Мрачный город 7: Междун�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191968.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Royal Romances: Battle of the Woods (2022) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191586.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Unsolved Case 4: Above the Law (2023) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190474.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Reflections of Life 11: Spindle of Fate (2022) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189692.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ New York Mysteries 5: Power of Art / Загадки Нью-Йорка 5: Сил�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189638.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Immortal Love 9: True Treasure / Бессмертная любовь 9: Наст
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189294.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Unsolved Case: Fatal Clue (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187747.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Reflections of Life 11: Spindle of Fate / Отражения жизни 11: Ве
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187731.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Twin Mind 4: Nobody's Here (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187475.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Myth or Reality 2: Mystery of the Lake / Мифы или реальность 2:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186545.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Knight Cats: Leaves on the Road / Коты-рыцари: Листья на до�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186537.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Knight Cats 2: Waves on the Water (2023) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186390.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Mystery Case Files 22: Crossfade (2020) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186041.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Pride and Prejudice. Blood Ties / Гордость и предубеждение
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185899.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Dark City 5: Budapest / Мрачный город 5: Будапешт (2020) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185880.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Detectives United 6: Beyond Time / Союз детективов 6: Вне вр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185179.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Royal Romances: Battle of the Woods / Королевские романы: Би�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185033.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Hidden Object Secrets: Family Revenge (2023) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184533.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Mystery Case Files 24: The Last Resort (2022) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183619.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Christmas Wonderland 13 (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181618.jpg" />
 </div>
 
 

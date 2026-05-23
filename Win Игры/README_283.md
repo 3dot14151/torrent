@@ -1,29 +1,3 @@
-###  Публикация: 1260795   (308962) от 08.11.2018
-
-Police Helicopter Simulator (2018) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Police Helicopter Simulator — симулятор, в котором у вас теперь есть возможность испытать повседневную жизнь вертолетного полицейского подразделения. Главная задача заключается в воздушном наблюдении за безопасной обстановкой вверенном вам округе. Большой и реалистичный игровой мир обеспечивает захватывающее действие и днем и ночью. В симуляторе полицейского вертолета (   Читать дальше...   )Тип издания: LicenseРазработчик: VIS-GamesЖанр: Simulator, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCA8E82CD54D58FFF180C76B94D437F3BD103ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260785   (308826) от 08.11.2018
 
 Steel Rats (2018) [Ru/Multi] (1.0/dlc) Repack xatab
@@ -32,7 +6,7 @@ Steel Rats (2018) [Ru/Multi] (1.0/dlc) Repack xatab
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308826.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Rebel Cops (2019) [Ru/Multi] (1.1.1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308811.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Production Line (2017) [Multi] (1.81/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308786.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Darksiders: Wrath of War (2010) [Ru/En] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308290.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ AVA - Alliance of Valiant Arms (2016) [Ru] (6990.29284) License
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308182.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Drift King: Survival (2016) [Ru/En] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308174.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307951.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Curio Society. Eclipse Over Mesina (2015) [En] Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307719.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Dreadful Tales 2: The Fire Within (2019) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307323.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Nioh (2017) [Ru/Multi] (1.21.02/u2) License CODEX [patch]
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307161.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Outcast - Second Contact (2017) [Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306968.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Willy-Nilly Knight (2017) [Ru/Multi] (1.1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306965.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306935.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Thief Simulator (2018) [Ru/Multi] (1.02) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306911.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The Whispered World / Ускользающий мир (2010) [Ru/Multi] (3.2.041
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306774.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Road Rage (2017) [Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306773.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306718.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Handball 16 (2015) [Multi] (1.0.0.2) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306653.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Dread of Laughter (2018) [En] (1.0/upd4) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306537.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.0.0/dlc) License GOG [Game of the Year 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306530.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Mystery Case Files 14: Broken Hour Collector's Edition (2016) [En] (1.0) Unoffic
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306421.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Ukrainian Ninja (2014) [En/Uk] (1.0) License PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306085.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Serious Sam HD: The First Encounter / Крутой Сэм HD: Первая кр�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305972.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Trucker 2: Reboot / Перевозчик 2: Перезагрузка Колле�
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305905.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Invasion: Lost in Time / Вторжение: Затерянные во врем�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305150.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Invasion: Lost in Time / Вторжение: Затерянные во врем�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77C62C1E4114506AF045DC0E542FF0E433210C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183831   (304964) от 15.11.2017
+
+ATV Drift and Tricks (2017) [Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Устали от двухколесных «железных коней»? Тогда гонки на квадроциклах ATV Drift & Tricks — как раз для вас!  Играйте сами или с другими игроками — всего в игре 8 улетных режимов:Лига, Гонки на время, Быстрый заезд, Суперкруг, Король дороги, Золотой шлем, Игра на выживание и Охотник.Тип издания: LicenseРазработчик: Artefacts StudioЖанр: Action, Racing, 3DЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D6B788BEAB3A05886197F80CF89FC23C7DAEBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

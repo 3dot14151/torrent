@@ -6,7 +6,7 @@ LDPlayer 4.0.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963096.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ OCCT 5.5.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963088.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ USDownloader 1.3.5.9 Portable (13.02.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963083.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hard Disk Sentinel Pro 5.60 Build 11463 Final RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963054.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CleanMyPC 1.10.5.2041 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963049.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Flash Player 32.0.0.330 (Adobe Runtimes AllInOne 11.02.2020) RePack by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963040.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ MAGIX Movie Edit Pro 2020 Premium 19.0.2.58 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962981.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ MAGIX Video Pro X11 17.0.3.68 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962930.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Tor Browser Bundle 9.0.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962928.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Adobe Animate 2020 20.0.2.22168 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962920.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Windows 7 SP1 with Update [7601.24548] AIO 11in2 (x86-x64) by adguard (v20.02.12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962919.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962875.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Elcomsoft System Recovery Professional Edition 6.00.402 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962872.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Windows 10, Version 1909 with Update [18363.657] AIO 20in2 (x86-x64) by adguard 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962867.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ JetBrains WebStorm 2019.3.3 Build #WS-193.6494.34 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962861.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Windows 10 (66in2) Sergei Strelec x86/x64 1909 (build 18363.657) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962860.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Adobe Acrobat Pro DC 2020.006.20034 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962859.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Adobe Photoshop Lightroom Classic 9.2.0.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962788.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ IDrive 6.5.0.11 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962624.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Liulanqi 8.2.100.3066 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962623.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Qiyu Swordfish Browser 1.0.2.0 [En/Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962616.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ QQ Browser 9.3.6494.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962529.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ JottaCloud 3.1.44.372 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962527.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ SlimBrowser 7.00 Build 136 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962521.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ ImTOO MPEG Encoder Ultimate 5.1.37 Build 0120 / Rus / 2010
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962480.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Box Sync 4.0.7100 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962414.jpg" />
 </div>
 
 

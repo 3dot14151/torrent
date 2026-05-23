@@ -1,29 +1,3 @@
-###  Публикация: 1586336   (216435) от 26.10.2022
-
-Dark City 7: International Intrigue (2022) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение детективно-интригующей серии игр Dark City. В этот раз детектива Агату пригласили в Нью-Йорк для расследования загадочных взрывов и пожаров в городе. Все жители считают, что они связаны с мифологическим Фениксом. Но у полиции и пожарных есть свое мнение на этот счет. По найденным уликам есть предположение, что за всем этим стоят определенные люди, которые (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly Fox GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE0B6811501DCDBFAFD511CC3CCB8BD046FFEC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514106   (216418) от 03.12.2021
 
 Observer: System Redux (2021) [Ru/Multi] (7368691/dlc) License CODEX [Deluxe Edition]
@@ -32,7 +6,7 @@ Observer: System Redux (2021) [Ru/Multi] (7368691/dlc) License CODEX [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216418.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ HuniePop 2: Double Date (2021) [En] (1.1.0a) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216250.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Madness Beverage (2021) [En] (7802120) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216248.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Combat Mission Cold War (2021) [Multi] (1.02.00) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216240.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Tony Hawk's Pro Skater HD [En/Multi5] (Steam-Rip/1.0.8788.0/DLC) 2012 | R.G. И�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_216220.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ DarkHouse (2021) [Ru/En] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216196.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ Wolfstride (2021) [Ru/Multi] (1.2.1) License GOG [Golden God Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216191.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Test Drive®: Ferrari Racing Legends [En] (RePack) 2012 | R.G.Games
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216156.jpg" />
 </div>
 
 
@@ -248,7 +222,7 @@ They Always Run (2021) [Ru/Multi] (1.0.15.920) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216143.jpg" />
 </div>
 
 
@@ -274,7 +248,7 @@ LIMBO (2011) [Ru/Multi] (3.0.0.1a) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216137.jpg" />
 </div>
 
 
@@ -300,7 +274,7 @@ Tangledeep (2018) [Multi] (1.53a/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216111.jpg" />
 </div>
 
 
@@ -326,7 +300,7 @@ Aliens: Fireteam Elite (2021) [Ru/Multi] (1.0.1.90663/dlc) License CODEX [Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216053.jpg" />
 </div>
 
 
@@ -352,7 +326,7 @@ Chorus (2021) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215989.jpg" />
 </div>
 
 
@@ -378,7 +352,7 @@ Cabela's Big Game Hunter (2008) [En] (1.0) Unofficial
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215890.jpg" />
 </div>
 
 
@@ -404,7 +378,7 @@ Memoirs of Murder 2: Resorting to Revenge (2018) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215731.jpg" />
 </div>
 
 
@@ -430,7 +404,7 @@ Cabela's Outdoor Adventures (2009) [Ru/En] (1.0) Unofficial
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215707.jpg" />
 </div>
 
 
@@ -456,7 +430,7 @@ Talisman (2014) [Multi] (1.0.0.1/dlc) License PROPHET [Digital Edition]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215694.jpg" />
 </div>
 
 
@@ -482,7 +456,7 @@ Professional Lumberjack 2015 (2015) [Multi] (1.0) License PROPHET
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215681.jpg" />
 </div>
 
 
@@ -508,7 +482,7 @@ Aim Hero (2016) [Ru/En] (0.158) Portable Devint
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215532.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ Oddworld Stranger's Wrath HD (2010) [Ru/Multi] (1.5) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215417.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ House on the Hill (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215358.jpg" />
 </div>
 
 
@@ -586,7 +560,7 @@ Today Is My Birthday (2020) [Ru/En] (1.6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215319.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ Behind the Memory (2016) [En/Es] (1.1.4.1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215247.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215177.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ Christmas Stories 10: Yulemen / Рождественские истории 10: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215149.jpg" />
 </div>
 
 
@@ -675,6 +649,32 @@ Christmas Stories 10: Yulemen / Рождественские истории 10: 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BD03BCB3676BE617E8597077E76AB13AAC8705D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551535   (214969) от 27.10.2022
+
+LEMURIA (2022) [Ru/Multi] (1.2.5/dlc) License DOGE
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключенческий шутер от 3-го лица с перестрелками, диалогами и многочисленными катсценами, действие которого происходит на фоне массовых уличных беспорядков и начала смертельной эпидемии. Когда цивилизация начинает рушиться и её законы перестают действовать, все возникающие проблемы приходится решать новыми методами. Оружие, девушки, автомобили, золото, уран и пачки (   Читать дальше...   )Тип издания: LicenseРазработчик: amQuestsЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F76FB664748BE0E2FA3AA6E9649DDEB1D2AB0DAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

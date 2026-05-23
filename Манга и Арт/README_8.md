@@ -6,7 +6,7 @@ Rosario to Vampire: Season II | Розарио + Вампир II (2007) [14 то
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18189.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Platinum End | Платиновый предел (2015) [14 томов, 28 гл�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18187.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Yakusoku no Neverland | Обещанный Неверленд (2016) [20 том�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18185.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sakuranbo Syndrome - Cupid no Itazura II | Шалость купидона: Ви
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18183.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ino-Head Gargoyle | Горгулья из парка Инокасира (2012) [
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18180.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kimi no Iru Machi | A Town Where You Live | Город, в котором ты �
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17834.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Fuuka | Fuuka | Фуука (2014-2018) [20 томов, 195 глав + Экстр
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17825.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Suzuka | Suzuka | Судзука (2004-2007) [18 томов, 166 глав + Эк
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17824.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Domestic na Kanojo | Domestic Girlfriend | Домашняя девушка (2014
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17823.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Overlord | Владыка (2012) [16 томов + Экстра] [Ранобэ] [
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16851.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Arifureta Shokugyou de Sekai Saikyou | Арифурэта: Сильнейший 
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16832.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Kono Subarashii Sekai ni Shukufuku wo! | Да будет благословен 
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16218.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | До�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15187.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu | How NOT to Summon a Demon Lord 
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14818.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Takopi no Genzai | Takopi's Original Sin | Первородный грех Та�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9550.jpg" />
 </div>
 
 

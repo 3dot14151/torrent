@@ -1,29 +1,3 @@
-###  Публикация: 1851140   (1054749) от 31.01.2026
-
-Eduson Academy, Eduson Academy | Soft skills для руководителя (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Курс для тех, кто хочет быть гибким руководителем, легко адаптироваться к изменениям, быстро решать конфликты и выстраивать коммуникацию с командой, давать ценную обратную связь и мотивировать каждого сотрудника на выдающиеся результаты.Производство: Eduson AcademyЖанр: видеокурс, обучающий курс, бизнесЯзык озвучки: русскийПродолжительность: 30:56:10Реклама: наложение на видео и в презентации (плашка спонсора и QR-код)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99938D0FD626DCDDD24A412B7FA90415A147483D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851026   (1054731) от 31.01.2026
 
 А1 Потолок | Натяжные потолки (2024) WEB-DL [RU]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054731.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054518.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054492.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054176.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054088.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ ProFinansy, Ольга Гогаладзе | Золотой курс (2025) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054087.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054085.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053886.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053885.jpg" />
 </div>
 
 
@@ -261,32 +235,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849597   (1053884) от 25.01.2026
-
-Web Dev Simplified | tRPC (2024) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-tRPC - это потрясающая библиотека, которая значительно упрощает взаимодействие между вашим клиентом и сервером. Лучшая часть tRPC - это то, как она обеспечивает безопасность типов для вашего API и взаимодействия с клиентом, чего я никогда раньше не видел (особенно так хорошо). В этом видео я рассказываю обо всем, что вам нужно знать о tRPC.Производство: Web Dev SimplifiedЖанр: ВидеокурсЯзык озвучки: Английский, РусскийПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D5F2DE8A96D996139A05E7837249F2DD4C3C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849541   (1053882) от 25.01.2026
 
 karpov.courses, Евгений Ермаков и др. | Инженер данных с нуля (2025) WEB-DL [Базы данных и СУБД, SQL, PostgreSQL, ClickHouse, AirFlow, DWH, Python, PySpark, Git и GitHub, Bash] [RU]
@@ -295,7 +243,7 @@ karpov.courses, Евгений Ермаков и др. | Инженер данн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053882.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053790.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053674.jpg" />
 </div>
 
 
@@ -378,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053673.jpg" />
 </div>
 
 
@@ -406,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053556.jpg" />
 </div>
 
 
@@ -434,7 +382,7 @@ Golang School, Михаил Непряхин | Обучение языку Go и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053547.jpg" />
 </div>
 
 
@@ -462,7 +410,7 @@ R&D-лаборатория Devhands, Алексей Рыбак | Системн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053546.jpg" />
 </div>
 
 
@@ -490,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053539.jpg" />
 </div>
 
 
@@ -516,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053520.jpg" />
 </div>
 
 
@@ -545,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053519.jpg" />
 </div>
 
 
@@ -573,7 +521,7 @@ OTUS, Кирилл Федченко, Павел Ершов, Сергей Пот�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053429.jpg" />
 </div>
 
 
@@ -601,7 +549,7 @@ Udemy, Stephen Grider | Redis: полное руководство разраб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052824.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ Mindvalley, Джон Бутчер, Мисси Бутчер | Книга жизн
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052177.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ The Great Courses, Стивен Новелла | Игры разума: Науч
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052103.jpg" />
 </div>
 
 
@@ -684,7 +632,7 @@ OTUS, Артем Бражников и др. | Электроника и эле�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052102.jpg" />
 </div>
 
 
@@ -695,6 +643,61 @@ OTUS, Артем Бражников и др. | Электроника и эле�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1813F6866832584E573597EB3C8880DFC86C1E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847335   (1052058) от 12.01.2026
+
+Marker School, Анастасия Агеева | Базовый курс графики. Основы (2024) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052058.jpg" />
+</div>
+
+
+###  Подробнее
+
+На курсе вы откроете для себя удивительный мир графики, погрузитесь в атмосферу контрастов, штрихов и линий. С нами вы узнаете, как перенести на бумагу пейзажи, архитектурные элементы, деревья и многие другие объекты. Начнём с основ — мастерства штриховки и завершим созданием полноценного изображения маяка. Больше не будем опасаться белого листа, научимся выражать (   Читать дальше...   )Производство: Marker SchoolЖанр: видеокурс, обучающий курс, графика, дизайн, рисованиеЯзык озвучки: русскийПродолжительность: 10:12:21Реклама: наложение на видео и в презентации (плашка спонсоров и QR-код)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44865E4C382BF793C11D7AD54CF0C29AAD3F80F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846926   (1052014) от 10.01.2026
+
+Богдан Кухар | Администратор 1С v 4.1 [все модули] (2025) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путь от новичка и до эксперта Администратора 1С! Узнаете лучшие приемы по качественному обслуживанию, администрированию, настройке, установке,1С Предприятия и сопутствующего программного обеспечения. Престижная профессия в шаге от Вас! Действуйте!
+Вам нужен курс если:
+Вы хотите быстро освоить профессию Администратор 1С!
+Желаете больше узнать о технической стороне (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 54:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D16E9C81832CE5F41AC9D8712CA743322993BE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

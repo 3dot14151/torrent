@@ -1,58 +1,3 @@
-###  Публикация: 1870097   (1069152) от 
-
-Jessica Simpson - In This Skin (2003) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Pop, Ballad, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Sweetest Sin [0:03:13.08]
-02. With You [0:03:12.07]
-03. My Way Home [0:03:13.03]
-04. I Have Loved You [0:04:45.47](   Читать дальше...   )Жанр: Pop, Ballad, VocalПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926D2376E6040724855CA8434CF1502A1DAADAD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870404   (1069151) от 
-
-Vivaldi 7.9.3970.64 include standalone [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88AA08C43C0795CFC573C369A8DF194A2AA980A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870417   (1069150) от 
 
 Без крыши, вне закона / Sans toit ni loi / Vagabond (1985) BDRip [H.264]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069150.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069149.jpg" />
 </div>
 
 
@@ -114,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069148.jpg" />
 </div>
 
 
@@ -140,7 +85,7 @@ Anita Nordheim Blues n’ Groove Company - Turn The Page (2026) [FLAC 24/48|Loss
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069147.jpg" />
 </div>
 
 
@@ -169,7 +114,7 @@ IsoBuster Pro 5.8 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069146.jpg" />
 </div>
 
 
@@ -195,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069145.jpg" />
 </div>
 
 
@@ -221,7 +166,7 @@ Bjorn Berge - Morphine (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069144.jpg" />
 </div>
 
 
@@ -250,7 +195,7 @@ AK & The Red Kites - Hotter Than The Sun (2026) [FLAC 24/48|Lossless|WEB-DL|trac
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069143.jpg" />
 </div>
 
 
@@ -279,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069142.jpg" />
 </div>
 
 
@@ -305,7 +250,7 @@ Drivin' N' Cryin' - Crushing Flowers (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069141.jpg" />
 </div>
 
 
@@ -334,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069140.jpg" />
 </div>
 
 
@@ -360,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069139.jpg" />
 </div>
 
 
@@ -386,7 +331,7 @@ Earl Guitar Williams - The Soul King of Bessemer, AL (2026) [FLAC 24/96|Lossless
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069138.jpg" />
 </div>
 
 
@@ -415,7 +360,7 @@ The Journal 8.0.0.1347 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069137.jpg" />
 </div>
 
 
@@ -441,7 +386,7 @@ Emma Donovan - Take Me To The River (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069136.jpg" />
 </div>
 
 
@@ -470,7 +415,7 @@ True Crime: New York City (2006) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069135.jpg" />
 </div>
 
 
@@ -496,7 +441,7 @@ Hillbilly Vegas - A LA MODE (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069134.jpg" />
 </div>
 
 
@@ -525,7 +470,7 @@ True Crime: Dilogy (2004-2006) [En] (1.0/1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069133.jpg" />
 </div>
 
 
@@ -551,7 +496,7 @@ Karen Dahlstrom - Love These Days (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069132.jpg" />
 </div>
 
 
@@ -580,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069131.jpg" />
 </div>
 
 
@@ -606,7 +551,7 @@ Mike Zito - Outside Or The Eastside (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069130.jpg" />
 </div>
 
 
@@ -635,7 +580,7 @@ Nick Dittmeier, The Sawdusters - Apparition (2026) [FLAC 24/48|Lossless|WEB-DL|t
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069129.jpg" />
 </div>
 
 
@@ -664,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069128.jpg" />
 </div>
 
 
@@ -690,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069127.jpg" />
 </div>
 
 
@@ -701,6 +646,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6103876284A7F2C9B3D62447799F31F6FACDF03B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870454   (1069126) от 
+
+State of Flux - Stasis (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Identity Crisis (01:46)
+ 02. In Flux (07:12)
+ 03. Fabric Torn (07:12)
+ 04. Behind the Veil (07:14)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B9B8D7FED2EAF4165CE99ECBF422EA27A6DC66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870437   (1069125) от 
+
+Приключения Робин Гуда / The Adventures of Robin Hood (1938) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока король Ричард Львиное Сердце находится в крестовом походе, его брат принц Джон захватывает трон и начинает обирать собственный народ. Сэр Робин Локсли восстает против вероломного узурпатора и селится в Шервудском лесу. Заручившись поддержкой своих верных приспешников, он начинает грабить богатеев под сенью крон и раздавать их деньги беднякам.Производство: США / Warner Bros.Жанр: боевик, мелодрама, приключенияРежиссер: Майкл Кёртиц, Уильям КилиАктеры: Эррол Флинн, Оливия Де Хэвилленд, Бэзил Рэтбоун, Клод Рейнс, Патрик Ноулз, Юджин Пэллет, Алан Хейл, Мелвилл Купер, Иэн Хантер, Уна О’КоннорПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские (PGS), английские (PGS)Продолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69087F4B927A0C159160336479DA74750A984648
 ```
 
 https://mybot314.ru/tekegram_catalog/

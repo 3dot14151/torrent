@@ -1,29 +1,3 @@
-###  Публикация: 1368753   (790577) от 03.06.2020
-
-Ancestors Legacy (2018) [Ru/Multi] (64685/dlc) Repack xatab
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ancestors Legacy – это историческая стратегия в реальном времени, реконструирующая кровавые битвы средневековой Европы. В игре вам предстоит командовать отрядами, возводить поселения и захватывать вражеские территории.Тип издания: RepackРазработчик: Destructive CreationsЖанр: Strategy (RTS), ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6944ACB2A69E9883FA96E8AC0E8DBD4D6D6B816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275442   (790310) от 11.01.2019
 
 Decay: The Mare (2015) [Ru/Multi] (1.1.1) Repack Other s [Chapter 1-3]
@@ -32,7 +6,7 @@ Decay: The Mare (2015) [Ru/Multi] (1.1.1) Repack Other s [Chapter 1-3]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790310.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79/dlc) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790290.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Betrayer (2014) [Ru/Multi] (1.9.68.44) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790289.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Christmas Stories 10: Yulemen (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790270.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dead Rising (2016) [Ru/En] (1.0.0.1) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790245.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ STAR OCEAN - THE LAST HOPE - 4K & Full HD Remaster (2017) [Multi] (1.0) License 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790238.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790190.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790140.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Chimeras 11: Cherished Serpent (2020) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790061.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/Multi] (1.9.446/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789692.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Legacy 2: Prisoner / Наследие 2: Пленник (2018) [Ru] (1.0) Un
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789412.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Punished Talents 3: Dark Knowledge / Наказанные талантом 3: Т
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789382.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Rusty Lake Hotel (2016) [Ru] (1.0) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789347.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Mystery Case Files 18: The Countess / За семью печатями 18: Гр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789333.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ My Memory of Us (2018) [Ru/Multi] (1.3057) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789253.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ ReDrawn: The Painted Tower / Спасенная: Нарисованная баш
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789204.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Demon Turf (2021) [En] (1.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789176.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Pronty: Fishy Adventure (2021) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789170.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ UNDEMON (2021) [Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789167.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ American Hero (2021) [En] (0.0.30) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789146.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Gunfire Reborn (2021) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789139.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Hidden Expedition 14: The Pearl of Discord / Секретная экспедиц
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789016.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dark Parables 15: The Match Girls Lost Paradise / Темные Притчи 15: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788960.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ UAYEB (2018) [En] (3.8.13) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788889.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Darksiders (2016) [Ru/Multi] (1.0.2679) Repack R.G. Механики [Warmastere
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788882.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Darksiders (2016) [Ru/Multi] (1.0.2679) Repack R.G. Механики [Warmastere
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07E3162023E387D94278B494A763E6EDFEC74508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276049   (788852) от 14.01.2019
+
+Catherine Classic (2019) [Multi] (1.0.1151) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познайте все прелести и ужасы любви вместе с Винсентом, который оказался перед нелёгким выбором: жениться на своей давней подруге Катерине или переехать к отпадной блондинке, в чьей постели он только что проснулся — и которую зовут Катриной! Но берегитесь! Одно неверное решение может стоить вам жизни. Этот уникальный гибрид приключенческого боевика и головоломки (   Читать дальше...   )Тип издания: LicenseРазработчик: ATLUSЖанр: Adventure, Novel, Action, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E62204E76EFC58F9ECCD5E65F32139C0FACB91
 ```
 
 https://mybot314.ru/tekegram_catalog/

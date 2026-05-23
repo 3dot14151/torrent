@@ -1,29 +1,3 @@
-###  Публикация: 1796366   (18748) от 10.05.2025
-
-Spirit of the North 2 (2025) [Ru/Multi] (12765) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Откройте тайны прекрасного древнего мира в этом захватывающем приключении от третьего лица, продолжении признанной игроками приключенческой игры Spirit of the North. Присоединитесь к одинокой лисе и её спутнику-ворону, которые пытаются найти утерянных стражей и вернуться домой.Тип издания: RepackРазработчик: Infuse StudioЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F38A0210B0015F7EBEC4223904D4765851DE42E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796404   (18735) от 10.05.2025
 
 Mirror of Heaven (2023) [Ru/Multi] (1.41/dlc) Repack FitGirl
@@ -32,7 +6,7 @@ Mirror of Heaven (2023) [Ru/Multi] (1.41/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18735.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Ultimate Fishing Simulator 2 (2022) [Ru/Multi] (1.25.05.09.3975) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18731.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Deck of Haunts (2025) [Ru/Multi] (1.01) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18729.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.85) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18728.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Forgive Me Father (2021) [Ru/Multi] (1.4.1) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18704.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Unavowed (2018) [En] (2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18693.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе (2011) [Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18691.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Doom 3: BFG Edition (2012) [Ru/En] (1.14 20230201) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18688.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18682.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Hotel Owner Simulator (2025) [Ru/Multi] (1.0.5.5) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18681.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Ultimate Fishing Simulator 2 (2022) [Ru/Multi] (1.25.05.09.3975) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18680.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18678.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Oil Refinery - The Simulation (2025) [Ru/Multi] (1.1.5) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18677.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Cash Cleaner Simulator (2025) [Ru/Multi] (1.0.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18670.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Laundry & Supermarket Simulator / Laundry Simulator: PowerWash It! (2025) [Ru/Mu
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18658.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Hunter’s Journey: Tears of the Lake (2025) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18634.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Liquor Store Simulator (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18624.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.102/dlc) Repack FitGirl [Digital Col
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18588.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Builders of Greece (2024) [Ru/Multi] (1.0.0 build 18361871) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18570.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Scene Rune [En
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18568.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Codename: Ocean Keeper / Ocean Keeper: Dome Survival (2024) [Ru/Multi] (1.0) Rep
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18566.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Tank Squad (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18565.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834) Repack seleZen [Deluxe Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18545.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Tales of Kenzera: ZAU (2024) [Ru/Multi] (1.5.0.45551) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18543.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18540.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D008C6BC13D651ABD5F8226E3322514A4B052BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796721   (18534) от 12.05.2025
+
+Rising Star 2 (2020) [Ru/Multi] (2.98.354/dlc) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rising Star 2 - ролевая игра в сочетании с симулятором рок-группы. У вас есть одна глобальная цель - добиться мирового успеха. Чтобы достичь признания, необходимо много трудиться. Если это вам по силе, тогда начните с создания своей команды. После последует череда репетиций, игра по местным клубам, налаживание первых связей и т.д. Вы можете присоединиться уже к сформированному (   Читать дальше...   )Тип издания: RepackРазработчик: GilligamesЖанр: Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Японский, Корейский и другиеЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A351E5FA5A79BC506151217945FDA3D161BCBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

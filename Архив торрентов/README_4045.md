@@ -6,7 +6,7 @@ Clip Studio Paint EX 2.2.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184330.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Extreme Picture Finder 3.63.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184329.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Boinx FotoMagico Pro 5 v5.6.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184316.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Mastering The Mix Collection 2022.11 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184306.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Wirecast Pro 14.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184302.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (2011) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184296.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ reaConverter Pro 7.610 Repack & Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184294.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Foxit PDF Editor Pro 2023.2.0.21408 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184291.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Ocenaudio 3.9.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184286.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ NewFileTime 6.77 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184281.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Nox App Player 7.0.5.9000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184277.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Sublime Text 4.0 Dev build 4093 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184271.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ FEDUK - ЙАЙ (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184267.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ IK Multimedia - TONEX MAX 1.0.3 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184257.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ AusLogics Disk Defrag Ultimate 4.12.0.4 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184231.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Advanced Uninstaller PRO 13.23.0.52 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184228.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Google Earth Pro 7.3.6.9285 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184211.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ John’s Background Switcher 5.2.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184201.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Google Earth Pro 7.3.6.9264 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184200.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ PotPlayer 230905 (1.7.21999) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184196.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184185.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Windows 11 (v22h2) x64 HSL/PRO by KulHunter v6 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_184181.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Opera 72.0.3815.400 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184175.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ AOMEI Backupper Technician Plus 7.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184162.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Calibre 5.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184159.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Athentech Perfectly Clear Complete 3.11.1.1892 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184152.jpg" />
 </div>
 
 

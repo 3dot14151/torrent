@@ -6,7 +6,7 @@ VA - 50 Sleep Better: Relaxing Beach Ocean Waves (2017) [MP3|320 Kbps] <Downtemp
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844960.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sam "The Man" Taylor & His Orchestra - Sam "The Man" Taylor In Japan (1961) LP, 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844917.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ernesto Cortazar - 3 альбома (2011 - 2012) [FLAC|Lossless|tracks] <New Ag
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844826.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_844668.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Raphael - Music for Love (2008) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844432.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - No Stress Music Playlist 3: Pure New Age & Chillout Relax (2017) [MP3|320 K
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843288.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Yoga Balance: Asian Traditional Music for Meditation, Yoga Pilates, Relaxed
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843188.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dan Gibson's & Donald Quan - Asian Spa (2004) [FLAC|Lossless|tracks + .cue] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843110.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842302.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Simply Anti Stress /4CD/ (2010) [FLAC|Lossless]<New age, Chillout, Nature s
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842009.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Sacred Earth - Breathing Space (2014) [FLAC|Lossless|tracks] <New Age, Relax, Me
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841702.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Alice Gomez - Sleep Cycles of the Native American Flute (Over an Hour of Soothin
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841687.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Hans Zimmer and Junkie XL - Batman v Superman: Dawn Of Justice (2016) 2CD, Delux
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841586.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Armik - Romantic Spanish Guitar Vol. 1,2,3 (2014-2016) [MP3|320 кб/с] <Instru
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841364.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Nicholas Gunn - Pacific Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840692.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Alan Howarth - The Dentist 1-2 / Дантист 1-2 (1996, 1998) [MP3|320 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840196.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Diane Arkenstone - Jewel in the Sun (2002) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839206.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Bridget McMahon - Celtic Woman - Black Is the Colour (2016) Single [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838525.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Harry Manfredini - House & House II: The Second Story / Дом & Дом 2: Пр�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838395.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - 50 Healing Music. Deep Relaxation Therapy: Sleep Easy, Soothing Massage, Mu
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838320.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Adventure Cargo (Diane & David Arkenstone) - African Skies (2003) [FLAC|Lossless
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837551.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Chrystalia Ensemble - Angels Of Healing (2000) [FLAC|Lossless]<New age, Relax>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837467.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Jesper Kyd - Assassin's Creed: Brotherhood OST (2010) [MP3|320 kbps]<Game OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837304.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ The Chemical Brothers - Hanna (OST) (2011) [MP3|320 kbps]<Techno, Big-Beat>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837216.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Frederic Talgorn - Крепость / Fortress (1992) 1993 [MP3|320 кб/с] <Sc
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836890.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Richard Band - Troll / Тролль (1986) [MP3|320 кб/с] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836786.jpg" />
 </div>
 
 

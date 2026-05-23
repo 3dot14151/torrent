@@ -6,7 +6,7 @@ ESET Online Scanner 3.3.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786675.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ simplewall 3.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786671.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wallpaper Engine 1.2.41 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786668.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VirtualBox 6.1.10 Build 138449 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786658.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Topaz DeNoise AI 2.2.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786657.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Maxon CINEMA 4D Studio S22.114 build RB315510 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786648.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ IP-TV Player 50.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786633.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ OEM Info Updater 9.2 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786632.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ JRiver Media Center 26.0.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786576.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ RegScanner 2.51 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786574.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Eraser 6.2.0.2988 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786555.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Free Download Manager 6.10.0.3016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786553.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Aiseesoft Blu-ray Player 6.6.28 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786552.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ GridinSoft Anti-Malware 4.1.47.4953 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786548.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ EMCO Network Software Scanner 2.0.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786528.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ BELOFF [dp] 2020.05.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786524.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ MInstAll v.02.06.2020 By Andreyonohov & Leha342 (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786485.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ PanoramaStudio Pro 3.1.0.229 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786477.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ UltimateDefrag 5.0.16.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786447.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Adobe Premiere Pro CC 2017.0.2 11.0.2.47 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786444.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ CyberLink PowerDVD Ultra 17.0.1523.60 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786441.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ AIMP 4.13 Build 1893 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786434.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ USDownloader 1.3.5.9 Portable (08.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786367.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ SQL Dynamite 2.1.2.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786361.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VueScan Pro 9.5.73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786279.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ foobar2000 1.3.15 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786277.jpg" />
 </div>
 
 

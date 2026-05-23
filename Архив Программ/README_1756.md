@@ -6,7 +6,7 @@ BricsCAD Ultimate 23.2.06 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197161.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Drive Image System Recovery Media Creator 7.1 Build 7108 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197149.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ OpenVPN 2.6.5 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197141.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Phase One Capture One 23 Enterprise 16.2.2.1406 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197137.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Piriform Recuva 1.53.2096 All Editions RePack (& Portable) by Dodakaedr [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197116.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ uTorrent Pack 1.2.3.70 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197098.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ CCleaner 6.13.10517 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197096.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197094.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Start11 Version 1.45 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197092.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ ZWCAD 2024 SP0 Professional [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197083.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Microsoft Visual Studio 2022 Enterprise 17.6.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197077.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197059.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ PDF-XChange Editor Plus 10.0.0.370 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197055.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Bandicam 6.2.2.2072 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197053.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Internet Download Manager 6.41 Build 15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197051.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ AIMP 5.11 Build 2432 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197047.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Modern Tweaker 1.8 Final Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197041.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ PortableApps.com Platform 26.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197040.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Windows 10 Manager 3.8.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197038.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ ZD Soft Screen Recorder 11.6.5.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197037.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Windows 10 22H2 x64 Rus by OneSmiLe [19045.3086]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197035.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ AVS Media Player 5.6.1.154 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197032.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Aiseesoft Data Recovery 1.6.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197028.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ f.lux v4.124 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197026.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Topaz Video AI 3.3.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197020.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Windows 11 22H2 x64 Rus by OneSmiLe [22621.1848] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197017.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Windows 7 (6in1) x86-x64 by Updated Edition (14.06.2023) [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196956.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Windows 7 SP1 5in1 (x64) Elgujakviso Edition (v.05.07.23) [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196070.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Windows 7 SP1 X64 Ultimate 3in1 October 2022 by Generation2 [Multi/Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191460.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Windows 7 SP1 4in1 x64 (build 6.1.7601.26221) by ivandubskoj 12.11.2022 [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188929.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Windows 7 SP1 7601.27974 x64 3in1 by OneSmiLe [15.10.2025] [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136947.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy 12.2023 1DVD
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126158.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Windows 7 SP1 26in1 (x86/x64) by Eagle123 (01.2024) [Ru/En]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120743.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy 06.2024 1DVD
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53167.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Windows 7 SP1 with Update [7601.27170] AIO 44in2 (x86-x64) by adguard (v24.06.11
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52548.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Windows 7 SP1 x64 (2xISO) 11.07.2024 by Updated Edition [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50407.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 08.2024 by OVGorskiy 1DVD
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45941.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Windows 7 SP1 7601.27929 x64 3in1 by OneSmiLe [10.09.2025] [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3518.jpg" />
 </div>
 
 

@@ -1,81 +1,3 @@
-###  Публикация: 1030441   (674417) от 30.06.2016
-
-Жиль Перро | Красная капелла. Суперсеть ГРУ-НКВД в тылу III рейха (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вниманию слушателей предлагается всемирно известный роман французского писателя Жиля Перро "Красная капелла", в основу сюжета которого положена деятельность советской разведывательной суперсети в годы Второй мировой войны на территории Третьего рейха. Героическая борьба резидентов ГРУ и НКВД, их смертельный поединок с гестаповской «зондеркомандой» показаны (   Читать дальше...   )Жанр: Мемуары о войнеПродолжительность: 17:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52CB4C04FEE6D98C485E3C095A247CE90DD2B22E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030287   (674413) от 30.06.2016
-
-Глеб Алексеев | Подземная Москва (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роман Глеба Алексеева "Подземная Москва" издавался один-единственный раз - в 1925 году. Эта книга представляет собой большую библиографическую редкость, сохранились лишь единичные ее экземпляры, чему способствовало и то, что автор в 1938 году стал жертвой сталинских репрессий. Современному читателю роман Глеба Алексеева совершенно неизвестен, но он достоин (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 04:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E163635C2B37B41B5BBC5E4A3EAAAEDB47422D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536472   (674317) от 12.03.2022
-
-Андрей Земляной | Орден Красной Звезды (Книга 2). Шаг вверх (2022) [MP3, Олег Шубин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В этом мире погиб Хрущев и жив Сталин. Но все так же мировой финансовый интернационал хочет перекроить мир под себя. И уничтожить всех, кто этому мешает. А значит, Александр Мечников не только займется одеждой, но и сколотит отличный гроб для противников советской власти.Жанр: Альтернативная история, ПопаданцыПродолжительность: 09:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594AD2D0385B9B882193BC21739A9AC889499528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509351   (673774) от 12.06.2012
 
 Александр Чубарьян | Хакеры 2. Паутина (Проект "Этногенез") [2012] [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673774.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673579.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673418.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673303.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673295.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673269.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673219.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673149.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673138.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_673066.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_673039.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_673013.jpg" />
 </div>
 
 
@@ -401,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_673006.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_673002.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672967.jpg" />
 </div>
 
 
@@ -480,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672860.jpg" />
 </div>
 
 
@@ -508,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672791.jpg" />
 </div>
 
 
@@ -536,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672789.jpg" />
 </div>
 
 
@@ -562,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672647.jpg" />
 </div>
 
 
@@ -588,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672558.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672548.jpg" />
 </div>
 
 
@@ -641,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672453.jpg" />
 </div>
 
 
@@ -667,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672447.jpg" />
 </div>
 
 
@@ -678,6 +600,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C4A5012B2944AA9AE5CBFE43D38657DA65B1EE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509971   (672399) от 13.06.2012
+
+Джек Вэнс | Последний Замок [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди, наслаждаясь плодами многих веков прогресса, окружили себя роскошью. Одна из составляющих этой роскоши - слуги, искусственно выведенные на базе специально подобранных внеземных существ. И эти слуги внезапно и непостижимо взбунтовались против своих хозяев. Смогут ли изнеженные и погрязшие в абстракциях и увеселениях обитатели замков противостоять суровой реальности?
+Удивительно, как великому маэстро удалось уместить многогранность на удивление проработанного и самобытного мира, увлекательные приключения и глубокомысленные философские беседы в столь тоненькой книжке, не забыв приправить ее парой щепоток своего фирменного юмора. С другой стороны, не спроста же он был награжден за нее аж двумя престижнейшими литературными премиями.Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530A6AFAE15221025EF496BC3D57787335D4C848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030435   (672284) от 01.07.2016
+
+Аше Гарридо | Видимо-невидимо (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аше Гарридо создал мир, в котором отворяется закрытое и проявляется невидимое. «Видимо-невидимо» – зримая магия мира, который никогда не заканчивается и начинается вот сейчас. Дойти до конца, чтобы вернуться к началу… Торопись, пока открыто.
+Страну Семиозерье населяет множество персонажей, обладающих различными магическими знаниями и умениями, некоторые из которых (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 13:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5713AE31DD6495AAA077BF1C4E58FCEF7BF25B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289133   (672145) от 23.03.2019
+
+Дана Арнаутова и др. | Литературный аудиопроект «Глубина» [выпуск 13] (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672145.jpg" />
+</div>
+
+
+###  Подробнее
+
+ГЛУБИНА - это литературный аудиопроект творческого объединения независимых чтецов, любящих и умеющих делать своё дело – рассказывать увлекательные истории. Если вы готовы погрузиться ниже ватер-линии обыденной реальности в чарующий океан захватывающей прозы, то нам с вами по пути!
+________________________________________Жанр: Рассказы, разноеПродолжительность: 06:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234CFAF28E6B1603A6B41CCFB9FB352D3BE14183
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,83 +1,3 @@
-###  Публикация: 1691392   (123253) от 12.01.2024
-
-Себастьян Жапризо | Обречённое начало (2014) [MP3, Оксана Санькова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Поклонники Жапризо наверняка удивятся простоте и безыскусности стиля этого романа. Дело в том, что «Обреченное начало» — первое произведение знаменитого автора «Купе смертников», «Ловушки для Золушки» и других книг, принесших Жапризо всемирную популярность. Признанный мастер детективного жанра написал свой дебютный роман в семнадцать лет, и это был роман о любви (   Читать дальше...   )Жанр: Зарубежная литература, детективный романИздательство: Нигде не купишьПродолжительность: 05:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E30D6394601C3693D5CC802997D4FD78290267D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691369   (123251) от 12.01.2024
-
-Кэтрин Ллойд | Мисс Мортон и убийство на званом вечере (2023) [MP3, Юлия Яблонская]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Быть дочерью покойного графа в Англии на самой заре викторианской эпохи, да еще и без гроша в кармане – непросто. Но мисс Кэролайн Мортон не из тех, кто сдается. Отказываясь называться леди, она устраивается компаньонкой к богатой вдове.
-Тем временем ее тетя, леди Элинор Гринвуд, приглашает племянницу на званый ужин в честь своей дочери. Но в поместье Гринвудов не (   Читать дальше...   )Жанр: ДетективИздательство: Дом Историй, ООО "Эвербук"Продолжительность: 09:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F065925E70786003E7530FD9EF2CFEDC45918B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691386   (123245) от 12.01.2024
-
-Себастьян Жапризо | Дама в очках и с ружьём в автомобиле (2017) [MP3, Владимир Сушков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В этом романе Жапризо в свойственной ему манере переосмысливает классический «роман дороги», в котором герой отправляется в путешествие, сулящее ему множество встреч с новыми людьми.
-Дани Лонго, героиню Жапризо, на каждом шагу подстерегают опасности двоякого свойства – как внешнего, так и внутреннего, таящиеся в ней самой. Оказавшись жертвой непонятной ей интриги, (   Читать дальше...   )Жанр: Зарубежная литература, детективный романИздательство: Нигде не купишьПродолжительность: 10:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDCE5B179139F65B579E54F8411F44CED9D8E35A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 428073   (123212) от 13.01.2024
 
 И.С. Шмелёв | Старый Валаам (2010) [MP3, Георгий Корольчук]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123212.jpg" />
 </div>
 
 
@@ -114,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123195.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123181.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123170.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123155.jpg" />
 </div>
 
 
@@ -220,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123152.jpg" />
 </div>
 
 
@@ -248,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123141.jpg" />
 </div>
 
 
@@ -274,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123124.jpg" />
 </div>
 
 
@@ -302,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123109.jpg" />
 </div>
 
 
@@ -330,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123081.jpg" />
 </div>
 
 
@@ -356,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123068.jpg" />
 </div>
 
 
@@ -384,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123065.jpg" />
 </div>
 
 
@@ -412,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123063.jpg" />
 </div>
 
 
@@ -439,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123058.jpg" />
 </div>
 
 
@@ -467,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123004.jpg" />
 </div>
 
 
@@ -494,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123000.jpg" />
 </div>
 
 
@@ -522,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122998.jpg" />
 </div>
 
 
@@ -548,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122994.jpg" />
 </div>
 
 
@@ -576,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122990.jpg" />
 </div>
 
 
@@ -602,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122988.jpg" />
 </div>
 
 
@@ -630,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122986.jpg" />
 </div>
 
 
@@ -658,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122971.jpg" />
 </div>
 
 
@@ -684,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122967.jpg" />
 </div>
 
 
@@ -697,6 +617,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7F2CB2BE0E32DB250EC4E1B584AF48731F90E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 348980   (122965) от 14.01.2024
+
+Иван Бунин | Воспоминания (2007) [MP3, Олег Фёдоров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт. В 1933 году стал первым русским лауреатом Нобелевской премии по литературе – «за правдивый артистический талант, с которым он воссоздал в прозе типичный русский характер», но уже в эмиграции.
+До эмиграции Бунин был знаком со многими известными писателями (   Читать дальше...   )Жанр: Русская литература, классика, проза, мемуарыИздательство: Вира-МПродолжительность: 09:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:135A05DF8222CE905D14837D3EA0A0D1EEFEEE27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 347052   (122962) от 14.01.2024
+
+Иван Бунин | Божье дерево. Сборник рассказов (2008) [MP3, Алексей Петренко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Алексеевич Бунин (1870-1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт. В 1933 году стал первым русским лауреатом Нобелевской премии по литературе – «за правдивый артистический талант, с которым он воссоздал в прозе типичный русский характер», но уже в эмиграции. В сборник «Божье древо» вошли рассказы «позднего» Бунина. Существование (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: СиДиКом, ЭксмоПродолжительность: 02:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D79B8DFE6A1456865F9E8304BE42D017069FB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692016   (122947) от 14.01.2024
+
+Дмитрий Дашко | Гвардеец (Книга 2). Лейб-гвардии майор (2024) [MP3, Сергей Кулешов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Куда вас, сударь, к черту, занесло?! А в мрачные времена «бироновщины», не дальше и не ближе! Наш соотечественник Игорь Гусаров, чьё сознание завладело телом курляндского дворянина Дитриха фон Гофена, теперь пытает счастье в лейб-гвардии царицы Анны Иоанновны.
+Времена, признаться, неспокойные: фальшивомонетчики с территории Польши грозятся подорвать экономику империи, (   Читать дальше...   )Жанр: Альтернативная история, Героическая фантастикаИздательство: ЛитРес: чтецПродолжительность: 12:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDFBC6019F0D0C88B17E1C39415528B6B556E5FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

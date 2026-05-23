@@ -6,7 +6,7 @@ Double Commander 0.6.3 beta Build 6063 M + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623527.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SRWare Iron 59.0.3100.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623520.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VLC Media Player 1.1.1 Nightly [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_623441.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Kaspersky Rescue Disk 10.0.32.17 (19.06.2015) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623424.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FxSound Enhancer 13.006 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623406.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Download Master 6.13.1.1563 RePack (&Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623404.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623403.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623392.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Ashampoo Burning Studio 10.0.3 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_623330.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ ACDSee Photo Studio Ultimate 2022 15.1.1.2922 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623311.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ doPDF 8.3 Build 933 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623298.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Novicorp WinToFlash Professional 0.9.0030 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623293.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Double Commander 0.7.8 beta build 7400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623278.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ UltraUXThemePatcher 3.2.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623274.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Take Command 21.00.33 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623270.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ PowerISO 4.8 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_623253.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ SAM CoDeC Pack 2011 3.05 Best & Player [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_623247.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623188.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Enigma Virtual Box 7.30 Build 20150619 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623186.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ FxSound Enhancer 13.006 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623179.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ WinPE 8.1 Sergei Strelec (x86) 19.06.2015 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623080.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VMware Workstation 12 Pro 12.5.7 Build 5813279 Lite RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623070.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VMware Workstation 12 Pro 12.5.7 Build 5813279 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623055.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ AI RoboForm Enterprise 7.7.9.5 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_623020.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Acronis True Image 21.6209 / Universal Restore 11.5.40028 / Disk Director 12.0.3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622989.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Ashampoo Photo Commander 10.1.2 RePack by KpoJIuK [Ru/Eng/Ukr]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_622937.jpg" />
 </div>
 
 

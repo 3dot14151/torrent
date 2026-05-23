@@ -1,29 +1,3 @@
-###  Публикация: 1713370   (60722) от 05.04.2024
-
-No Plan B (2024) [Ru/Multi] (1.0) Scene SKIDROW
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-No Plan B – это тактическая стратегия и по совместительству симулятор спецназа. В игре мультяшная графика и изометрический вид. Можно регулировать масштаб, и менять ракурс камеры. В инди-тайтле присутствует кровь. В No Plan B есть 2 фракции. Можно играть за спецназовцев или преступников. Первые занимаются спасанием заложников и обезвреживанием (или ликвидацией) бандитов, (   Читать дальше...   )Тип издания: SceneРазработчик: GFX47Жанр: Экшены, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2AD09E22D7E6171DFC3D98F5F80DF563F710D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695545   (60721) от 05.04.2024
 
 Assetto Corsa Competizione (2019) [Ru/Multi] (1.10/dlc) Scene Rune
@@ -32,7 +6,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.10/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60721.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.10/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60715.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Ancient Cities (2023) [Multi] (1.0.2.36) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60704.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60692.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Aquarist (2024) [Ru/Multi] (13870405) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60683.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Into The Flames (2023) [Ru/Multi] (2020/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60644.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Bulletstorm (2017) [Ru/Multi] (1.0upd2/dlc) Repack dixen18 [Full Clip Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60632.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Beat Slayer (2024) [Multi] (1.1.14) Repack FitGirl
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60617.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Farmer's Father: Save the Innocence (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60609.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ SteamWorld Build (2023) [Ru/Multi] (13541592/dlc) Repack FitGirl [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60590.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Go Fight Fantastic (2024) [Multi] (1.11.0001) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60584.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Project Hunt (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60579.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Withering Rooms (2024) [Multi] (1.22) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60562.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Edge of Reality 9: The Legend Of Greenbush / Край реальности 9: Л
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60536.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ War Tortoise (2024) [Ru/Multi] (10000) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60530.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Pathfinder: Gallowspire Survivors (2024) [Ru/Multi] (1.0.3719) Scene DOGE
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60503.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Scene Tenoke [Dual Edition] [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60500.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Withering Rooms (2024) [Multi] (1.22) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60490.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Sea of Stars (2023) [Ru/Multi] (1.0.48412) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60487.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Open Roads (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60481.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Ario (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60479.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Spider Fox (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60474.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Llamasoft: The Jeff Minter Story (2024) [Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60472.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Motesolo (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60462.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Hydroneer (2020) [Ru/Multi] (3.0.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60450.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Hydroneer – это симулятор добытчика золота и др�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9B36710E079C346F295D12BC0F4712461479160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714005   (60445) от 07.04.2024
+
+Handball 17 (2016) [Multi] (1464816) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Handball 17 – это возможность сыграть в профессиональный гандбол, выбрав одну из 80 реальных команд. Максимально приближенный к действительности геймплей позволит почувствовать себя настоящим игроком, частью команды. В игре можно разыгрывать красивые комбинации, использовать многоходовую тактику, наслаждаться поддержкой фанатских трибун. А все действия команды, ее (   Читать дальше...   )Тип издания: RepackРазработчик: Eko SoftwareЖанр: Спортивные игрыЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FB9B0F49694A7251780B9FE01B351A88BA6FB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

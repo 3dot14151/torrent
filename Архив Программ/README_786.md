@@ -6,7 +6,7 @@ SoftMaker Office Professional 2018 rev 931.0518 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651665.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mozilla Firefox 39.0 beta 3 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651548.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Q-Dir 6.37 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651474.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Icecream Media Converter 1.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651446.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651445.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ EagleGet 2.0.3.9 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651442.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Display Driver Uninstaller 16.0.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651370.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ant Download Manager 0.3.10 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651367.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Display Driver Uninstaller 16.0.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651364.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Icecream Slideshow Maker 1.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651359.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Icecream Screen Recorder 1.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651337.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Wise Registry Cleaner 8.61.551 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651211.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ K-Lite Codec Pack Update 11.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651202.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Auslogics Disk Defrag Free 7.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651121.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Bitdefender AntiVirus Plus 2015 18.22.0.1521 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651101.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Bitdefender Internet Security 2015 18.22.0.1521 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651096.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Classic Shell 2.0.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_651080.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Nitro Pro 10.5.1.17 RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651008.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Right Click Enhancer Professional 4.3.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651003.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ BitDefender Total Security 2015 18.22.0.1521 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650929.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Emsisoft Internet Security 10.0.0.5409 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650921.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ RuntimePack 16.7.4 Full [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650902.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ UnHackMe 8.11 Build 511 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650900.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Kill Switch 2.5.225190.192 [Русский, Английский, Китайск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_650860.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Futuremark 3DMark 06 Professional Edition 1.2.0 RePack by SPecialiST [2011, EN]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_650828.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Emsisoft Anti-Malware 10.0.0.5409 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650816.jpg" />
 </div>
 
 

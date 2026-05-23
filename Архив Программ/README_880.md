@@ -6,7 +6,7 @@ GeoGebra 6.0.703.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600137.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HDCleaner 2.027 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600132.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Google Earth Pro 7.3.0.3825 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600120.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Google Earth Pro 7.3.0.3827 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600110.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Earth Pro 7.3.0.3825 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600109.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Take Command 21.00.36  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600107.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ CPU-Z 1.80.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600104.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Google Earth Pro 7.3.0.3827 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600102.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ FileRestorePlus 3.0.6.604 RePack by AlekseyPopovv [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600080.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NetWorx 5.4.0 DC 01.07.2015 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600074.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600066.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ WebcamMax 7.9.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600063.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ TotoVPN Dialer 1.0.0.736 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600062.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Firefox Browser ESR 91.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600018.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ SamDrivers 22.04 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600007.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Google Earth Pro 7.3.0.3827 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599998.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ CCleaner 5.32.6129 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599993.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Opera 46.0.2597.46 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599992.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Adobe Acrobat Reader DC 2017.009.20058 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599990.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ CCleaner 5.32.6129 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599983.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ iTunes 12.2.0.145 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599975.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Scanitto Pro 3.6 RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599970.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599920.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Adobe Flash Player 26.0.0.137 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599877.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Adobe Flash Player 26.0.0.137 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599875.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ SIGERSHADERS XS Material Presets Studio 3.5.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599873.jpg" />
 </div>
 
 

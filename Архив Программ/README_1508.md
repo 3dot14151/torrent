@@ -6,7 +6,7 @@ CintaNotes Pro + Portable 3.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267525.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Microsoft Office 2016 Standard 16.0.4549.1000 RePack by KpoJIuK (2017.11)  [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267487.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ DMG Audio - TrackMeter 1.0.1 VST, VST3, RTAS, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267469.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Duplicate Cleaner Pro 4.1.1 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267435.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ BELOFF 2018.12 Medium [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267325.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Duplicate Cleaner Pro 4.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267277.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Rufus 3.4 (Build 1430) Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267269.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ IObit Uninstaller Pro 9.1.0.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267056.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ KeePassXC 2.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267006.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ HDCleaner 1.278 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267004.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ UC Browser 7.0.125.1629 Portable by thumbapps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_266979.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Process Lasso Pro 9.0.0.420 RePack (& Portable) by TryRooM  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_266974.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Extreme Picture Finder 3.45.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_266951.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NetLimiter Pro 4.0.55.0 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266944.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Skype 8.54.0.91-73 Portable by CrazyMax [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266937.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266908.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ GPU-Z 2.27.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266878.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Process Explorer 16.26 RePack by KLASS [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266795.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Process Monitor 3.52 RePack by KLASS [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266794.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Zoom Player MAX 14 Build 1400 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266752.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ CocCoc 76.0.110 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266729.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Auslogics Disk Defrag Professional 4.8.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266672.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ K-Lite Codec Pack 13.7.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266670.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ ACDSee Photo Studio Standard 2018 21.1 Build 791 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266669.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ WinUtilities Professional Edition 15.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266660.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266652.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Adobe After Effects 2020 17.5.1.47 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224605.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Firefox Browser ESR 102.4.0 Portable by PortableApps (x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224602.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MediaInfo 18.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224594.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Opera One 101.0.4843.33 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224589.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Sandboxie plus 1.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224588.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Glary Utilities Pro 5.196.0.225 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224582.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ NIUBI Partition Editor 8.0.2 Technician Edition RePack (& Portable) by TryRooM [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224578.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ FreeFileSync 11.27 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224560.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Macrorit Partition Expert 6.3.6 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224543.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Office 2013-2019 C2R Install + Lite 7.0.1 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224541.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Sumatra PDF 3.5.15260 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224521.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Slimjet 21.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224517.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ doPDF 11.7.352 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224494.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ ConsoleAct 2.6 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224479.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Macrorit Partition Expert 6.3.6 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224475.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ FBackup 9.8.682 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224467.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ TechSmith Camtasia 2019.0.8 Build 17484 (x64) RePack by elchupacabra + Media Con
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224446.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ GPU-Z 2.16.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224415.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ IcoFX 3.8 Business / Site / Home RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224414.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Windows 8.1 Enterprise with Update x64 Update 3 [November 2014] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224412.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Glary Utilities Pro 5.196.0.225 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224406.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ CCleaner 6.05.10102 Professional / Business / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224362.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ WSCC (Windows System Control Center) 7.0.3.5 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224355.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ R-Studio Network 9.1 Build 191060 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224334.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ CherryPlayer 3.2.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224330.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ BlueStacks Tweaker 5.8.7 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224328.jpg" />
 </div>
 
 

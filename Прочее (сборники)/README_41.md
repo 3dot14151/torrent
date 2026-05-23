@@ -6,7 +6,7 @@ VA - Top 100 Зайцев нет. Март (2017) [MP3|320 Kbps] <Pop , Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822319.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pet Shop Boys - Ultimate Tracks Surprise (2017) [MP3|320 Kbps] <Europop, Art Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822241.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Dance Hits (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822092.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Dance Alliance: Original Playmix (2016) [MP3|320 кб/с] <Dance, Pop, Hous
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821685.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Music News vol.141 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821113.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Adagio For Digital Love (2017) [MP3|320 Kbps] <Synthpop, Synthwave, Disco, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821058.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Shazam Хит-парад Top 100 Russia 15.10.2021 (2021) [MP3|192-320 Kbps
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820958.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - New Wave Of Disco (2020) [MP3|320 Kbps] <Disco, New Generation>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820871.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - German Top 100 Single Charts 05.01.2018 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820638.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Музыка, с которой мы выросли (зарубежная) 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820407.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Лучшие Хитовые Ретро Ремиксы (от LORDEGRAF) (201
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820130.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Neon Star Spring Club Edition (2016) [MP3|250-320 кб/с] <Dance, Club, Ho
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819893.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Nashville Country Blues (2016) [MP3|320 кб/с] <Rock Blues, Country, Folk
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819661.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Весенняя 100-ка любимой музыки 9 (2016) [MP3|256-320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819654.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Painting With Dreams: Trance Euphoria (2017) [MP3|320 Kbps] <Trance, Progre
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819110.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Tik Tok Треки выстрелили осенью 2021 [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819074.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Eurodance & Pop (2017) [MP3|320 Kbps] <Disco, Dance, 2 Step и другие
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819056.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Привет из СССР (2017) [MP3|192-320 Kbps] <Поп, Шансон,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818559.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Созвездие весеннее - 3 (2016) [MP3|256 кб/с] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818092.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - German Top 100 Single Charts (25.04.2016) [MP3|256-320 кб/с] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817938.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA -  Музыкальные Новинки От Зайцев.Нет Весна 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817593.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - ТОП 50: Итоговый D-CHART DFM 2017 (2018) [MP3|320 Kbps] <Pop, Ho
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817434.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Больше хитов! Больше музыки! Vol.2 (2018) [MP3|320 K
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817286.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Miami Nights Trance Party (2017) [MP3|320 Kbps] <Dance, Club, Trance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817183.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Empire Records - ANDRS Parody 3 (2017) [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817178.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - German Top 100 Single Charts (17.03.) (2017) [MP3|320 Kbps] <Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817177.jpg" />
 </div>
 
 

@@ -1,201 +1,3 @@
-###  Публикация: 1074014   (339807) от 18.11.2016
-
-Q4OS 1.8.1 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i386, i686pae, amd64] 4xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Q4OS - дистрибутив операционной системы Linux, созданный как альтернатива классическому Windows XP, предоставляющий знакомый интерфейс, удобную систему установки программ, простоту и скорость работы. Также система удобна для серверов и виртуальных облаков по причине низких требований к железу.
-
-Система базируется на Debian 8.6 и использует в качестве графической (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74EBC6BF12B6F0509AB0A19AA7E86E7C1B460D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954685   (339117) от 08.11.2015
-
-Arch Linux 2015.11.01 [i686, x86-64] 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Arch — «легковесный», простой и гибкий дистрибутив Linux, оптимизированный для архитектур i686 и x86-64, использующий последние стабильные версии программ и дополняемый поддерживаемым сообществом репозиторием AUR. Arch «будет тем, что вы из него сделаете», и рассчитан не на новичков, а на более опытных пользователей. Дистрибутив был создан Джаддом Винетом.
-
-В Arch (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CA62704BC6F0D23581CA3ED6ECA611431B7A4C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581488   (337294) от 27.11.2012
-
-Linux UsefulPack 12.11 (L) [Русский] (2012)[x86 + amd64]
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-На диске представлены:
-- интересные программы, отсутствующих в стандартных репозиториях Linux-дистрибутивов;
-- уроки, руководства по работе в Linux, а также электронные версии популярных бесплатных журналов и книг посвященных тематике СПО и Linux.
-
-Программы снабжены штатным установщиком или поставляются в виде бинарных сборок в архивах.Название программы: Linux UsefulPackЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419798   (334937) от 30.10.2020
-
-Ubuntu EducationPack 16.04 (2020.10) [i386 + amd64] (2хDVD)
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Предназначен помочь в организации учебного процесса и образовании.
-
-Дистрибутив из коробки предоставляет полностью настроенное решение для образовательного учреждения любой категории (младшие, средние и старшие классы школ, лицеи, колледжи, а также высшие учебные заведения такие как институты, университеты и другие).
-(   Читать дальше...   )Разработчик: UALinuxЯзык интерфейса: мультиязычный
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CF47B3E394DEBB5AE85AAD64E1A9FF0FCA40F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330482   (322368) от 16.10.2019
-
-Linux Mint 19 Win10 theme by oleg251975 19 [64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В раздаче обычный Linux Mint 19 Cinnamon с темой Windows 10.
-Максимально приближенный визуально к Windows 10.
-Установлены стандартные программы Linux Mint Cinnamon
-P.S. После установки в Домашней Папке снять галочку Скрытые файлы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC0362B8210D2F4636ED4C731A9DE71E152946C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958590   (321105) от 22.11.2015
-
-Red Hat Enterprise Linux (Server) 7.2 [x86-64] 1xDVD + 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После восьми месяцев разработки компания Red Hat выпустила дистрибутив Red Hat Enterprise Linux 7.2. Ветка RHEL 7.x будет поддерживаться до июня 2024 года. Установочные образы RHEL 7.2 доступны для загрузки только зарегистрированным пользователям Red Hat Network (RHN), исходные тексты пакетов можно загрузить из Git-репозитория проекта CentOS. Одновременно опубликован (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D597607F28F3E9BD3D16F657EE572CA5EDA84025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181924   (321043) от 08.11.2017
-
-Skype for Linux Beta 5.5.0.1 [x86_x64] (deb, rpm)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Skype (произносится «скайп») — бесплатное проприетарное программное обеспечение с закрытым кодом, обеспечивающее шифрованную голосовую связь через Интернет между компьютерами (VoIP), а также платные услуги для звонков на мобильные и стационарные телефоны.
-
-Программа также позволяет совершать конференц-звонки (до 25 голосовых абонентов, включая инициатора), видеозвонки (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FC49D54707DCE440DCEB47093310BA0D9DBC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181802   (321029) от 08.11.2017
 
 Skype for Linux 8.10.0.4 [x86_64] (rpm,deb)
@@ -204,7 +6,7 @@ Skype for Linux 8.10.0.4 [x86_64] (rpm,deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321029.jpg" />
 </div>
 
 
@@ -232,7 +34,7 @@ Tor Browser 2.2.39-5 [i686, x86-64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_319685.jpg" />
 </div>
 
 
@@ -260,7 +62,7 @@ JonDo 0.9.87 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316967.jpg" />
 </div>
 
 
@@ -288,7 +90,7 @@ KNOPPIX 7.6 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316608.jpg" />
 </div>
 
 
@@ -314,7 +116,7 @@ Cinelerra 5.0 [i686, x86_64] (txz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314120.jpg" />
 </div>
 
 
@@ -342,7 +144,7 @@ LMDE 3 "Cindy" MATE Edition by Lazarus [32-bit, 64-bit] (2xDVD) [Авторск�
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311007.jpg" />
 </div>
 
 
@@ -369,7 +171,7 @@ Mattermost Server 5.16.0 [x64] (Бинарные файлы)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311006.jpg" />
 </div>
 
 
@@ -395,7 +197,7 @@ Adobe Dreamweaver CC 13.1 build 6443 [MULTi / Русский] [x86, amd64] (wine
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310824.jpg" />
 </div>
 
 
@@ -421,7 +223,7 @@ Fedora 25 [i386] 11xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306321.jpg" />
 </div>
 
 
@@ -449,7 +251,7 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 6.10 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305904.jpg" />
 </div>
 
 
@@ -475,7 +277,7 @@ Red Hat Enterprise Linux 7.9
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305888.jpg" />
 </div>
 
 
@@ -501,7 +303,7 @@ Red Hat Enterprise Linux 8.3
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305727.jpg" />
 </div>
 
 
@@ -527,7 +329,7 @@ Manjaro Linux 0.8.8 (Arch + зоопарк рабочих столов) [i686] 9
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304851.jpg" />
 </div>
 
 
@@ -557,7 +359,7 @@ Fedora 27 Live spins [x86-64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304773.jpg" />
 </div>
 
 
@@ -583,7 +385,7 @@ Manjaro Linux 0.8.8 (Arch + зоопарк рабочих столов) [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304324.jpg" />
 </div>
 
 
@@ -613,7 +415,7 @@ Dr.Web Workstations 6.0.2.0 [x86, x86-64] (*.run)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299544.jpg" />
 </div>
 
 
@@ -642,7 +444,7 @@ Skype 4.3.0.37 [i386, amd64] (deb,rpm,tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298525.jpg" />
 </div>
 
 
@@ -670,7 +472,7 @@ Debian GNU/Linux 9.6.0 + nonfree Stretch [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298514.jpg" />
 </div>
 
 
@@ -698,7 +500,7 @@ Q4OS 1.4.4 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298460.jpg" />
 </div>
 
 
@@ -711,6 +513,196 @@ Q4OS - дистрибутив операционной системы Linux, с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EF53DC6EF4F02D2B0A0D6444DE0D61A9B9AA4FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261948   (298413) от 13.11.2018
+
+Debian GNU/Linux 9.6.0 + nonfree Stretch [i386] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступно шестое корректирующее обновление дистрибутива Debian 9, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 88 обновлений с устранением проблем со стабильностью и 92 обновления с устранением уязвимостей.
+
+Из изменений в Debian 9.6 можно отметить удаление 46 пакетов, из которых большинство являются дополнениями (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14232E14C93ACDCBD9050809003C0C1015D4E637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332625   (296485) от 28.10.2019
+
+Ubuntu BusinessPack 16.04 (август 2019) [amd64, i386] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Операционная система, которая идеально подходит для использования на персональных компьютерах, ноутбуках. Она ориентирована на простоту использования и удобство работы.
+Включена необходимая подборка программного обеспечения, которая позволяет создать удобное рабочее окружение в корпоративной среде предприятия или на домашнем компьютере.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAB7FD7EDE8CC4316A1AA9534CB1050E2829A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333079   (296468) от 28.10.2019
+
+Ubuntu BusinessPack 18.04 (август 2019) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Операционная система, которая идеально подходит для использования на персональных компьютерах, ноутбуках. Она ориентирована на простоту использования и удобство работы.
+Включена необходимая подборка программного обеспечения, которая позволяет создать удобное рабочее окружение в корпоративной среде предприятия или на домашнем компьютере.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096AE5721483A00A57D3E708CB9FDBB624AF4030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079208   (295699) от 03.12.2016
+
+Mageia 5.1 Cauldron [i586] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295699.jpg" />
+</div>
+
+
+###  Подробнее
+
+После полутора лет разработки доступен респин Linux-дистрибутива Mageia 5 - Mageia 5.1, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (3 Гб), набор Live-сборок на базе GNOME и KDE с различными наборами локализации. Проект Mageia (МАГ) стартовал в сентябре 2010 как форк (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03707FDD6FB5D2927941EF1391FE2B320F1F371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079211   (295586) от 03.12.2016
+
+Mageia 5.1 Cauldron [x86-64] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295586.jpg" />
+</div>
+
+
+###  Подробнее
+
+После полутора лет разработки доступен респин Linux-дистрибутива Mageia 5 - Mageia 5.1, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (3 Гб), набор Live-сборок на базе GNOME и KDE с различными наборами локализации. Проект Mageia (МАГ) стартовал в сентябре 2010 как форк (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6BF2D82F887BE95C5A9149C82E4D3E8BFD3553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 731871   (295400) от 08.12.2013
+
+PCLinuxOS 2013.12 KDE FullMonty [x32, x64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь представлен релиз PCLinuxOS 2013.12 KDE FullMonty. Основанный 24 октября 2003 года на Mandrake 9.2, PCLinuxOS придерживается собственного пути развития.  Редакция 'KDE Full Monty', где помимо обычной KDE-инсталляции содержится специальная структура рабочего стола, а также многие дополнительные приложения и предустановленные драйверы. В FullMonty разработчиками применена новая концепция: activity-focused формат виртуального рабочего стола, разработанный для обращения к типовым задачам и потребностям пользователя.
+
+В релизе PCLinuxOS 2013.12:  KDE 4.11.3;   ядро 3.4.70-pclos1; комплект свежих версий проприетарных графических драйверов NVidia; тема PCLOS410;  уведомляющая о возможности обновления установленных приложений утилита QT-update-notifier.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A2E5C7E4ECCC379BB0826DFD461822CF441D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 847733   (293797) от 06.12.2014
+
+Sabayon 14.12 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 4xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен релиз дистрибутива Sabayon Linux 14.12, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым и менее болезненным.  Добавлены новые ядра - Linux Kernel 3.10, 3.12.
+
+Пакетная база дистрибутива синхронизирована с коллекцией портажей Gentoo и полностью (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFED349D8C3B76C4FD335F47DE3062C1B4DF64A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

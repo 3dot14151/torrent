@@ -6,7 +6,7 @@ ABBYY PDF Transformer+ 12.0.104.225 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775400.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ABBYY PDF Transformer+ 12.0.104.225 Portable by punsh [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774689.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ABBYY FineReader Combo & Portable (PE 12.0.101.483 / CE 12.0.101.483) RePack by 
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773843.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ABBYY Comparator 13.0.102.232 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772294.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Scribus 1.4.8 + Portable + Plugin [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770472.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Scanitto Pro 3.17 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764088.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ PDF Converter Elite 4.0.6.0 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757330.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_755544.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ PDF Converter Elite 4.0.6 Portable by SaNet [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755517.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ AlfaReader 3.7.6.1 (акция sharewareonsale) [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751575.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ CoolUtils PDF Combine 6.1.0.119 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744631.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Microsoft Office 2007 SP3 Enterprise + Visio Pro + Project Pro 12.0.6798.5000 (2
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741856.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Microsoft Office Professional 2003 SP3 (2019.02) RePack by KpoJIuK [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741848.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Office 2007 SP3 Standard 12.0.6798.5000 (2019.02) RePack by KpoJIuK [R
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741847.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ IDM UltraEdit Pro 25.00.0.58 Repack by Alex Zaguzin [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740570.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ ImagePrinter Pro 6.3 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729700.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ DjVu Small Mod 0.7.6.1 Portable [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725612.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ priPrinter Professional 6.5.0.2457 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724179.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Microsoft Office 2007 SP3 Select Edition 12.0.6766.5000 RePack by KpoJIuK [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723715.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VeryPDF PDF Password Remover 6.0 RePack by вовава [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722009.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Quite Imposing Plus 4.0g [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719302.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ AnyMP4 PDF Converter Ultimate 3.3.20 RePack by вовава [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717401.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Clipdiary 5.7 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716227.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ PdfGrabber 8.0.0.48 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716051.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ naps2 5.8.1.2646 + portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713358.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ ABBYY FineReader 14.0.107.232 Enterprise [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712387.jpg" />
 </div>
 
 

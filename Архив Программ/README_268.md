@@ -6,7 +6,7 @@ Adobe Acrobat Reader DC 2015.023.20056 RePack by Pilot [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925712.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Acrobat Reader DC 2015.023.20056 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925710.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WebcamMax 8.0.3.6 RePack by Pilot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925701.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ JRiver Media Center 26.0.33 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925640.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Animate CC 2015.1 (15.1.0.210) RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925621.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The KMPlayer 4.0.5.3 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925617.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4797.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925602.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Adobe Acrobat Pro DC 2015.023.20056 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925587.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ DVDFab 12.0.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925551.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ HDCleaner 2.004 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925534.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Torch Browser 69.0.0.3016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925533.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ ActivePresenter Pro Edition 8.5.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925530.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Maxthon Browser 3.0.20.3000 + Portable [Мультиязычный, включа
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925529.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ FreeVimager 9.9.8 + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925496.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Mozilla Firefox Quantum ESR 68.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925490.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Microsoft Windows 7 SP1 x86 DVD-USB Release By StartSoft 07-08 2017 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925457.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Microsoft Windows 7 SP1 x64 DVD-USB Release By StartSoft 05-06 2017 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925454.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ RegScanner 2.61 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925421.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Cent Browser 4.2.7.116 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925410.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Sumatra PDF 3.4.14025 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925409.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Firefox Browser 74.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925396.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ MKVToolNix 44.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925381.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VueScan Pro 9.7.25 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925373.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ The Bat! Professional 9.1.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925294.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ JRiver Media Center 28.0.49 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925289.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.4.3 Build 5854 Stable + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925249.jpg" />
 </div>
 
 

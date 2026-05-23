@@ -1,29 +1,3 @@
-###  Публикация: 1827756   (193347) от 23.10.2025
-
-Absolum (2025) [Ru/Multi] (02 r34045) Repack FitGirl
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Absolum создана с любовью командой мечты, которая переосмысливает жанр классических сайд-скроллеров beat ‘em up. Игра сочетает боевой экшен высшего класса с современными roguelite-элементами, привнося дух легендарных фэнтезийных аркад прошлого в это захватывающее приключение в оригинальном мире Талам.Тип издания: RepackРазработчик: Dotemu, Guard Crush Games, SupamonksЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48EEF111D25EF3D5CA09EBC0B8F9094A0FC7B0FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827744   (193346) от 23.10.2025
 
 Bye Sweet Carole (2025) [Ru] (1.0.1/dlc) Repack seleZen
@@ -32,7 +6,7 @@ Bye Sweet Carole (2025) [Ru] (1.0.1/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193346.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28891) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193315.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Ru/Multi] (1.0.0.349/dl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193307.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Jacksmith: Weapons and Warriors (2025) [En] (1.0.1 Build 18571048) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193266.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Othe
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193265.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Daymare: 1994 Sandcastle (2023) [Ru/Multi] (6410) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193193.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Paper Cut Mansion (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193063.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Hell Pie (2022) [Ru/Multi] (1.1.5) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193045.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ KAGITORI -BIRD IN THE CAGE HIDING THE KEY- (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192992.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Criminal Archives 2: Alphabetic Murders / Криминальные архивы 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192948.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ HeadHorse Legacy (2023) [Ru/Multi] (2.031) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192902.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Armored Core VI: Fires of Rubicon (2023) [Ru/Multi] (11893351/dlc) Repack DjDI [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192813.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ FAITH: The Unholy Trinity (2022) [En] (1.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192754.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Myth or Reality 2: Mystery of the Lake (2023) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192636.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Spelunky (2013) [Multi] (2.1.0.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192507.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Daymare: 1998 (2019) [Ru/Multi] (1.4) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192476.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Murder Is Game Over (2022) [En] (2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192475.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Sackboy: A Big Adventure (2022) [Ru/Multi] (9806667/dlc) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192440.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Dead Man´s Diary (2022) [Ru/Multi] (1.5.54360) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192430.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (2.0.4_01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192281.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Bibots (2022) [Multi] (1.03) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192175.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Arena Renovation (2023) [Ru/Multi] (0.6.153) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192078.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Tenebris Pictura (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191994.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Space Engineers / Космические инженеры (2019) [Ru/Multi] (1.2
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191981.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Dark City 7: International Intrigue / Мрачный город 7: Междун�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191968.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Dark City 7: International Intrigue / Мрачный город 7: Междун�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31555E6D8B2877155E4918BB39146CD7D4FDECA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588003   (191884) от 02.11.2022
+
+Danger Forever (2022) [En] (845) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191884.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отличие от большинства скролл-шутеров, вы летите в трехмерной среде - используйте ее в своих интересах и остерегайтесь натыкаться на стены или землю. Кроме того, вместо того, чтобы традиционно осыпать врагов пулями, вы должны немного подумать наперед - система топлива/нагрева добавляет бою больше глубины. Уровни генерируются процедурно; каждый уровень немного отличается (   Читать дальше...   )Тип издания: LicenseРазработчик: FireVector LLCЖанр: Экшны, Ролевая играЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC260F068A5F08EDF4CDD632AC83D859A07CD2B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1804123   (13324) от 27.06.2025
-
-S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыля (2007) [Ru] (1.0006) Repack EXROW
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Постапокалиптический шутер с ролевыми элементами и видом от первого лица. События разворачиваются в альтернативной вселенной, где 12 апреля 2006 года в 14:33 на территории Чернобыльской атомной электростанции, произошёл взрыв неизвестной природы. Случившееся привело к возникновению «Зоны» на просторах которой появились невиданные артефакты и разнообразные аномальные (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Шутер от первого лица, Ролевая играЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB132E1C27CA09FA114BF48D8B4450D4211C46C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804062   (13313) от 27.06.2025
 
 NEDRA (2025) [Ru/Multi] (1.0) Repack FitGirl
@@ -32,7 +6,7 @@ NEDRA (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13313.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Gex Trilogy: Gex, Enter the Gecko, Deep Cover Gecko (2025) [Multi] (1.1) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13312.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Aliens vs. Predator (2010) [Ru] (2.27u7/dlc) Rip EXROW [Expanded Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13307.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Argonauts Agency 9: God of the Storm / Агентство Аргонавты 9: 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13292.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Hidden Legacy: Dark Heirloom (2025) [Multi] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13274.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ LIMINAL SHIFT (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13220.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.4.0.3/dlc) Repack FitGirl [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13201.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Boxville (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13197.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Crown Gambit (2025) [Ru/Multi] (1.0.3) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13186.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Nanomon Virtual Pet (2025) [Ru/Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13170.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ PC Tycoon 2 (2024) [Ru/Multi] (1.2.8) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13165.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Boxville 2 (2025) [Ru/Multi] (build 18344919) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13164.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Planetary Annihilation: TITANS (2015) [Ru/Multi] (124610) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13162.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ THEMIS (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13148.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.16.29934/dlc) Repack Fi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13130.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Deathless. Tales of Old Rus / Бессмертный. Сказки Старой 
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13108.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Dragons Reef (2025) [Ru/Multi] (1.2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13094.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9/dlc) Scene Rune [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13090.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Architect Life: A House Design Simulator (2025) [Ru/Multi] (1.0/dlc) Repack FitG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13087.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Three Kingdoms: The Last Warlord / Три королевства: Последн
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13032.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Bygone Dreams (2025) [Ru/Multi] (1.0.0.4) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13030.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9/dlc) Repack FitGirl [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13029.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.64.0/dlc) Repack FitGirl [Deluxe Bundle]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13024.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Control (2020) [Ru/Multi] (1.31 HotFix/dlc) License GOG [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13023.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.1/dlc) Repack FitGirl [Too Many Clothes Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13009.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ POPUCOM - кооперативный приключенческий платфо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:737126C3B3FC73627CFD8B03600C46F16D16215F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804543   (13008) от 30.06.2025
+
+Trident's Tale (2025) [Multi] (20250529 133011 79336) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в эпическое, полное экшена приключение в Trident’s Tale, где вы станете Океаном, смелым молодым капитаном, который отправится на поиски легендарного Storm Trident - мифического артефакта, который дарует власть над морями. Но будьте осторожны, океан огромен, коварен и кишит опасностями на каждом шагу! Так что приготовьте пушки, поднимите паруса и погрузитесь (   Читать дальше...   )Тип издания: LicenseРазработчик: 3DCloudsЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB983BC1ABBAFA35B1CFF6531B59BE4FA54A2E78
 ```
 
 https://mybot314.ru/tekegram_catalog/

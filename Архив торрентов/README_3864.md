@@ -6,7 +6,7 @@ Total Commander 10.50 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212584.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bandicam 6.0.1.2003 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212571.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Office 2013-2021 C2R Install + Lite 7.4.3++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212567.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ IObit Driver Booster Pro 9.4.0.240 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212564.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Total Commander 10.50 LitePack & PowerPack + Portable 2022.7 by SamLab [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212557.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Overlord IV | Повелитель [ТВ-4] [2022, TV, 2 из 12] WEBRip 1080p r
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212555.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ AOMEI Partition Assistant Technician Edition 9.8.1 RePack (& Portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212553.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Windows 10 21H2 (19044.1826) x64 (6in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212550.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5467.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212522.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Tor Browser Bundle 11.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212507.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212474.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212399.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ AmanVPN 2.3.0.0711 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212390.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212388.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ CyberLink PowerDirector Ultimate 20.7.3108.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212352.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.75.6100 RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212349.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ VirtualBox 6.1.36 Build 152435 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212346.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ NetSetMan 5.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212329.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ macOS 12 Monterey 12.5 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212321.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ ABBYY FineReader PDF for Mac 15.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212317.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Blackmagic Design DaVinci Resolve Studio 18.0 Build 36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212316.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VMware Workstation 16 Pro 16.2.4 Build 20089737 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212295.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Planner 5D Premium 4.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212274.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 6.75.6100 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212245.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VueScan Pro 9.8.04 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_212092.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Perfectly Clear WorkBench 4.5.0.2520 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_212085.jpg" />
 </div>
 
 

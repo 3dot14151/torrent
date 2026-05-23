@@ -6,7 +6,7 @@ Nuova Era - Return to the Castle (2016) [FLAC|Lossless|tracks + .cue] <Prog Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910761.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jimmy Barnes - Flesh And Blood (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910704.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Something Else: A Tribute To The Kinks (2017) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910625.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Faces - 5 Albums (1970-1976) Japanese Limited Release, Reissue, Remastered, 2010
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910382.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Wild Rose - Four (2016) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908928.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Andy Rock - This Time (2016) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908926.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Metamorphosis - I'm Not A Hero (2021) [FLAC|Lossless|image + .cue] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908904.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ David A Saylor - Ship To Nowhere (2016) [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908847.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Fleetwood Mac - Rumours (1977) 35th Anniversary 3CD Set Deluxe Edition /Reissue 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908792.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Frankie Miller - Frankie Miller's Double Take (2016) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908395.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Toby Hitchcock - Mercury's Down (2011) [FLAC|Lossless|image + .cue] <Melodic Har
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907213.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Blood Red Saints - Undisputed (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907157.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Elvis Presley - Elvis Best Hits In Japan (Japan First Press [BVCM-31223]) [2CD] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906754.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Ivory - A Moment, a Place and a Reason (2016) [FLAC|Lossless|tracks] <Rock, Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906389.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ i am no hero - Nights of Wonder (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905704.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Pink Floyd - A Saucerful Of Secrets (1968) Remastered, 1987, EMI [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905674.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Best Rock Ever (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905445.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Theo - Heart Of Soul (2016) [FLAC|Lossless|image + .cue] <Classick Rock, Blues R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905321.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Jimmy Barnes - Flesh And Blood (2021) [FLAC|Lossless|image + .cue] <Rock, Blues 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905199.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Shocking Blue - The Best Of Shocking Blue (1987) [FLAC|Lossless|image + .cue]<Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904772.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Planet P Project - Planet P (1983) Remastered, 2008, Renaissance Records [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904163.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Suzi Quatro - All the Best (2012) 2CD, Compilation [FLAC|Lossless|tracks] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904098.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Mythopoeic Mind - Hatchling (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904044.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Dire Straits - Sultans Of Swing (The Very Best Of Dire Straits) (1998) Compilati
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903968.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Oleg Serkov - Love Deviant (2009) EP, приложение к журналу CHI
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903816.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Se Delan - Drifter (2016) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903592.jpg" />
 </div>
 
 

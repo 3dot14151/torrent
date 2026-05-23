@@ -6,7 +6,7 @@ Hard Disk Sentinel Pro 4.70 Build 8128 Final RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957181.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 48.0.2564.97 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957168.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mirillis Splash 2.0.1.0 Premium RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957147.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Vivaldi 2.11.1811.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957135.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SyMenu 5.00.5866 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957101.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FinePrint 8.34 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957099.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mirillis Splash 2.0.1.0 Premium [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957092.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ DriverEasy Professional 4.9.14.36094 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957088.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MediaHuman YouTube Downloader 3.9.9.33 (1802) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957075.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Opera 66.0.3515.103 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957070.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Auslogics BoostSpeed Pro 11.4.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957068.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Mirillis Splash 2.0.1.0 Premium RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957046.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Daum PotPlayer 1.6.58402 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957044.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Adguard 6.0.167.886 RC2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957033.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Wise Care 365 Pro 5.4.8.544 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957008.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Wise Registry Cleaner Pro 10.2.9.689 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957003.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Firefox Browser 73.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957002.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Wise Disk Cleaner 10.2.7.778 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957000.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ ScreenPresso Pro 1.7.16.0 Portable by Jooseng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956995.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Movavi Video Editor Plus 20.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956994.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Auslogics BoostSpeed 11.4.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956990.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Advanced SystemCare Ultimate 9.0.1.627 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956908.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ MemTest86 6.3.0/4.3.7 Pro Retail [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956907.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ WinRAR 5.90 Beta 2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956852.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Room Arranger 9.5.6.619 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956850.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Auslogics BoostSpeed 11.4.0.1 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956846.jpg" />
 </div>
 
 

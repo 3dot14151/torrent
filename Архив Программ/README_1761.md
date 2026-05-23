@@ -6,7 +6,7 @@ RizomUV Virtual Spaces / Real Space 2023.0.54 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196040.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.8.5 Stable + Portable + Standa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195954.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Aiseesoft Video Converter Ultimate 10.7.20 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195945.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Psiphon 3 build 179 (09.07.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195942.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ ByClick Downloader Premium 2.3.42 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195926.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Youtube Downloader HD 5.3.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195922.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ BananaUpdateBlocker 1.0.0.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195920.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Caramba Switcher Lab 2023.06.21 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195915.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Topaz Photo AI 1.4.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195911.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.8.5 Stable RePack (& Portable)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195907.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ TeraCopy 3.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195885.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ CrystalDiskInfo 9.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195881.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ CareUEyes 2.2.6.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195874.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Auslogics Disk Defrag Pro 11.0.0.3 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195868.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Topaz Photo AI 1.4.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195858.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Auslogics BoostSpeed 13.0.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195854.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ DxO PhotoLab Elite 6.8.0 build 242 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195846.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ ColorControl 9.6.2.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195844.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ FastStone Capture 10.2 Final RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195843.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ BananaDefenderBlocker 1.0.0.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195837.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Advanced SystemCare Pro 16.5.0.237 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195836.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Rufus 4.2 (Build 2070) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195835.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ CrystalDiskInfo 9.1.1 + Portable (Shizuku Edition & Kurei Kei Edition) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195834.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Auslogics BoostSpeed 13.0.0.4 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195827.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Mozilla Thunderbird 115.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195825.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Stardock Start 1.46 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195816.jpg" />
 </div>
 
 

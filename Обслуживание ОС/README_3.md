@@ -1,55 +1,3 @@
-###  Публикация: 1865513   (1065734) от 
-
-Soft Organizer Pro 10.40 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного его разработчиками). Программа Soft Organizer (ранее Full Uninstall) предназначена (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D852BF382923A5B7EBCE4A23BB5956C3AB44872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865520   (1065730) от 
-
-FolderSizes Enterprise 10.0.43 [En]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-С помощью программы FolderSizes вы сможете определить количество свободного места на жестком диске. FolderSizes предоставляет подробную информацию о размере папок и файлов по каждому разделу жесткого диска. Кроме этого, программа использует диаграммы для наглядности. Используя данный программный продукт, вы сможете найти файлы, удаление которых позволит освободить (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDE2B2DF5E16C4AB7C6F03D7C0912907E3EDD115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865585   (1065679) от 16.04.2026
 
 Process Lasso Pro 18.0.1.24 (& Portable) by elchupacabra [Multi/Ru]
@@ -58,7 +6,7 @@ Process Lasso Pro 18.0.1.24 (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065679.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ WindowManager 10.26.1 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065667.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Reg Organizer 9.92 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065659.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Reg Organizer 9.92 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065555.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Files Inspector Pro 4.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065551.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ Winhance 26.04.17 & Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065478.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ HD OPTI 4.4.2 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065325.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ IObit Uninstaller Pro 15.4.0.1 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065306.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ WinScript 2.3.0 + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065240.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ WindowManager 10.26.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065208.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ IObit Uninstaller Pro 15.4.0.1 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065202.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ Process Lasso Pro 18.0.1.24 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065187.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ Reg Organizer 9.92 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065182.jpg" />
 </div>
 
 
@@ -389,32 +337,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864758   (1065095) от 
-
-Ashampoo Driver Updater 2.5.4.0 Portable by FC Portables [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Ashampoo Driver Updater обеспечивает обновления для широкого набора компонентов и устройств от профессиональных, до менее известных брендов. Как только новый драйвер становится доступен, он сразу же добавляется в огромную базу Ashampoo Driver Updater и становится доступен для Вас. Доступно более 400.000 драйверов. Поддерживаются более 150.000 устройств. Максимальная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9575B6CE51686BCE59208F8F1213EC1A054C9FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864797   (1065061) от 
 
 FolderSizes Enterprise 10.0.39 RePack (& Portable) by elchupacabra [En]
@@ -423,7 +345,7 @@ FolderSizes Enterprise 10.0.39 RePack (& Portable) by elchupacabra [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065061.jpg" />
 </div>
 
 
@@ -449,7 +371,7 @@ Display Driver Uninstaller 18.1.5.2 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065057.jpg" />
 </div>
 
 
@@ -475,7 +397,7 @@ WinScript 2.2.0 + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065028.jpg" />
 </div>
 
 
@@ -501,7 +423,7 @@ PrivaZer Pro 4.0.120.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064972.jpg" />
 </div>
 
 
@@ -527,7 +449,7 @@ Process Lasso Pro 18.0.0.68 (& Portable) by TryRooM [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064863.jpg" />
 </div>
 
 
@@ -553,7 +475,7 @@ Process Explorer 17.11 RePack by druc [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064808.jpg" />
 </div>
 
 
@@ -579,7 +501,7 @@ R-Wipe & Clean 20.0.2555 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064724.jpg" />
 </div>
 
 
@@ -605,7 +527,7 @@ Process Explorer 17.11 Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064689.jpg" />
 </div>
 
 
@@ -631,7 +553,7 @@ PrivaZer Pro 4.0.120.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064642.jpg" />
 </div>
 
 
@@ -657,7 +579,7 @@ JWIZARD Cleaner 1.11.2.1 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064592.jpg" />
 </div>
 
 
@@ -671,6 +593,84 @@ JWIZARD Cleaner 1.11.2.1 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F550AE04918844A29D44D4F47CAFD0F89FF1B4F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862074   (1064333) от 28.03.2026
+
+WinScript 2.1.4 + Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064333.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinScript — это мощный, простой в использовании и легкий инструмент с открытым исходным кодом, предназначенный для улучшения и персонализации работы с Windows. Он предлагает широкий спектр функций, включая удаление лишних приложений, повышение конфиденциальности, оптимизацию производительности и упрощенную установку приложений.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1A67ADB3EEEBE82D968AD6EF5A8EDEE6B545A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862241   (1064273) от 29.03.2026
+
+DISMTools 0.7.3.26032 + Portable [Multi]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064273.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISMTools — это интерфейс для DISM, позволяющий управлять файлами образов Windows (WIM) и выполнять многие другие функции.Язык интерфейса: Английский и другие (Русского языка нет)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C08C943E1A4C1AFB73DE11472ADFAE27194CDAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862413   (1064165) от 30.03.2026
+
+IObit Driver Booster Pro 13.3.0.229 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41C59B7262053702AEFD9772D3B68ED6599C9AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

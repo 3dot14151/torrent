@@ -1,55 +1,3 @@
-###  Публикация: 1805038   (12656) от 03.07.2025
-
-Матрица: Перезагрузка / The Matrix: Reloaded (2003) BDRip [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Морфиус сделал своё дело, освободив тело и разум Нео от пагубного влияния Матрицы. Теперь дело за малым: нужно всего лишь спасти жителей единственного человеческого города Зиона. Но перед этим Избранный должен похитить Мастера ключей, чтобы тот помог добраться до Архитектора, создателя Матрицы. На пути к этому Нео, Морфиусу и Тринити будут усиленно вставлять палки (   Читать дальше...   )Производство: США / Heineken Branded Entertainment, NPV Entertainment, Silver PicturesЖанр: Фантастика, боевик, триллер, приключенияРежиссер: Лилли Вачовски, Лана ВачовскиАктеры: Лоуренс Фишборн, Киану Ривз, Хьюго Уивинг, Моника Белуччи, Джада Пинкетт Смит, Харольд Перрино-мл., Ламбер Уилсон, Кэрри-Энн Мосс, Хэрри Дж. Ленникс, Клэйтон УотсонПеревод: Дублированный (Blu-Ray EUR)Язык озвучки: Русский, английскийСубтитры: Русские, АнглийскиеПродолжительность: 02:18.17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997F157CBD6D0AD500588757E4632BB86BE32929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804847   (12619) от 04.07.2025
-
-Громовержцы* / Thunderbolts* (2025) WEB-DLRip [H.265/1080p] [10-Bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Команда злодеев отправляется на задание по приказу правительства.Производство: США, Австралия, Канада / Marvel StudiosЖанр: фантастика, боевикРежиссер: Джейк ШрейерАктеры: Флоренс Пью, Себастиан Стэн, Уайатт Рассел, Ольга Куриленко, Льюис Пуллман, Джеральдин Висванатан, Ханна Джон-Кэймен, Дэвид Харбор, Джулия Луи-Дрейфус, Кристофер БауэрПеревод: Дублированный (MovieDalen, укр. LeDoyen)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 02:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAAA24F03CD5750B373C51713A10D90A30003271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397224   (12616) от 04.07.2025
 
 Адвокат дьявола / The Devil's Advocate (1997) BDRip [H.265/1080p] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12616.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12600.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12548.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12547.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12532.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12522.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12510.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12507.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12498.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12493.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12491.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12490.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12488.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12487.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12484.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12471.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12447.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12402.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12390.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12384.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12367.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12362.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12361.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12357.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4E0F2D72EE523BBD8CD786820DB41D47B05DF06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805513   (12319) от 06.07.2025
+
+Психи на воле / La Cavale des fous (1993) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Анри Туссен застал свою жену за изменой и попытался её убить в приступе слепой ревности. За это его отправили в психиатрическую клинику. Спустя 7 лет врач Бертран Даумале сообщает Анри, что его жена находится при смерти и желает получить от своего мужа прощение и последний поцелуй. Бертран согласен тайно вывезти Анри на свидание с женой. Но вместе с ними (   Читать дальше...   )Производство: Франция / Fideline Films, France 2 Cinéma, SofiarpЖанр: комедияРежиссер: Марко ПикоАктеры: Пьер Ришар, Мишель Пикколи, Доминик Пинон, Флоранс Пернель, Эдит Скоб, Марк Беттон, Жак Дени, Элен Сюржер, Ронни Кутёр, Жан-Поль Мюэль, Женни Клив, Даниэль Мартен, Жан-Клод Легуа, Жан-Квентин Шателен, Жан-Франсуа ДерекПеревод: профессиональный многоголосый (Селена Интернешнл; Инис)Язык озвучки: русский, французскийСубтитры: русские (ylnian), французскиеПродолжительность: 01:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48FF16CD42C132BFB1DF08A25DF88B40BE3ECC97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805454   (12314) от 06.07.2025
+
+Сплошные неприятности / Nothing But Trouble (1991) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12314.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам рассказа Питера Эйкройда... Издатель финансового журнала Крис вызвался отвезти в Атлантик-сити обворожительную адвокатессу Дайану. За ними увязалась парочка латиноамериканских миллионеров, брат и сестра Фаусто и Реналда. Все надеялись на весёлое времяпрепровождение, а вышло... Начались все беды с сущего пустяка: Крис нарушил правила дорожного движения (   Читать дальше...   )Производство: США / Applied Action, Warner Bros. PicturesЖанр: комедияРежиссер: Дэн ЭйкройдАктеры: Чеви Чейз, Дэн Эйкройд, Джон Кэнди, Деми Мур, Вэлри Бромфилд, Тейлор Негрон, Рэймонд Дж. Бэрри, Брайан Дойл-Мюррэй, Джон Уэсли, Питер Эйкройд, Дэниэл Болдуин, Джим Стаскел, Дебора Ли Джонсон, Карла Тамбурелли, Джон ДевикисПеревод: дублированный (Варус видео), профессиональный многоголосый (HTB+), профессиональный двухголосый (Goodtime Media), авторский (Алексей Михалёв)Язык озвучки: русский, английскийСубтитры: русские (надписи с песнями и полные, Handino), английскиеПродолжительность: 01:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C951FF37504618EA86889521AD5479626DBFBB5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

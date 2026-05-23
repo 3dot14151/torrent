@@ -6,7 +6,7 @@ Hidden Expedition 9: Dawn of Prosperity / Секретная экспедици�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609910.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ League Of Light 4: The Gatherer / Лига Света 4: Стяжатель (201
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609907.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Echoes Of The Past 4: The Revenge Of The Witch Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609589.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sister's Secrecy: Arcanum Bloodlines Collector's Edition / Сестры. Тай�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608951.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cursed Cases: Murder At The Maybard Estate (2016) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608608.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Haunted Legends 8: The Iron Mask (2016) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608493.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dark Parables 11: The Swan Princess And The Dire Tree (2016) [En] (1.0) Unoffici
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608480.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hidden Object Adventure: Captain Nemo / Hidden Object Adventure: Капитан 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608181.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Dark Parables 10: Goldilocks and the Fallen Star / Темные Притчи 10:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608084.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Haunted Legends 8: The Iron Mask / Легенды о призраках 8: Же�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607944.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Faircroft's Antiques 5: The Mountaineer's Legacy (2022) [Multi] (0.20) Unofficia
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607444.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Saga of the Nine Worlds: The Gathering / Сага о Девяти Мирах: С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607341.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Forgotten Kingdoms 2: The Ruby Ring (2015) [En] Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607018.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Queen's Tales 2: Sins of the Past / Сказки Королевы 2: Грехи 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606817.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Spirits of Mystery 11: The Lost Queen / Тайны духов 11: Заблудш
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606776.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Surface 7: Alone in the Mist / Внешние Пределы 7: Одиночес
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606719.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ House of 1000 Doors: Evil Inside / Дом 1000 дверей. Зло внутри
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606717.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Mystery of a Lost Planet (2015) [En] License DEFA
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606576.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Witches' Legacy 4: The Ties That Bind / Наследие ведьм 4: Связ�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606453.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Vermillion Watch: Moorgate Accord (2016) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604838.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Mystery Trackers 11: Train To Hellswich (2016) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604771.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Spear Of Destiny. The Final Journey / Копье Судьбы. Последне�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604680.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Vermillion Watch: Moorgate Accord / Алый Дозор: Мургейтский 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604563.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Labyrinths of the World 6: The Devil's Tower / Лабиринты Мира 6: Б
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604269.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ PuppetShow 9: Her Cruel Collection / Шоу марионеток 9: Ее ужа�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603870.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Mystery of the Ancients: Lockwood Manor / Тайны древних: Помес�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603564.jpg" />
 </div>
 
 

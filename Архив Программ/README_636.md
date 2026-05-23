@@ -6,7 +6,7 @@ Kinza Browser 5.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730019.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730005.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows 10 Manager 2.0.9 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729962.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Text Filter 1.7.0 Build 429 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729961.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Auslogics BoostSpeed 10.0.22.0 DC 13.02.2019 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729960.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Master PDF Editor 5.3.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729950.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BurnAware Free 15.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729909.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ TagScanner 6.0.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729887.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ SRWare Iron 57.0.3000.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729851.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Opera 58.0.3135.68 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729826.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VueMinder Ultimate 2019.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729822.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ GiliSoft Video Editor 11.2.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729814.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adobe components Flash Player 32.0.0.142 + AIR 32.0.0.89 + Shockwave Player 12.3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729813.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ IObit Uninstaller Free 11.3.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729799.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Waterfox Current G4.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729793.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Bootstrap Studio 5.9.2 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729791.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Insofta 3D Text Commander 4.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729762.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Media Player Codec Pack 4.4.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729746.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Tipard Video Converter Ultimate 9.0.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729741.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Wise Registry Cleaner 9.18.592 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729733.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ BELOFF [dp] 2019.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729709.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Daum PotPlayer 1.7.17508 (fix 19.02.2019) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729707.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Movavi Video Editor Plus 15.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729692.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Product Key Explorer 4.2.9.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729686.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Microsoft .NET 6.0.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729676.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Sandboxie 5.55.10 / Sandboxie Plus 1.0.10 RePack by Umbrella Corporation [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729672.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1809240   (1380) от 23.09.2025
-
-Star Valor (2022) [Ru/Multi] (2.2.2e/dlc) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Star Valor - космическая игра в жанре экшен-РПГ, где вы управляете собственным кораблём и собственной судьбой. Исследуйте огромный процедурно генерируемый мир, начав с самых низов, и станьте самым известным человеком в галактике. Но во вселенной, где человечество влачит существование под пятой почти истребивших его пришельцев, богатство и власть никому не даются (   Читать дальше...   )Тип издания: RepackРазработчик: Rafael BurgosЖанр: Экшены, Инди, Ролевые игрыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15CD3C7B898FA0DDD6546BAB71F695908943F176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772591   (1379) от 23.09.2025
 
 Swordhaven: Iron Conspiracy (2024) [Multi] (0.8.0) License GOG [Early Access]
@@ -32,7 +6,7 @@ Swordhaven: Iron Conspiracy (2024) [Multi] (0.8.0) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1379.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.4.0) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1378.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Reality Break (2025) [Multi] (1.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1373.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1372.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Yet Another Zombie Survivors (2023) [Ru/Multi] (B.0.9.0a) Repack Let'sРlay [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1371.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Craft The World (2014) [Ru/Multi] (1.11.007/dlc) Repack Let'sРlay [Ultimate Cra
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1370.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Scene Rune [Digital Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1369.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack seleZen [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1368.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack FitGirl [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1366.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Wanterlude [Digital Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1355.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Dying Light The Beast (2025) [Ru/Multi] (1.2.1/dlc) Repack Wanterlude [Deluxe Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1352.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ You Will Die Here Tonight (2023) [Multi] (1.1.3.1_b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1349.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.71.157915-S35) Repack seleZen [Early Acc
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1335.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Decepticon [Digital Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1334.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Mateusz Skutnik Collection (2021-2025) [Ru/Multi] (2.3.49/1.0.50/1.1.7a ) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1317.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.1/dlc) Repack dixen18 [Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1316.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2014.013.003.009.008/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1272.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28650) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1263.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Wanterlude [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1262.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Victoria 3 (2022) [Ru/Multi] (1.10.0/dlc) Repack Pioneer [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1261.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Legend of Heroes: Trails through Daybreak II (2025) [Multi] (1.2.15/dlc) Lic
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1258.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3816947) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1252.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Let'sРlay [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1250.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.4.1.85803/dlc) Repack Let'sРlay [Deluxe
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1248.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Lightkeeper (2025) [Ru/En] (Build 20068430) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1239.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ The Lightkeeper - психологический хоррор, действие 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E92FBCCB73F0B5D3921FADFD3622F62BA0DEFD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819561   (1236) от 24.09.2025
+
+ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.71.157967) Repack Wanterlude [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1236.jpg" />
+</div>
+
+
+###  Подробнее
+
+ENDLESS Legend 2 – это фэнтезийная стратегия, где вы управляете разнообразными фракциями, строящими величественные империи и ведущими войны в масштабах планеты в меняющемся океаническом мире на грани гибели. Катастрофы нарушили естественный баланс, и ландшафт меняется с течением времени, открывая смелым новые территории для исследований и завоеваний. Развивайте города, (   Читать дальше...   )Тип издания: RepackРазработчик: AMPLITUDE StudiosЖанр: СтратегияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3D23A8679C57AD2E65B6B7CA77EB478EA61CC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

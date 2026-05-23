@@ -1,84 +1,3 @@
-###  Публикация: 1849105   (1053264) от 24.01.2026
-
-Zapret GUI 1.60 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Программа предназначена для обхода DPI-блокировок (госцензуры с блокировкой сайтов) на базе Zapret.
-Используются скрипты от сборки Zapret-discord-youtube by Flowseal, а также других авторов.
-Программа представляет собой графическую оболочку для более удобного запуска скриптов, представляющих собой различные варианты обхода DPI. Графическая оболочка для средства обхода (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3107B5FC9C93C81E7DAD6A3F2EEA2EB5554D84AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848630   (1053214) от 21.01.2026
-
-Micron запустила строительство мегафабрики памяти в Нью-Йорке за $100 млрд — проекта ждали с 2022 года
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-На этой неделе Micron заложила фундамент фабрики по производству памяти в штате Нью-Йорк, хотя соответствующие намерения были объявлены впервые ещё в 2022 году.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848308   (1052849) от 19.01.2026
-
-SSD теперь реально дороже золота: твердотельные накопители обогнали драгоценный металл по цене за грамм
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Один внимательный пользователь Reddit, подбирая высокоёмкий SSD, внезапно пришёл к неожиданному выводу: на фоне дефицита чипов из-за бумa ИИ NVMe-накопители формата M.2 стали дороже золота… если считать по весу. Обсуждение быстро набрало популярность, после чего энтузиасты решили проверить гипотезу на реальных цифрах — и результаты оказались более чем убедительными.Для (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848160   (1052627) от 17.01.2026
 
 МОК вне политики
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052627.jpg" />
 </div>
 
 
@@ -114,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052597.jpg" />
 </div>
 
 
@@ -141,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052251.jpg" />
 </div>
 
 
@@ -167,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051269.jpg" />
 </div>
 
 
@@ -194,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051110.jpg" />
 </div>
 
 
@@ -220,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050986.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050943.jpg" />
 </div>
 
 
@@ -273,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050567.jpg" />
 </div>
 
 
@@ -299,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050533.jpg" />
 </div>
 
 
@@ -326,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050324.jpg" />
 </div>
 
 
@@ -352,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049818.jpg" />
 </div>
 
 
@@ -379,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049761.jpg" />
 </div>
 
 
@@ -406,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049630.jpg" />
 </div>
 
 
@@ -433,7 +352,7 @@ Mozilla позволит полностью отключать ИИ-функци
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049585.jpg" />
 </div>
 
 
@@ -460,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049450.jpg" />
 </div>
 
 
@@ -487,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1048845.jpg" />
 </div>
 
 
@@ -513,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1048582.jpg" />
 </div>
 
 
@@ -539,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047819.jpg" />
 </div>
 
 
@@ -566,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047721.jpg" />
 </div>
 
 
@@ -593,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047683.jpg" />
 </div>
 
 
@@ -619,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047345.jpg" />
 </div>
 
 
@@ -645,7 +564,7 @@ Micron закрыла бренд Crucial и свернула производс�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047276.jpg" />
 </div>
 
 
@@ -672,13 +591,92 @@ Transcend приостановила поставки SSD-накопителей
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047213.jpg" />
 </div>
 
 
 ###  Подробнее
 
 В сети появилось сообщение, направленное Transcend своим клиентам, в котором компания сообщает о решении приостановить поставки SSD-накопителей.Согласно письму, Transcend с октября не получала NAND Flash-память от своих ключевых поставщиков: Samsung и SanDisk. Всё дело в том, что на данный момент оба производителя направили все свои усилия на выполнение заказов для (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839715   (1046753) от 01.12.2025
+
+В России открылось ещё одно производство материалов для печатных плат
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046753.jpg" />
+</div>
+
+
+###  Подробнее
+
+На заводе будут выпускать фольгированные диэлектрики и препреги как для стандартных задач, так и для высокочастотных и высокоскоростных устройств.Мощности завода рассчитаны на выпуск до 1,25 млн м² продукции в год. Из них 300 000 м² подходят для производства плат 6 и 7 классов точности, то есть более сложных и плотных по компоновке. Такие платы используют (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 11914   (1046561) от 28.11.2025
+
+Карлос Кастанеда  |  Полное собрание сочинений.
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046561.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своих книгах Карлос Кастанеда описывает обучение у Хуана Матуса — мага, представителя древнего шаманского знания. Дон Хуан Кастанеды представляет собой мудрого шамана, чей образ не совпадает со стереотипом индейского колдуна, а знания, которыми он делится, не совпадают с представлениями академической науки о шаманской культуре индейцев.
+Книги взяты на форуме Любителей (   Читать дальше...   )Издательство: РАО "Говорящая книга"
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73CC3AD684F97EB8DC2FAA38608FE409D34CEECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839128   (1046550) от 29.11.2025
+
+Neiry представила управляемых «голубей-биодронов»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа компаний Neiry представила голубей-биодронов — обычных птиц со встроенными в головы электродами. Цена вопроса примерно как при покупке и эксплуатации дронов из пластика и электроники, но продолжительность полёта, скрытность и безопасность у живых особей несоизмеримо больше. Жизни птиц ничего не угрожает, утверждают разработчики, после операции они продолжают (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

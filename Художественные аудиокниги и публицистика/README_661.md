@@ -1,86 +1,3 @@
-###  Публикация: 1189282   (270351) от 06.12.2017
-
-Евгений Сафронов | Кенотафия. Коммунальный юродивый (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов и повестей Евгения Сафронова в исполнении Олега Булдакова.Жанр: Mагический реализм, драма, приключенияПродолжительность: 02:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5197D07566B85D9DFAFEF61913190C569E2D622A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338060   (270332) от 14.11.2019
-
-Константин Ежов | Особая работа (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Попасть можно всегда!
-На деньги, в неприятности, в историю…
-Или в другой мир!
-У меня и так всё было нормально, да и возраст, ну да, за сорок уже, но ведь не старик ещё. А попал-то в пацана умирающего. А у людей планы, в том числе и на мою теперь смерть. Только случай и помог выжить. И ни родителей, ни друзей, ни каких ещё знакомых бывшего владельца тела. Из наследства (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыЯзык озвучки: РусскийПродолжительность: 14 ч. 39 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA59A764A0626ADA11E7372919A76612B63B31B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338258   (270303) от 14.11.2019
-
-Андрей Васильев | Квадратура круга [Том 2] (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Современная жизнь быстра, но на фоне тех событий, которые бурлят вокруг журналиста Никифорова, обычные будни обычных людей могут показаться медленными и тягучими. Другое дело, что событийная петля, захлестывающая его запросто может превратиться в удавку, затянутую на горле.
-
-Данное издание содержит специальную расширенную авторскую версию романа, ранее не издававшуюся!Жанр: Боевое фэнтези, LitRPGПродолжительность: 14:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED3560BC66D7EDB773E63BC92ED55E9D9BE8F03B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189476   (270275) от 06.12.2017
 
 Анастасия Сычёва | Под угрозой уничтожения мира (2017) [MP3]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270275.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270271.jpg" />
 </div>
 
 
@@ -141,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270268.jpg" />
 </div>
 
 
@@ -170,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270243.jpg" />
 </div>
 
 
@@ -196,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_270121.jpg" />
 </div>
 
 
@@ -222,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_270116.jpg" />
 </div>
 
 
@@ -248,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270068.jpg" />
 </div>
 
 
@@ -274,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270066.jpg" />
 </div>
 
 
@@ -300,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269928.jpg" />
 </div>
 
 
@@ -327,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269919.jpg" />
 </div>
 
 
@@ -353,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269912.jpg" />
 </div>
 
 
@@ -379,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269858.jpg" />
 </div>
 
 
@@ -405,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269831.jpg" />
 </div>
 
 
@@ -431,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269830.jpg" />
 </div>
 
 
@@ -457,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269779.jpg" />
 </div>
 
 
@@ -483,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269758.jpg" />
 </div>
 
 
@@ -509,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269739.jpg" />
 </div>
 
 
@@ -535,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269729.jpg" />
 </div>
 
 
@@ -561,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269726.jpg" />
 </div>
 
 
@@ -587,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269654.jpg" />
 </div>
 
 
@@ -613,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269569.jpg" />
 </div>
 
 
@@ -639,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269537.jpg" />
 </div>
 
 
@@ -665,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269533.jpg" />
 </div>
 
 
@@ -677,6 +594,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B96ECF16A40A2044DB848F1776C5F0E7AE7BB08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273996   (269524) от 27.12.2010
+
+Юрий Гальцев | Ух ты! Мы вышли из бухты (2004) [APE, Юрий Гальцев]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269524.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ух ты (4:12)
+2. Чапаев (5:26)
+3. Труверы (6:14)
+4. Скунц (2:45)(   Читать дальше...   )Жанр: ЮморПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338489   (269491) от 15.11.2019
+
+Серж Винтеркей | Три Данжа (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Может ли смертельное ДТП не только убить тело, но и отправить разум в виртуальную реальность? Оказывается, по замыслу высших сил возможно все. Инженер ехал домой к семье, но внезапно погиб в автомобильной аварии, обнаружив себя в качестве участника виртуальной игры. Второй шанс? Да! Но не все так просто, ему поставлены строгие ограничения, невыполнение которых приведет (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 06:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ADB2A90695ADF65F89FBE2AFC69E689E6DED92A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266750   (269098) от 03.12.2018
+
+Егор Чекрыгин | Возвращение в Тооредаан [Книга 2] (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения Игоря Рожкова набирают обороты. Теперь в них принимают участие и старые герои Сергей Говоров и Одивия Ваксай…Жанр: Боевая фантастика, ПопаданцыПродолжительность: 13:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E194A191341B5EABCC2BA18BA89323F3CA94420
 ```
 
 https://mybot314.ru/tekegram_catalog/

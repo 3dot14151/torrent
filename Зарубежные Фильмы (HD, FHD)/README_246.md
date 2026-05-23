@@ -1,58 +1,3 @@
-###  Публикация: 309534   (840642) от 16.03.2011
-
-Эрагон / Eragon (2006) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в волшебной стране Алагезии, которую населяют эльфы, гномы и другие сказочные персонажи. Главный герой — 17-летний деревенский мальчишка Эрагон — последний из рода некогда могущественных драконьих всадников.
-
-Однажды он находит драконье яйцо. Так, Эрагону суждено вырастить и воспитать дракониху Сапфиру; принять участие в великой войне; в поисках эльфийского города Эллесмеры пройти через невиданые земли, наполненные красотой и опасностью; сразиться с колдунами и чудовищами; спуститься к сердцу горы в королевство гномов, чтобы стать первым Свободным Воином, не зависящим ни от короля всадников, ни от вождя варденов.Жанр: Фэнтези, Приключения, Боевик, СемейныйРежиссер: Стефен Фенгмейер / Stefen FangmeierАктеры: Эдвард Спелирс , Джереми Айронс , Сиенна Гиллори , Роберт Карлайл , Джон Малкович , Гаррет Хедлунд , Алан Армстронг , Кристофер Иган , Гари Льюис , Джимон ХунсуПеревод: 1. Дублированный
-2. ОригинальныйПродолжительность: 01:43:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379207   (840635) от 28.04.2020
-
-Диета по-итальянски (Каким ты меня хочешь) / Ci vuole un fisico (2018) WEB-DL [H.264/1080p-LQ] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Встреча Алессандро и Анны — чистая случайность: их обоих прокатили с романтическими свиданиями. Это была судьба. Сначала Алессандро нашел Анну непривлекательной и навязчивой. Но за проведенную вместе долгую ночь со ссорами и безудержными танцами, ночным купанием и другими приключениями герой узнал девушку лучше. Да и вполне возможно, что он лучше узнал себя самого. (   Читать дальше...   )Производство: Италия / Apapaja, Comune di Modena, Provincia di Reggio EmiliaЖанр: комедияРежиссер: Алессандро ТамбуриниАктеры: Клаудио Бигальи, Джампаоло Фабрицио, Анна Феррайоли Равель, Никколо Сенни, Алессандро Тамбурини, Франческа ВальтортаПеревод: Многоголосый профессиональный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A8ED9F8939250C74854F15CC3BB2C95649BB89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379245   (840625) от 28.04.2020
 
 Пушки Акимбо / Guns Akimbo (2019) BDRip [H.264/720p] [PR]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840625.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840619.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840595.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840588.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840584.jpg" />
 </div>
 
 
@@ -191,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840555.jpg" />
 </div>
 
 
@@ -217,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840546.jpg" />
 </div>
 
 
@@ -243,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840543.jpg" />
 </div>
 
 
@@ -271,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840539.jpg" />
 </div>
 
 
@@ -297,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840535.jpg" />
 </div>
 
 
@@ -324,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840510.jpg" />
 </div>
 
 
@@ -350,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840442.jpg" />
 </div>
 
 
@@ -376,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840421.jpg" />
 </div>
 
 
@@ -402,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840362.jpg" />
 </div>
 
 
@@ -428,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840348.jpg" />
 </div>
 
 
@@ -454,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839957.jpg" />
 </div>
 
 
@@ -480,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839889.jpg" />
 </div>
 
 
@@ -507,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839708.jpg" />
 </div>
 
 
@@ -534,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839616.jpg" />
 </div>
 
 
@@ -561,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839586.jpg" />
 </div>
 
 
@@ -587,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839472.jpg" />
 </div>
 
 
@@ -613,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839467.jpg" />
 </div>
 
 
@@ -639,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839463.jpg" />
 </div>
 
 
@@ -665,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839462.jpg" />
 </div>
 
 
@@ -676,6 +621,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FD18F774F38A605582872EC4F389D822BDFCC88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500953   (839355) от 07.10.2021
+
+Адское бинго / Bingo Hell (2021) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожилая упрямая жительница Оак-Спрингс по имени Лупита противится любым переменам в городке и по привычке указывает людям, как себя вести. Когда владелец задрипанного местного зала для игры в бинго внезапно исчезает, а помещение выкупает незнакомец и тут же устраивает там аттракцион невиданной щедрости, Лупита сразу чует неладное.Производство: США / Amazon StudiosЖанр: Ужасы, комедияРежиссер: Гиги Сол ГеррероАктеры: Адриана Барраса, Л. Скотт Колдуэлл, Джошуа Калеб Джонсон, Клэйтон Ланди, Джонатан Медина, Бертила Дамас, Гроувер Колсон, Дэвид Дженсен, Келли Мурта, Ричард БрэйкПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские, английскиеПродолжительность: 01:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BEE7C4EA73AF0100664FAEFC55B7D1230389CEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500827   (839351) от 07.10.2021
+
+Боец без правил / Notorious Nick (2021) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ник Ньюэлл — боец ММА, у которого нет руки. Он получает редкий шанс побороться за чемпионство в легком весе. Победа важна не только лично для Ника, но и для всех людей с физическими особенностями и травмами.
+Основано на реальных событиях.Производство: США / Make The Movie, Notorious NickЖанр: Драма, спортРежиссер: Аарон ЛеонгАктеры: Коди Кристиан, Элизабет Рём, Кевин Поллак, Бэрри Ливингстон, Кэмерон Джеймс Мэтьюз, Сэмюэл Ивэн Хоровиц, Джим Хисер, Джонатан Коули, Эрик Йорн Сундквист, Конлан КисилевичПеревод: Дублированный (iTunes)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D79B3D2FB0839C37EBC19DAA4A1336CE9DF2E55
 ```
 
 https://mybot314.ru/tekegram_catalog/

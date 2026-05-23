@@ -6,7 +6,7 @@ Legacy of Kain Defiance Remastered (2026) [Ru/Multi] (2.0/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059376.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Scott Pilgrim EX (2026) [Ru/Multi] (1.0.0.13877) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059344.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ChromaGun 2: Dye Hard (2026) [Ru/Multi] (0.1.908) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059335.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ High On Life 2 (2026) [Ru/Multi] (Build 21897943/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059211.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ High On Life 2 (2026) [Ru/Multi] (Build 21996152) Repack HardwareMining
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059210.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Escape from Yandere (2026) [Ru/En] (Build 21831506) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059182.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Perfect Pencil (2026) [Ru/Multi] (Patch 2) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058902.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sector Unknown (2025) [Ru/Multi] (2.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058888.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ashes of Ambition (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058810.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ashes of Ambition (2026) [Ru/Multi] (1.0.0) Scene TiNYiSO
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058788.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Towerborne (2026) [Ru/Multi] (5.6.1-488249.4611/dlc) Repack Let'sРlay [Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058691.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Tales of Berseria Remastered (2026) [Ru/Multi] (1.0.2/dlc) Repack Let'sРlay [De
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058632.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Don't Stop, Girlypop! (2026) [Ru/Multi] (1.0.5) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058630.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ City Tales: Mеdiеvаl Era (2026) [Ru/Multi] (1.0.0.4/dlc) Repack FitGirl [Fluf
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058629.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ City Tales - Medieval Era (2025) [Ru/Multi] (1.0.0.8/dlc) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058523.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Perfect Pencil (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058490.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Blind Touch / Слепое касание (2026) [Ru/Multi] (1.16.3) Repack FitG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058397.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Rainbow Gate (2026) [Ru/Multi] (1.3) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058377.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Styx: Blades of Greed (2026) [Ru/Multi] (Build 21847243/dlc) Repack FitGirl [Qua
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058270.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Welcome to Doll Town (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058206.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ KLETKA / КЛЕТЬ (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058113.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Fear The Timeloop (2026) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057973.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Norse: Oath of Blood (2026) [Ru/Multi] (1.0.0/dlc) Repack FitGirl  [Special Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057972.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Norse: Oath of Blood (2026) [Ru/Multi] (1.0.0/dlc) Repack seleZen [Special Editi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057971.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Crisol: Theater of Idols (2026) [Ru/Multi] (1.0 HotFix Build 22025869) Repack Ot
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057969.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Norse: Oath of Blood (2026) [Ru/Multi] (1.0.0/dlc) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057968.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Hallo northern sky 4.2.14a [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037834.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ One Commander Pro 3.34.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037832.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Affinity Photo Beta 1.9.0.212 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037827.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Topaz Photo AI 1.2.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037826.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Affinity Designer Beta 1.9.0.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037825.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Affinity Publisher Beta 1.9.0.902 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037823.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Ashampoo Photo Optimizer 9.0.4.28 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037818.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Telegram Desktop 4.6.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037813.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ NirLauncher Package 1.23.70 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037810.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Invisor - Media File Inspector 3.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037804.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mikel Andrew & JP90 - Colors Of Utopia (2021) Single [MP3|320 Kbps] <Synthpop, E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037792.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Ashampoo UnInstaller 12.00.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037777.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Duplicate Cleaner Pro 5.18.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037775.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ashampoo WinOptimizer 25.00.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037767.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Mind/Matter - Enfant De La Démence (2021) [MP3|320 Kbps] <EBM, Industrial, Tech
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037764.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Fix8:Sed8 - The Inevitable Relapse (2021) [MP3|320 Kbps] <Dark-Electro, EBM, Ind
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037763.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Cockos REAPER 6.20 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037757.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Vyrtual Zociety - Sci Fi Citizen (Complex Version) (2021) [MP3|320 Kbps] <EBM, F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037754.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Subtitle Edit 3.5.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037751.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Master PDF Editor 5.7.08 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037738.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ PDF Shaper Professional 10.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037737.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Navicat Premium 15.0.25 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037733.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037732.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Adobe XD 36.1.32.5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037728.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ CPU-Z 1.95.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037725.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ XnViewMP 0.98.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037720.jpg" />
 </div>
 
 

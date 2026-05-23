@@ -1,55 +1,3 @@
-###  Публикация: 1476789   (1011461) от 12.06.2021
-
-MIUI Калькулятор v12.3.12 + v12.2.0 (Mods) [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Мощный калькулятор с простым интерфейсом MIUI, для любого Android 4.1 и выше. Калькулятор MIUI от Xiaomi, выполняет большинство простых и сложных вычислений. Клавиатура оптимизирована для планшетов и телефонов всех размеров.Тип издания: Original + ModsРелиз состоялся: 23.12.2020Разработчик: Xiaomi, Inc.Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C12145048A1CE9577745C21A1C4CFCFF9E6E852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476738   (1011450) от 12.06.2021
-
-SoloLearn: Учимся программировать 4.7.2 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-SoloLearn - это крупнейшая библиотека материалов по изучению программирования для новичков и профессионалов! Тысячи аспектов программирования помогут вам освоить азы, отточить навыки или просто быть в курсе последних тенденций. С SoloLearn вы можете выучить такие языки программирования как HTML, CSS, JavaScript, PHP, C++, Python, Java, C#, SQL, Swift, Ruby и даже (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 26.05.2021Разработчик: SoloLearnПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654854D0A0363A379F3FB20F487AC68869538D00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352054   (1011055) от 14.06.2021
 
 Parrot Voice Recorder v3.7.8  [En] (обновляемая)
@@ -58,7 +6,7 @@ Parrot Voice Recorder v3.7.8  [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011055.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Total Recall - Call Recorder v2.0.86 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011050.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010911.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Mubert v4.2.0 [Ru/Multi] - сервис фоновой музыки
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010719.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ AUG Launcher v3.7.7 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010640.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Ultra Volume v3.5.4 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010604.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Dictionary - Merriam-Webster v5.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010136.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ POIbase speed camera warner V7.2.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010098.jpg" />
 </div>
 
 
@@ -272,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010093.jpg" />
 </div>
 
 
@@ -301,7 +249,7 @@ Text Scanner v4.1.7 [Ru/En] - извлечение текста из изобр�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010063.jpg" />
 </div>
 
 
@@ -330,7 +278,7 @@ magicplan v9.7.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009945.jpg" />
 </div>
 
 
@@ -356,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009741.jpg" />
 </div>
 
 
@@ -382,7 +330,7 @@ Dictionary.com Premium v9.7.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009666.jpg" />
 </div>
 
 
@@ -408,7 +356,7 @@ Artly v2.9.2 [Ru] - Learn Art History, Artworks & Paintings
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009560.jpg" />
 </div>
 
 
@@ -436,7 +384,7 @@ AVG AntiVirus 2021 v6.39.5 [Ru] - Free Mobile Security
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009256.jpg" />
 </div>
 
 
@@ -462,7 +410,7 @@ Avira Security 2021 v7.8.1 [Ru] - антивирус и VPN
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009213.jpg" />
 </div>
 
 
@@ -488,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009201.jpg" />
 </div>
 
 
@@ -514,7 +462,7 @@ Zemana Antivirus 2021: Anti-Malware & Web Security v2.0.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009114.jpg" />
 </div>
 
 
@@ -540,7 +488,7 @@ Umbrella - Adblock & Firewall v1.6.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009100.jpg" />
 </div>
 
 
@@ -566,7 +514,7 @@ n7player Music Player 3.1.2-287 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008684.jpg" />
 </div>
 
 
@@ -592,7 +540,7 @@ Body Language: Psychology behind everyday gestures v4.2.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008011.jpg" />
 </div>
 
 
@@ -619,7 +567,7 @@ Wannalisn v3.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008006.jpg" />
 </div>
 
 
@@ -646,7 +594,7 @@ GPS Camera with latitude and longitude v1.9.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007991.jpg" />
 </div>
 
 
@@ -672,7 +620,7 @@ Document Viewer v3.3 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007984.jpg" />
 </div>
 
 
@@ -683,6 +631,58 @@ Document Viewer v3.3 [Ru/Multi] (обновляемая)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD79326A129670C2D66F8EC4D7EBAB23ADE2803D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482094   (1007846) от 06.07.2021
+
+KISS Launcher 3.16.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007846.jpg" />
+</div>
+
+
+###  Подробнее
+
+KISS - минималистичный и невероятно легковесный лаунчер. Он занимает менее одного мегабайта и почти не потребляет оперативную память. В нем нет поддержки виджетов и навороченных функций, только список установленных приложений и игр со строкой поиска. Самые нужные приложения можно закрепить внизу экранаТип издания: ОригиналРелиз состоялся: 26.03.2021Разработчик: NeamarПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28B7A0D44541331385003C3C768B78E6C5AEBD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482250   (1007588) от 08.07.2021
+
+F-Stop Gallery Pro 5.3.24 Mod by Balatan [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007588.jpg" />
+</div>
+
+
+###  Подробнее
+
+F-Stop Gallery - Обзор, организация и защита паролем медиа-файлов. "Все-в-одном" приложении, позволяющем обеспечить все вышеперечисленные функции на Вашем Android-устройстве, бесплатно! F-Stop Media Gallery позволяет просматривать медиа-файлы по папкам, альбомам, тегам, рейтингу, частоте просмотра и т.д. Миниатюры мгновенно отображаются, в независимости (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 07.07.2021Разработчик: Seelye EngineeringПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94528C5D260BA2DC936B7D81541F70EADD2E01C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Sleeping Dogs - Limited Edition [Ru] (RePack/ 1.7.424719 + DLC) 2012 l YelloSOFT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374772.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Haunted Domains (P) [En] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374143.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ DeathSpank [En] (RePack) 2010 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373417.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Shaun White Skateboarding [Wii] [PAL] [Multi 5] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373305.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Zombie Driver [Ru] (P) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373176.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон Разума [Ru] (RePack) 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373175.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ The Unholy war [PS1] [RUS] [NTSC] (1998)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372781.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Madden NFL 13 [PS3] [ENG] [PAL] [FULL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372593.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ WRC 3: FIA World Rally Championship [PS3] [ENG] [PAL] [FULL] [3.41/3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372489.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Call of Duty Black Ops 2: Digital Deluxe Edition [Ru] (Rip/1.0.0.1) 2012 l Dange
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372473.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ RUINER (2017) [Ru/Multi] (1.06) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372108.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Dark Sector (2009) [Ru] (1.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371730.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370803.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Craft The World (2014) [Ru/Multi] (1.3.005) Unofficial ALiAS
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370348.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Persona 4 ARENA [PS3] [ENG] [NTSC] [FULL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370126.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ F1 Race Stars [En/Multi7] (RePack/1.0.0.0) 2012 | R.G. ILITA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370079.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ AMY [PS3] [ENG] [PAL] [PSN] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369950.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Dead or Alive 5 [PS3] [ENG] [PAL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369922.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ F1 Race Stars [En/Multi7] (P) 2012 l FLT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369911.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Call of Duty Black Ops 2 [Ru] (Rip) 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369709.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_367737.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Call of Duty: Black Ops 2 [PS3] [ENG] [PAL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367363.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Call of Duty: Advanced Warfare [2014] [Region Free] [ENG] (L) [iXtreme LT+3,0] [
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365797.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Minecraft [Ru/En/Multi56] (L/1.4.2) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364995.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Rage [Xbox360] [FullRus] [PAL] [XGD3] [LT+ 3.0] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_364977.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.318) SteamRip InsaneRamZes [Premium Editio
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364523.jpg" />
 </div>
 
 

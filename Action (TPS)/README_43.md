@@ -6,7 +6,7 @@ I Am Alive (2012) [Ru/Multi] (1.0) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53583.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (14397396) Re
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53581.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Shadow Hush (2024) [En] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53291.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cosmotroid (2024) [En] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53053.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.0.2) Scene FAiRLIGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52499.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Beyond Good & Evil Modern Edition / За гранью добра и зла (2003
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51753.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Crackdown 3 (2019) [Multi] (1.0.2918.2) Scene CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51669.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Resident Evil 6 / Biohazard 6 (2013) [Ru/En] (1.1.0/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51652.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SlavicPunk: Oldtimer (2023) [Ru/Multi] (1.3.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51145.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Metal Gear Rising: Revengeance (2014) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50900.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Marvel’s Spider-Man Remastered (2022) [Ru/Multi] (3.618.0.0/dlc) Repack dixen1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50725.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ HITMAN 3 (III) (2021) [Ru/Multi] (3.190/dlc) Scene Razor 1911 [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50529.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tunguska: The Visitation / Тунгуска: Посещение (2021) [Ru/Multi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50370.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Grand Theft Auto San Andreas (2021) [Ru/Multi] (1.17.37984884) Scene Razor 1911 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50180.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Grand Theft Auto III (3) (2021) [Ru/Multi] (1.17.37984884) Scene Razor 1911 [The
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50087.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Grand Theft Auto Vice City (2021) [Ru/Multi] (1.14718) Scene Razor 1911 [The Def
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50080.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (3.617.1.0/dlc) Repack We
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49988.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/Multi] (1.0) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49974.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Manhunt (2004) [Ru] (1.1) Repack R.G. ReCoding
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49669.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Batman: Arkham Knight (2015) [Ru/Multi] (1.999/dlc) License GOG [Premium Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48743.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ A Day Out (2023) [En] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48651.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.0.2) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48624.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ State of Decay 2 (2020) [Ru/Multi] (34.0/dlc) Scene Rune [Juggernaut Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48438.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/dlc) Repack FitGirl [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48149.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48120.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ EARTH DEFENSE FORCE 6 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48118.jpg" />
 </div>
 
 

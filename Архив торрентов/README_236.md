@@ -6,7 +6,7 @@ Firefox Browser 91.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002534.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ UltraISO Premium Edition 9.7.6.3829 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002530.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002522.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Exocet - Consequence (2011) (Ant-Zen) [FLAC|Lossless|tracks] <Rhythmic Noise, Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002521.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002520.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Enolsoft PDF Compressor 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002519.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Invisible 2.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002518.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Viper FTP 5.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002517.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Unite 3 v3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002515.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ New File Menu 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002514.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Choosey & Exile - Black Beans (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Und
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002513.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ ExpanDrive 7 v7.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002512.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ A Better Finder Attributes 6.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002511.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Slimjet 25.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002509.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ iSkysoft Video Converter Ultimate 11.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002507.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ DxO PhotoLab 3 ELITE Edition 3.1.1 (build 31) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002506.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Numi 3.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002505.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Nmap 7.92 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002497.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.02) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002496.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ SlimBrowser 12.0.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002482.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ MacX MediaTrans 6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002480.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Optimage 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002478.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Enolsoft PDF Password Remover for Mac 3.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002477.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mozilla Firefox Quantum ESR 68.4.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002472.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Bigasoft FLAC Converter 5.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002471.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Auslogics Disk Defrag Pro 9.3.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002469.jpg" />
 </div>
 
 

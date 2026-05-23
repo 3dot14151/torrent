@@ -6,7 +6,7 @@ MAGIX - ACID Pro 11.0.1.17 Suite (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528591.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Integraudio & Sixth Sample - Clips 1.0.0 VST 3 RePack by FLARE [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521891.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Toontrack - Superior Drummer 3 3.0.1 STANDALONE, VSTi x64 + SDX Core Basic Sound
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519918.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Xfer Records LFOTool 1.768 VST, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518732.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ D16 Group - PunchBOX 1.0.6 VSTi, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518117.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ FAW SubLab 1.1.8 Beta 6 STANDALONE, VSTi, VSTi3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517662.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Naughty Seal Audio - Perfect Drums 1.6.0 STANDALONE, VSTi, VSTi3, AAX, WIN.OSX x
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516943.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ OLYMPUS DSS Player Standard 2.1.0.0 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515016.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Tone2 - Gladiator 3.5.2 STANDALONE, VSTi, VSTi3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514502.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ FAW SubLab 1.1.8 STANDALONE, VSTi, VSTi3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513608.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SuperEasy Audio Converter 3.0.5224 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512726.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Klevgrand - Fosfat 1.0.0 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512452.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Initial Audio - Reverse 1.3  VST2, VST3 (x86/x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511491.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ IK Multimedia - MODO DRUM 1.5.0 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511442.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Sugar Bytes - Factory 1.1.1 STANDALONE, VSTi, VSTi3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509035.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Sugar Bytes - Turnado 1.7.4 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509029.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Ample Sound - Ample Bass Upright III v3.00 VSTi, VSTi3, AAX x64 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508712.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ zplane - vielklang Instant Harmony 2.4.3 VSTi, VSTi3, AAX (x86/x64) RePack by VR
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507708.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506062.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Singomakers Fatmaker 1.1.0 VST (x86/x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497744.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Ample Sound - ABP Lite II 2.3.1 VST2, VST3, RTAS, AAX x86 x64 Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497580.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Vengeance Producer Suite - Avenger 1.4.10 + Factory content & Expansion Packs VS
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496175.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Tone Projects - Unisum 1.1.3 VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494783.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Tone Projects - Kelvin 1.5.0 VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494773.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Focusrite - Fast Balancer 1.0.0 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494566.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Cakewalk - Z3TA+ 2.1 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493018.jpg" />
 </div>
 
 

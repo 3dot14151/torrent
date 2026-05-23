@@ -1,55 +1,3 @@
-###  Публикация: 1264904   (276349) от 26.11.2018
-
-Мой путь / Mai wei / My Way (2011) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Чжун Щик мечтал принять участие в олимпийском марафоне, а Тацуо был лучшим бегуном Японии. Все изменил один день. Чжун Щик был призван служить в японскую армию, где как по велению судьбы он встречает Тацуо, который в то время уже был там командующим. Вдвоем они оказались участниками Второй мировой войны и носили форму Японии, СССР и даже Германии, прежде чем наконец (   Читать дальше...   )Производство: Корея Южная / CJ Entertainment, Directors, SK PlanetЖанр: Боевик, Драма, Военный, ИсторияРежиссер: Канг Дже ГюАктеры: Чан Дон Гюн, Дзё Одагири, Фань Бинбин, Ким Инквон, Han Seung-Hyeon, Jin-seok Yang, Ji-han Do, Hee-won Kim, Ли Ён Хи, Ji-woong WiПеревод: Одноголосый закадровый, Двуголосый закадровыйСубтитры: русскиеПродолжительность: 02:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC07C33A4F6D3C52F7C9236B1B840284C9DCBE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265246   (276281) от 26.11.2018
-
-Над небесами / Beyond The Sky  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В день, когда Крису исполнилось 7 лет, его мать, поругавшись с отцом, ушла из дома и не вернулась. Отец-алкоголик всю жизнь считал, что супругу забрали инопланетяне, поэтому уже взрослым Крис посвятил жизнь разоблачению так называемых похищений. Вместе с оператором он едет на конвент, чтобы взять интервью у людей, имевших подобный опыт. Там документалисты знакомятся (   Читать дальше...   )Производство: США / Elysian Fields EntertainmentЖанр: фантастика, триллер, детективРежиссер: Фулвио СеститоАктеры: Райан Карнес, Джордан Хинсон, Клод Дюамель, Мартин Сенсмейер, Дон Старк, Петер Стормаре, Милтон Чи, Трэвис Уолтон, Ди Уоллес-Стоун, Даниэль Бургио, Джоди Бентли, Джесси МитчеллПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 01:21:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30554B9DC65D83F372EF26539ADCD4B5605A3E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264883   (276278) от 26.11.2018
 
 Замёрзшие / Frozen (2010) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276278.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276277.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276275.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276273.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276194.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276191.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276186.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276183.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276079.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276073.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_276059.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276056.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276027.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276011.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275940.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275932.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275904.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275891.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275889.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275882.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275841.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275779.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275773.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275763.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42370D2602E24574CDA1E9E59255D1DBE6D607E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337243   (275750) от 09.11.2019
+
+Искусство самообороны / The Art of Self-Defense (2019) BDRip [H.264/1080p] [EN / RU, EN Sub] [PR]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стеснительный 34-летний бухгалтер с женственным именем Кэйси Дэвис как-то ночью отправляется за собачьим кормом. По дороге на него совершают нападение неизвестные на мотоциклах и сильно избивают, да так, что парень несколько дней вынужден пролежать в больнице. Встав на ноги, Кэйси отправляется покупать пистолет, и пока бумаги на огнестрельное оружие проходят одобрение, (   Читать дальше...   )Производство: США / End CueЖанр: Комедия, спорт, драма, триллерРежиссер: Райли СтернсАктеры: Джесси Айзенберг, Алессандро Нивола, Имоджен Путс, Стив Терада, Филлип Андре Ботельо, Каролин Амиге, Аполло Бакала, Хауке Бар, Джейсон Бёрки, Джастин ИтонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (FOCS), АнглийскиеПродолжительность: 01:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A90ACAA2A2F16832BB35550EB5CF9E9F4336361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273559   (275721) от 21.12.2010
+
+Хронос / Cronos (1993) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275721.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Хронос» — это чудесное маленькое устройство, которое, сбежавший из Испании в Мексику гениальный алхимик Умберто Фальконелли, изобрел в 1536 году. Устройство, дарующее бессмертие… Правда, в 1937 году жизнь алхимика все-таки оборвалась в результате трагической случайности. Потому что «Хронос» обещал вечную жизнь при условии, что владелец будет собственной кровью питать его… Имущество особняка, где жил алхимик, было продано с молотка. И вот однажды хозяин антикварного магазина старик Хесус Грис расковырял фигурку ангела и, обнаружив внутри странную коробочку, привел в действие ее заводной механизм… Так у «Хроноса» появился новый владелец, но не только ему был известен секрет бессмертия…Жанр: Ужасы, ДрамаРежиссер: Гильермо Дель Торо /Guillermo del Toro/Актеры: Федерико Луппи /Federico Luppi/, Рон Перлман /Ron Perlman/, Клаудио Брук /Claudio Brook/, Маргарита Исабель /Margarita Isabel/ и др.Перевод: Профессиональный (многоголосый,закадровый) / Оригинальный (испанский)Продолжительность: 01:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB37DF9920572226482D619AD70C6147D438149
 ```
 
 https://mybot314.ru/tekegram_catalog/

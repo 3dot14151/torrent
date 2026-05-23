@@ -6,7 +6,7 @@ R-Studio 7.7 Build 159204 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584111.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ KMS Tools Portable 06.08.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584060.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MPC HomeCinema 1.5.2.3302 (x64/x86) + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584045.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ R-Studio 7.7 Build 159204 Network Edition RePack (& portable) by D!akov [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584017.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FastStone Image Viewer 7.0 RePack (& Portable) by elchupakabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584000.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SaveGameBackup.net 1.2 [Multi8-/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583978.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PrivaZer 2.34.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583964.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ R-Studio 7.7 Build 159204 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583912.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ R-Studio 7.7 Build 159204 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583906.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ FileLocator Pro 7.5 Build 2104 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583904.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mp3tag 2.71 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583898.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Bandicam 2.2.3.805 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583845.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Inno Setup 5.5.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583835.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Bandicam 2.2.3.805 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583806.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ DVD-Ranger 6.1.3.2 [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583801.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Blender 2.75a + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583796.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Calibre 2.32.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583747.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Zoner Photo Studio Pro 17.0.1.12 Portable by punsh [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583745.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ BitTorrent Pro 7.9.3 build 40761 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583729.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Kaspersky World 1.2.1.51 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583717.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ SereneScreen Marine Aquarium v3.1.5563 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583716.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Firefox Browser 91.9.1 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583705.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Mp3tag 3.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583703.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Acoustica Premium Edition 7.4.1 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583701.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ WinTools.net Premium 22.5 RePack (& portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583698.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Pulsar Audio - Pulsar Massive 1.0.8 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583697.jpg" />
 </div>
 
 

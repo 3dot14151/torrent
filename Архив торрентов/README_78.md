@@ -6,7 +6,7 @@ PotPlayer 1.7.21419 (DC 210201) RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034342.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Macrium Reflect v 7.3.5555 x64 Home [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034339.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ MyHeritage v.5.7.1 [Ru/Multi] - Семейное дерево, ДНК и пои�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034331.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ XnView Classic 2.49.5 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034330.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Castbox v8.22.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034323.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Nox App Player 7.0.5.5000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034306.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034301.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ R-Drive Image System Recovery Media Creator 7.1 Build 7103 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034295.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ IObit Driver Booster Pro 8.3.0.361 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034291.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Adobe Photoshop 2023 24.2.1.358 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034255.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Author 6.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034247.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ NCH DeskFX Plus 3.01 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034246.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Airtool 2 v2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034239.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ MediaHuman Youtube Downloader 3.9.9.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034214.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ FreeFileSync 11.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034204.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Google Chrome 88.0.4324.146 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034200.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Pale Moon 29.0.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034198.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ IcoFX 3.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034196.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Allavsoft Video Downloader Converter 3.23.3.7702 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034194.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Adobe InCopy 2021 16.1.0.20 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034189.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Desktop Calendar 2.3.87.5367 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034186.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Opera 74.0.3911.75 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034184.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Ant Download Manager Pro 2.2.0 Build 76444 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034183.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ LDPlayer 4.0.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034161.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Iron Maiden: Наследие Зверя v335738 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034157.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Topaz Sharpen AI 2.2.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034153.jpg" />
 </div>
 
 

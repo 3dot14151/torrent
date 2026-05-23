@@ -6,7 +6,7 @@ GrandTotal 7 v7.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036962.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ LuLu 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036951.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Balvanera - Courses of Action (2021) [MP3|320 Kbps] <EBM, Wave, Synth>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036949.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Same Eyes - Parties to End (2021) [MP3|320 Kbps] <Synthpop, Darkwave, New Wave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036936.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 25.02.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036927.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2023.02.28 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036911.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Wolftron - Love Is Deathless (2021) [MP3|320 Kbps] <Darksynth, Synthwave, Cyberw
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036904.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Rhys Fulber - Live Dystopia (2020) [MP3|320 Kbps] <EBM, Techno, Industrial, Elec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036903.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Condition One - Spotlight (2020) [MP3|320 Kbps] <Synthpop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036879.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ eM Client Pro 8.1.1032.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036853.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036848.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Topaz Gigapixel AI 5.4.3 (24.01.2021) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036830.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ IsMyHdOK 2.77 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036827.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ AllDup 4.5.33 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036713.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Cockos REAPER 6.76 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036710.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ IObit Driver Booster Pro 10.3.0.124 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036709.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ reaConverter Pro 7.775 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036708.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ IObit Driver Booster Pro 10.3.0.124 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036706.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Skype 8.94.0.428 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036702.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Firefox Browser 110.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036696.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ CPU-Z 2.05.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036689.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Autorun Organizer 5.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036685.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Windows 11 Manager 1.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036680.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ jv16 PowerTools 7.7.0.1532 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036678.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ FanControl V148 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036677.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ MediaHuman YouTube Downloader 3.9.9.80 (2802) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036676.jpg" />
 </div>
 
 

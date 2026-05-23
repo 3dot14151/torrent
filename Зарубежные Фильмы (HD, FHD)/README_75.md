@@ -1,55 +1,3 @@
-###  Публикация: 1458800   (1023542) от 30.03.2021
-
-Грань времени / Synchronic (2019) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Два закадычных друга Стив и Деннис работают врачами скорой помощи в Новом Орлеане. Последнее время они сталкиваются со странными несчастными случаями и не менее загадочными смертями, как-то связанными с новым синтетическим наркотиком под названием Synchronic. Приехав на очередной вызов, друзья выясняют, что дочь-подросток Денниса тоже попробовала модный наркотик, (   Читать дальше...   )Производство: США / Patriot Pictures LLC, Pfaff & Pfaff Productions, Love & Death Productions (LDP), Rustic FilmsЖанр: Фантастика, драмаРежиссер: Джастин Бенсон, Аарон МурхедАктеры: Энтони Маки, Джейми Дорнан, Элли Иоаннидес, Кэтрин Аселтон, Рамиз Монсеф, Билл Оберст мл., Бетси Холт, Шэйн Брэйди, Кейт Эдейр, Мэттью АндервудПеревод: Дублированный (iTunes), Одноголосый закадровый (М. Яроцкий)Язык озвучки: Русский, английскийСубтитры: Английские(Full, SDH)Продолжительность: 01:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8E0AE6CB194CA898DE8B7E8984188D4549E84E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458674   (1023541) от 30.03.2021
-
-Отец / The Father (2020) WEBRip [H.265/1080p-LQ] [HDR, 10-bit] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Энтони далеко не молод и живет один в Лондоне, что очень тревожит его дочь. Она не хочет оставлять отца без присмотра и пытается найти ему сиделку. Энтони отметает все предложенные варианты. Однако, планируя переезд в Париж, дочь не спешит сдаваться. Она становится все настойчивее в попытках найти для упрямого папочки идеальную женщину.Производство: Великобритания, Франция / AG Studios NYC, Cine@, Embankment Films, F Comme Film, Film4, Trademark Films, ViewfinderЖанр: ДрамаРежиссер: Флориан ЗеллерАктеры: Оливия Колман, Энтони Хопкинс, Марк Гатисс, Оливия Уильямс, Имоджен Путс, Руфус Сьюэлл, Айеша Дхаркер, Роман Зеллер, Скотт Маллинз, Рэй БернетПеревод: Двуголосый любительскийЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A623BD58D0600EE57770DD36D8ACEBC1FAC3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459151   (1023456) от 31.03.2021
 
 Бархатная бензопила / Velvet Buzzsaw (2019) WEBRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023456.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023423.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023414.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023411.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023403.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023398.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023396.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023392.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023390.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023384.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023378.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023369.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023354.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023348.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023270.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023268.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023253.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023252.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023251.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023214.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023209.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023197.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023183.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023093.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A2C865C03B046B516A7B864AC38FB48C12B153C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459473   (1023088) от 02.04.2021
+
+Клуб холостяков / Divorce Club (2020) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023088.jpg" />
+</div>
+
+
+###  Подробнее
+
+После пяти лет брака Бен, по-прежнему влюбленный в жену, узнаёт, что она ему изменяет. Он оскорблён и подавлен. Но Бен встречает старого приятеля Патрика, разведённого собрата по несчастью. Тот, в отличие от Бена, пользуется полной свободой, которой ему так не хватало в браке. К ним присоединяется всё больше и больше холостяков, которые организовывают «Клуб холостяков» (   Читать дальше...   )Производство: Франция / Radar Films, SND Films, M6 FilmsЖанр: КомедияРежиссер: Микаэль ЮнАктеры: Арно Дюкре, Франсуа-Ксавье Демезон, Одри Флеро, Каролин Англад, Юсеф Хаджди, Грегуар Бонне, Микаэль Юн, Орнелла Флёри, Маттео Саламоне, Шарлотта ГабрисПеревод: Многоголосый профессиональный (iTunes)Язык озвучки: Русский, французскийСубтитры: Английские (Full)Продолжительность: 01:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1A0E938E785CFEC341FBD1DB741CDCF2FFCDF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459485   (1023072) от 02.04.2021
+
+Клуб холостяков / Divorce Club (2020) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023072.jpg" />
+</div>
+
+
+###  Подробнее
+
+После пяти лет брака Бен, по-прежнему влюбленный в жену, узнаёт, что она ему изменяет. Он оскорблён и подавлен. Но Бен встречает старого приятеля Патрика, разведённого собрата по несчастью. Тот, в отличие от Бена, пользуется полной свободой, которой ему так не хватало в браке. К ним присоединяется всё больше и больше холостяков, которые организовывают «Клуб холостяков» (   Читать дальше...   )Производство: Франция / Radar Films, SND Films, M6 FilmsЖанр: КомедияРежиссер: Микаэль ЮнАктеры: Арно Дюкре, Франсуа-Ксавье Демезон, Одри Флеро, Каролин Англад, Юсеф Хаджди, Грегуар Бонне, Микаэль Юн, Орнелла Флёри, Маттео Саламоне, Шарлотта ГабрисПеревод: Многоголосый профессиональный (iTunes)Язык озвучки: Русский, французскийСубтитры: Английские (Full)Продолжительность: 01:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399A9E49EB6149EDCF80B63E9B5A4745202CCBB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

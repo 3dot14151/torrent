@@ -6,7 +6,7 @@ The Chamber Orchestra of Europe feat. conductor  Claudio Abbado - Gioacchino Ros
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900824.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Anna Netrebko, Rolando Villazon, Thomas Hampson - Violetta. Arias And Duets From
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900737.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Debussy & Ravel - Monique Haas (2007) 6CD Box Set [FLAC|Lossless|tracks + .cue] 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900649.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Grieg, Prokofiev - Piano Concerto in A; Piano Concerto no. 3 (Nikolai Lugansky, 
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900594.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900587.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900571.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Amira Willighagen - Merry Christmas (2015) [MP3|192 кб/с] <Classical, Opera>
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900518.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ London Philharmonic Orchestra - The Symphonic Music of Pink Floyd (1995) [FLAC|L
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900512.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Great Pianists of the 20th Century: The Complete Edition (1998 - 1999) Box 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900289.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ De Monte - Laudate Dominum (Currende, Erik Van Nevel) (2001) [FLAC|Lossless|imag
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899355.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ The New London Chorale - The Young Mendelssohn (2003) [FLAC|Lossless|image + .cu
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898917.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ The Royal Philharmonic Orchestra - Symphonic Rock (2004) Box Set, 2CD [FLAC|Loss
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898839.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Ravel, Debussy, Mussorgsky - Herbert von Karajan, Berliner Philharmoniker (1995)
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898796.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Jean Pierre Rampal (flute), Pierre Perliot (Oboe), Lszt Chamber Orchestra - Hayd
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897445.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Elina Garanca, Roberto Abbado, Filarmonica del Teatro Communale di Bologna - Bel
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897389.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ The USSR Ministry of Culture Symphony Orchestra conductor G.Rozhdestvensky - Alf
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897301.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Chicago Symphony Orchestra - Rachmaninoff - Piano Concerto No.2 in C minor, Op. 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897296.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Anna Netrebko - Souvenirs (2008) Deluxe Limited Edition Package, CD+DVD [FLAC|Lo
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897245.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Rachmaninov & Tchaikovsky - Piano Concertos Nos.2 & 1 - Sviatoslav Richter (1995
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897070.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Richard Wagner - Tristan & Isolde (2007) [FLAC 2.0|192/24|tracks|WEB-DL] <Classi
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897055.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Edvard Grieg - Piano Concerto a minor op 16, Sonata for Violin and Piano no 3 (2
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897050.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Christoph Willibald Gluck - Orfeo Ed Euridice - Sigiswald Kuijken (1982) remaste
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895673.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Magdalena Kozena - Le Belle Immagini (2001) - Mozart, Gluck, Myslivicek; [FLAC|L
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895670.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Renee Fleming - The Art Of Renee Fleming (2012), compilation [FLAC|Lossless|imag
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895521.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ W.A. Mozart - Requiem (1976) Compilation, 1998, Teledec Classics [FLAC|Lossless|
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895448.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ L'Orfeo Baroque Orchestra, dirigent Michi Gaigg - Christoph Willibald Gluck: Fiv
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895349.jpg" />
 </div>
 
 

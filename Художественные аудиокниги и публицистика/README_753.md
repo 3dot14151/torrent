@@ -1,82 +1,3 @@
-###  Публикация: 1618018   (201569) от 09.03.2023
-
-Игорь Евдокимов | За чужой мечтой (Книга 1). Попал так попал (2022) [MP3, Александр Егоров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-На что ты способен, если вселенная выбросила тебя за свои пределы, а в новом мире можно опираться только на собственные находчивость и смекалку - предстоит узнать простому школьнику. Он не боец спецназа, не великий воин и не спортсмен. У него нет магических артефактов или прокаченного скилла. Он один из нас, парень из соседнего дома, которому нереально повезло попасть (   Читать дальше...   )Жанр: Попаданцы в космос, Космическая фантастика, Боевое фэнтези, EVEПродолжительность: 09:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CB6D6C4C640E387059D452F162AF09A489728A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617845   (201558) от 08.03.2023
-
-Михаил Игнатов | Путь (Книга 5). Исход. Первый пояс (2023) [MP3, Олег Кейнз]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-На землях предков, куда ты когда-то так рвался, ещё никогда твой путь не шёл так, как задумывалось. С чего надеялся, будто то, что началось как бегство из города Древних за его воротами пойдет иначе?
-Ты ошибался. Твои спутники ошибались. Но ошиблись и те, кто решил встать на вашем пути. Ошиблись те, кто решил, будто тебе можно угрожать, не представляя себе ни твоей (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 14:23:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6140B371B2208D198961E03BBD7B5940C79C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617827   (201540) от 08.03.2023
-
-Александр Кронос | Эйгор (Книга 1). В потёмках (2023) [MP3, Юрий Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Тебя засовывают в капсулу для проведения экспериментальной операции по лечению смертельного недуга. А просыпаешься ты в теле принца, которого пытались прикончить вместе со всей его семьёй. Всё, что осталось в наследство от его разума – мышечная память и язык. Власть уже в руках твоего «дяди», ставшего регентом при выжившем семилетнем брате, а тебя для сохранения (   Читать дальше...   )Жанр: Боевое фэнтези, Попаданцы, СтимпанкПродолжительность: 12:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86714703E52FA2B80D2CC7DEA0ABF3A12ACE5046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 111137   (201534) от 08.03.2023
 
 Владимир Орлов | Шеврикука, или Любовь к привидению (2008) [MP3, Евгений Терновский]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201534.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201502.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201501.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201499.jpg" />
 </div>
 
 
@@ -191,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201495.jpg" />
 </div>
 
 
@@ -219,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201475.jpg" />
 </div>
 
 
@@ -245,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201450.jpg" />
 </div>
 
 
@@ -271,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201419.jpg" />
 </div>
 
 
@@ -300,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201383.jpg" />
 </div>
 
 
@@ -326,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201379.jpg" />
 </div>
 
 
@@ -352,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201366.jpg" />
 </div>
 
 
@@ -378,7 +299,7 @@ Wh1skeyCo1a | Проклятый цензурой (2021) [MP3, Проводни�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201339.jpg" />
 </div>
 
 
@@ -406,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201320.jpg" />
 </div>
 
 
@@ -433,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201276.jpg" />
 </div>
 
 
@@ -459,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201239.jpg" />
 </div>
 
 
@@ -485,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201182.jpg" />
 </div>
 
 
@@ -511,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201180.jpg" />
 </div>
 
 
@@ -537,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201174.jpg" />
 </div>
 
 
@@ -564,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201128.jpg" />
 </div>
 
 
@@ -590,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201106.jpg" />
 </div>
 
 
@@ -616,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201105.jpg" />
 </div>
 
 
@@ -644,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201096.jpg" />
 </div>
 
 
@@ -673,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201090.jpg" />
 </div>
 
 
@@ -684,6 +605,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89EA126219FADB54707CD32CDB7235935E714F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620629   (201057) от 21.03.2023
+
+Максим Зарецкий | Небесный шаг (Книга 10) (2023) [MP3, Александр Чайцын]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пустота. Одушевлённый воид, нарушение всех мыслимых законов реальности, неба и земли. Его рождение ознаменовало начало конца. Тень нависла над атоллом человеческого влияния и всей известной людям вселенной.Жанр: фантастика, фэнтезиПродолжительность: 10:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB82F311D889653FA7A175BC702B8B09BEF326A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620628   (201045) от 21.03.2023
+
+Серг Усов | Превозмоганец-прогрессор (Книга 7) (2023) [MP3, Евгений Лебедев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказавшись в средневековом магическом мире, не получив при этом полагающихся любому нормальному попаданцу плюшек и роялей, наш современник не растерялся и смог устроить свою жизнь, найти друзей и любимую женщину.
+Игорь стал владетелем графства, другом и советником правительницы Гирфеля, получил необычные для этого мира магические способности. Одержав победу над врагами, (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 08:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5486E5D305912D5ADD59350B3405D9FF2A47F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620886   (201008) от 22.03.2023
+
+Борис Романовский | Дельта (Книга 3). Создающий будущее (2023) [MP3, Вадим Пугачев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_201008.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Создающий будущее» – фантастический роман Бориса Романовского, третья книга цикла «Дельта», жанр попаданцы, бояръ-аниме, РеалРПГ.
+
+Я – Владислав Ли-Вавилонский, потомок двух родов из разных стран – Азиатского Содружества и Руси. И я вернулся на двадцать два года в прошлое, чтобы изменить будущее.
+Изначальный Мир – место, в котором каждый человек может начать эволюцию (   Читать дальше...   )Жанр: Попаданцы, РеалРПГ, Бояръ-анимеПродолжительность: 08:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29434A8DF40B9C6440F722A7BB3BFA244F51F6A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

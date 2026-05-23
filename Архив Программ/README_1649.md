@@ -6,7 +6,7 @@ Adguard 7.5.3 (7.5.3430.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217139.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MAGIX Movie Edit Pro 2019 Premium 18.0.2.225 (x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217129.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tor Browser Bundle 5.0.6 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217124.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AMD Radeon Software Crimson Edition 15.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217112.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Opera 82.0.4227.23 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217092.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sandboxie 5.60.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217070.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MSI Afterburner 4.6.4.16254 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217066.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Aiseesoft Blu-ray Ripper Ultimate 6.3.56 RePack by casper03
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217062.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ EZ CD Audio Converter 9.5.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217042.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Opera GX 91.0.4516.102 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217021.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Defraggler 2.12.628  (x86/x64)  [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217012.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Soft4Boost Easy Disc Burner 5.0.9.493 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216983.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216955.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Sandboxie plus 1.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216950.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Soft4Boost Secure Eraser 4.3.1.489 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216905.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Brave Browser 1.45.113 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216884.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Punto Switcher 3.2.8 Build 94 DC 11.12.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_216857.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Reg Organizer 6.0 Beta 3 [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_216832.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216824.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ RarmaRadio Pro 2.74.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216801.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Slimjet 6.0.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216791.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Google Chrome 107.0.5304.63 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216785.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Opera GX 101.0.4843.42 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216784.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Mozilla Firefox 51.0 beta 9 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216783.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ MAGIX Sound Forge Audio Studio 12.6.0.361 [Multi/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216781.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Firefox Browser 106.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216777.jpg" />
 </div>
 
 

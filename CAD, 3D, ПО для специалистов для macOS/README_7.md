@@ -6,7 +6,7 @@ Moho Pro for Mac 14 v14.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62146.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.3.6 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61448.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ JetBrains PyCharm Professional for Mac 2023.3.5 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61443.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ JetBrains PhpStorm for Mac 2023.3.6 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61428.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ JetBrains DataSpell for Mac 2023.3.5 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61067.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Live Home 3D Pro Edition 4.9 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60985.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Autodesk AutoCAD 2025 for Mac V.58.M.214 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58218.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ JetBrains PhpStorm 2024.2.3 macOS Repack by Sitego [En] (Intel & Apple Silicon)
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4715.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ HCL Lotus Notes 14.0 Fix Pack 2 [En/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4709.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ GRAPHISOFT ArchiCAD 28.2.2 ARM [Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2548.jpg" />
 </div>
 
 

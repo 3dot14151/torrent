@@ -1,29 +1,3 @@
-###  Публикация: 1337987   (271433) от 13.11.2019
-
-NG: Лики Власти / Icons of Power (2006) HDTV [H.264/1080i-LQ] (фильмы 4 из 4)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Екатерина Великая, Генрих VIII с Анной Болейн, Пётр I и Наполеон. Кровопролитные сражения, тайны дворцовых переворотов, расцвет и падение империй. Частная жизнь коронованных особ.Производство: США, National GeographicЖанр: Документальный, история, биографияРежиссер: Дон Кемплер, Мартен Прово, Даг ШульцПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 4x ~01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E30E40FE2560C0887F7B85EABC152D26383B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337976   (271432) от 13.11.2019
 
 BBC. Энди Гамильтон в поисках Сатаны /Andy Hamilton's Search for Satan (2011) HDTVRip [H.264/720p-LQ]
@@ -32,7 +6,7 @@ BBC. Энди Гамильтон в поисках Сатаны /Andy Hamilton's
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271432.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271425.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ BBC. Сокровища Древнего Рима / The Treasures of Ancient Rom
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271379.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ NGW: Династия дельфинов / Dolphin Dynasty (2016) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270890.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ BBC Horizon. Следи за собой / Monitor Me (2013) HDTVRip [H.264/720p-
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270452.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ NG. Американская мафия изнутри / Inside the American Mob
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270404.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ National Geographic. Американская мафия изнутри / Inside
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270394.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ BBC Horizon. Сделало ли приготовление пищи нас лю
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270211.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_270125.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ NG: Невероятное путешествие Хаббла / Hubble's Amazin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269992.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ NG: Марсоход Curiosity / Curiosity. Life of a Mars Rover (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269980.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Discovery: Битва за Чернобыль / Battle of Chernobyl (2006) TVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269847.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ BBC. Horizon: Чернобыль. Внутри саркофага / Inside Chern
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269782.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ NG. Место жительства - Марс (Заселение Марса) /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269153.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ PBS Nature: Попугаи в стране Oз / Parrots in the Land of Oz (2008
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268750.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ NG: Чудища морей. Доисторическое Приключение
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268744.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ BBC: Мир природы. Китовая акула / Natural World. Whale Sha
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268728.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ NG: С точки зрения науки: Апокалипсис каменно
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267985.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Discovery. Миллионы Пабло Эскобара / Finding Escobar’s Mi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267891.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ NGW. Дикая природа Средиземноморья: Последни�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267757.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ NGW: Дикие места Африки. Битва полов / Africa's Wild S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267725.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ NG. Экстремальный Китай. Подземный Ханжонг / E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267722.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ NGW: Изгои среди животных (Животные-разбойник
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267716.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ History Channel: Тайны китайских колесниц / Secret of the 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266836.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266740.jpg" />
 </div>
 
 
@@ -672,6 +646,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66F8A9CD55E6EE6A34064B9DF915745ECE913763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190751   (266673) от 10.12.2017
+
+Мамонты. Гиганты ледникового периода / Mammoths: Giants of the Ice Age (2014) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Доисторический мир
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266673.jpg" />
+</div>
+
+
+###  Подробнее
+
+О гигантских млекопитающих ледникового периода. О других существах, населявших планету наряду с мамонтами, - шерстистом носороге, саблезубой кошке, пещерном льве и большерогом олене. О том, как меняющиеся погодные условия и вмешательство людей постепенно привели к исчезновению этих удивительных животных.Производство: Германия, Bilderfest GmbH Factual Entertainment for ZDFЖанр: Документальный, научно-познавательный, историяРежиссер: Флориан БрейерПеревод: Одноголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179F8759B740BF63378D43C3305BD792B3CE65D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

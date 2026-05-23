@@ -1,55 +1,3 @@
-###  Публикация: 1388767   (785048) от 08.06.2020
-
-Обратная связь / Feedback (2019) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Популярный журналист Джарвис Долан ведёт ночную радиопрограмму под названием «Суровая реальность». Он заработал репутацию на резкой манере общения и новостях про звёзд, и грядущий эфир собирался начать с раскрытия публике очередного скандала. Но в этот вечер всё пошло не так — в студию вламываются двое вооружённых неизвестных в масках, и у них свой план ведения передачи.Производство: Испания, США / Ombra Films, Vaca Films, Xunta de GaliciaЖанр: Триллер, криминалРежиссер: Педро КорредоираАктеры: Эдди Марсан, Пол Андерсон, Ивана Бакеро, Ричард Брэйк, Оливер Куперсмит, Алексис Родни, Энтони Хэд, Алана Боден, Начо Альдегуэр, Стивен ХьюзПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D7F77283569206EBA32A5C5C7CC5CBF05A2851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 405680   (785043) от 08.06.2020
-
-Ларри Краун / Larry Crowne (2011) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-До своего увольнения приветливый и любезный Ларри Краун был преуспевающим командным руководителем крупной компании, в которой он работал после службы на флоте. Под тяжестью ипотеки и будучи в неясности от того, что делать с внезапно появившимися свободными днями, Ларри направляется в местный колледж, чтобы начать всё сначала.Производство: США / Playtone Productions, Universal Pictures, Vendome PicturesЖанр: драма, мелодрама, комедияРежиссер: Том ХэнксАктеры: Том Хэнкс, Джулия Робертс, Седрик «Развлекатель», Тараджи П. Хенсон, Брайан Крэнстон, Гугу Эмбата-Ро, Уилмер Вальдеррама, Пэм Гриер, Мария Кэнелс-Баррера, Рита УилсонПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0905D60BE72953CBFC5371896303373437F20D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204347   (784895) от 05.02.2018
 
 Клуб радости и удачи / The Joy Luck Club (1993) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784895.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784822.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784811.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784805.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784735.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784730.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784720.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784718.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784699.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784600.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784573.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784570.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784536.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784534.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784486.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784322.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784303.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784275.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784269.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784227.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784219.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784218.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784149.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784146.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:513DDB2E141025A7AEA5341B666DD106F2A80E0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389488   (784145) от 11.06.2020
+
+Русская невеста / The Russian Bride (2019) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбежав от бывшего мужа-алкоголика, Нина с 11-летней дочерью Дашей отправляется из России в Америку, чтобы выйти замуж за обеспеченного пенсионера Карла Фредерика, бывшего пластического хирурга. Прибыв в его роскошный особняк в отдалении от города, мать и дочь попадают под очарование будущего мужа и отчима. Но вскоре раскрываются трагические тайны прошлого Карла, (   Читать дальше...   )Производство: США / Reigning Entertainment, Millman Productions, Edge West ProductionsЖанр: Ужасы, триллерРежиссер: Майкл С. ОйедаАктеры: Корбин Бернсен, Оксана Орлан, Кристина Пименова, Лиза Гудман, Майкл Роберт Брэндон, Элисон Корман, Ефим Сомен, Грегори О’Галлахер, Кинэн Джонстон, Джон Пол БрандтПеревод: Профессиональный многоголосый, любительский одноголосыйСубтитры: Английские (Full, SDH)Продолжительность: 01:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F4A88507B37979349BD40A91E84710B960EB6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389460   (784134) от 11.06.2020
+
+Ритм-секция / The Rhythm Section (2020) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три года назад вся семья Стефани Патрик погибла в авиакатастрофе. Женщина никак не может оправиться от трагедии и опустилась на самое дно жизни. Однажды на неё выходит журналист, который уверен, что та катастрофа была результатом взрыва, а человек, изготовивший бомбу, сейчас находится в Лондоне. Стефани решает отомстить любой ценой.Производство: Великобритания, Испания, США, Babieka, Eon Productions, IM GlobalЖанр: Боевик, триллер, драма, детективРежиссер: Рид МораноАктеры: Блэйк Лайвли, Джуд Лоу, Стерлинг К. Браун, Дэниэл Мейс, Макс Каселла, Джофф Белл, Раза Джеффри, Ричард Брэйк, Джейд Аноука, Джек МакЭвойПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Украинские (Full), АнглийскиеПродолжительность: 01:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6D998978454A2DF69D661135353410CF7C5C9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

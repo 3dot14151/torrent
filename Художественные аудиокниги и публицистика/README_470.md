@@ -1,84 +1,3 @@
-###  Публикация: 1044717   (563103) от 21.08.2016
-
-Бернар Вербер | Муравьи (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Этот многомиллионный город занимает на поверхности земли всего два квадратных метра!
-Его жильцы – самые трудолюбивые существа в мире!
-Их умение подчиняться правилам – мечта любого диктатора!
-Их интеллекту можно только позавидовать!(   Читать дальше...   )Жанр: Социальная фантастикаПродолжительность: 10:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10161EC5211A18AF0A1EB9738C7A1972264DF625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556083   (563092) от 07.06.2022
-
-Михаил Ахметов | Разрушители звезд (2021) [MP3, Юрий Белик]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-2334 год. Великая Война началась двадцать два года назад. Цивилизации Земли и Васуды, которые долго и ожесточенно сражались за доминирование в космосе, были вынуждены заключить мир и основать союз, ставший новым Альянсом. Теперь они вместе противостояли неожиданной и страшной угрозе, вдруг появившейся из темных глубин пространства. И враг был повержен. Повержен в (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 25:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350DF4E41414C6A785952C51EFAC0177AD188E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556152   (563084) от 07.06.2022
-
-Андрей Булычев | Егерь Императрицы (Книга 7). Крым (2022) [MP3, Сергей Уделов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На границе между Османской и Российской империями неспокойно, а уж на Бугской линии тем более! На западе нависает огромная Очаковская группировка турок, на востоке – бескрайняя Дикая степь, а на юге, за Перекопом, Крым ждет десант из Стамбула. Выстоит ли рота Егорова, сможет ли удержать свой рубеж или поляжет в приграничных сражениях? Егеря-волкодавы готовятся к (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, Исторические приключения, ПопаданцыПродолжительность: 09:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B5345478EBB8A37A617B1E507A353D1427681B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530462   (562312) от 02.08.2012
 
 Марина и Сергей Дяченко | Пещера [2012] [MP3]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562312.jpg" />
 </div>
 
 
@@ -114,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562220.jpg" />
 </div>
 
 
@@ -140,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562147.jpg" />
 </div>
 
 
@@ -166,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562141.jpg" />
 </div>
 
 
@@ -193,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562140.jpg" />
 </div>
 
 
@@ -219,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562114.jpg" />
 </div>
 
 
@@ -245,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562038.jpg" />
 </div>
 
 
@@ -274,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561826.jpg" />
 </div>
 
 
@@ -302,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561733.jpg" />
 </div>
 
 
@@ -328,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561683.jpg" />
 </div>
 
 
@@ -354,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561674.jpg" />
 </div>
 
 
@@ -381,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561670.jpg" />
 </div>
 
 
@@ -407,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561666.jpg" />
 </div>
 
 
@@ -433,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561658.jpg" />
 </div>
 
 
@@ -459,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561617.jpg" />
 </div>
 
 
@@ -485,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561616.jpg" />
 </div>
 
 
@@ -513,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561609.jpg" />
 </div>
 
 
@@ -539,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561550.jpg" />
 </div>
 
 
@@ -566,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561523.jpg" />
 </div>
 
 
@@ -592,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561522.jpg" />
 </div>
 
 
@@ -619,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561516.jpg" />
 </div>
 
 
@@ -645,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561505.jpg" />
 </div>
 
 
@@ -674,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561388.jpg" />
 </div>
 
 
@@ -685,6 +604,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19E42D37769D27293C6A8C5BA45C68272E972F52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153147   (561062) от 25.07.2017
+
+Вернор Виндж | Пламя над бездной (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разум, в чем бы он ни был воплощен, стремится раздвинуть границы непознанного.  Человеческое любопытство приводит к пробуждению древней и чрезвычайно агрессивной сущности. Попытка людей эвакуировать из зараженной зоны хотя бы детей заканчивается аварийной посадкой корабля на планете, населенной необычными существами со стайным разумом. Брат и сестра остаются один (   Читать дальше...   )Жанр: Научная фантастикаПродолжительность: 21:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B4D23013DAC5725EC19D922614DE26B470DC2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044902   (561007) от 22.08.2016
+
+Энтони Райан | Песнь крови (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваэлину Аль-Сорна было всего десять лет, когда отец оставил его перед железными воротами Шестого Ордена, рыцари которого посвятили себя битвам. Отныне и Ваэлин будет вести суровую, трудную жизнь послушника, закаляя себя тренировками и воздержанием. У него больше нет иной семьи, кроме Воинов Веры. Ваэлину лучше забыть, что когда-то его отец был владыкой битв у короля (   Читать дальше...   )Жанр: Эпическое фэнтезиПродолжительность: 25:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C3E60975F5D751C39653785E751B86E24A19845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044922   (560771) от 22.08.2016
+
+Эшли Вэнс | Илон Маск: Tesla, SpaceX и дорога в будущее (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга-биография самого знаменитого предпринимателя в мире, создателя Tesla и SpaceX Илона Маска! Илон Маск – знаменитый предприниматель с далеко идущими планами: он мечтает открыть новую эпоху космического туризма, основать колонии на Марсе, сделать выпуск экологически чистых электромобилей массовым. Именно с Илона Маска, этого настоящего бизнесмена будущего, был (   Читать дальше...   )Жанр: Зарубежная деловая литература, О бизнесе популярно, Управление, подбор персоналаПродолжительность: 14:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0BF0CEF67408321125719CA8492E0F1C42F3719
 ```
 
 https://mybot314.ru/tekegram_catalog/

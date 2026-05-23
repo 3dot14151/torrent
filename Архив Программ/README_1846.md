@@ -6,7 +6,7 @@ EF Commander 2022.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174385.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Auslogics Disk Defrag Pro 11.0.0.4 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174374.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VueScan Pro 9.7.96 (05.12.2022) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174373.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ashampoo UnInstaller 12.00.11 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174370.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174365.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Opera 73.0.3856.257 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174358.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.3570]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174330.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Geekbench 5.4.6 Pro RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174327.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Blender 3.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174322.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Microsoft PowerToys 0.65.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174317.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ HWiNFO 6.40 Build 4330 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174312.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Psiphon 3 build 176 (DC 06.12.2022) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174306.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Revo Uninstaller Pro 5.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174305.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ PotPlayer 221102 (1.7.21833) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174298.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Cent Browser 4.3.9.226 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174279.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Windows 7 (3in1) x64 by Updated Edition (11.10.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174275.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ StartAllBack 3.5.6 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174262.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Tor Browser Bundle 10.0.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174260.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.2 Build 2 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174259.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Light Image Resizer 6.0.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174248.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ WhatsApp 2.2245.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174242.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ StartAllBack 3.5.6 StartIsBack++ 2.9.17 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174239.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2022.12.07 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174196.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ WinToHDD 4.8 Release 1 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174190.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Maplesoft Maple 2020.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174180.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Microsoft Visual C++ 14.28.29617 Runtimes AIO (x86-x64) Repack by @burfade [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174173.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ The Bat! Professional Edition 7.4.12 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876409.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PrivaZer 3.0.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876404.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wondershare Filmora 9.4.1.4 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876360.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Bandicam 4.5.8.1673 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876302.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Total Commander 9.51 Extended 20.4 Full / Lite RePack (& Portable) by BurSoft [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876297.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ FastStone Image Viewer 6.1 RePack (& Portable) by KpoJIuK (16.02.2017) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876273.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ AIDA64 Extreme/Engineer/Business Edition/Network Audit 6.25.5400 RePack (&Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876246.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ USB Safely Remove 5.5.1.1250 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876228.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ The Bat! Professional 7.4.12 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876225.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Zentimo xStorage Manager 1.10.1.1259 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876207.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Movavi Video Suite 20.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876206.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Light Alloy 4.9.3 Build 2538 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_876188.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ USB Safely Remove 5.5.1.1250 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876121.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Kaspersky Update Utility 3.1.0.25 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876067.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Patch My PC 2.3.6.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876027.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ IObit Smart Defrag Pro 5.5.0.1024 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876000.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ AusLogics BoostSpeed 9.1.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875996.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Adguard Премиум 6.1.312.1629 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875992.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875991.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ FireAlpaca 2.6.5 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875971.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ LDPlayer 3.121 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875969.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Vivaldi 4.2.2406.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875968.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Java SE Development Kit 17.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875966.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ PDF24 Creator 10.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875963.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ LDPlayer 4.0.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_875962.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ DLL-FiLes.com Fixer 3.3.91.3080 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875867.jpg" />
 </div>
 
 

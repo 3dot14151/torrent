@@ -6,7 +6,7 @@ Marvin Gaye - Les Genies du Rock - Live (1993) [MP3|320 кб/с]<Soul,Funk,R&B>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568231.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sitti Navarro - Singles Bossa Nova Trio (2015) [MP3|320 кб/с]<Bossa Nova, Lat
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568226.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ J.J. Cale - Дискография (26 альбомов)(1967-2011)[MP3|320 kbps
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568191.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Jacques Loussier - Bach to the future (Jacques Loussier Trio) (1986) [FLAC|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568188.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Alex Caporuscio - Alex Caporuscio (2010) [APE|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567616.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Albatross - Blues Landing (2000) [APE|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567593.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Freddie Redd - In Sweden (1955, 1956) 2007, Lone Hill Jazz[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567589.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Buck Clayton - Tenderly (1959) 2009, Inner City Records [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567587.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Alabama Mike - Tailor Made Blues (2010) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567572.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Rez Abbasi - Bazaar (2006) [FLAC|Lossless|tracks + .cue] <Fusion, Indian Classic
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567566.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Al Basile - Groovin' In The Mood Room (2006) [APE|Lossless]<Blues, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567559.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Albert Castiglia - Burn (2002) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567557.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Yusef Lateef - The Golden Flute (1966) 2004, Universal [APE|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567505.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Shirley Scott - Blue Seven (1961) 2000, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567503.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Maynard Ferguson - The Complete Roulette Recordings Of The Maynard Ferguson Orch
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567491.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Jimmy Burns - Back To The Delta (2003) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567464.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Jimmy Burns - It Ain't Right (2015) [FLAC|Lossless|tracks + .cue] <Modern Electr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567462.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Rymden - Reflections & Odysseys (2019) [FLAC|Lossless|tracks + .cue] <Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567452.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Jimmy Smith - 5 Original Albums (1959 - 1965) 5CD, Universal, 2018 [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567446.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Adam Holt & The Blues Congregation - Who I Am (2002) [APE|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567411.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Pearl Django - Live (2019) Modern Hot Records [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567344.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Warren Haynes featuring Railroad Earth - Ashes & Dust (2015) [FLAC|Lossless|imag
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567341.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ VA - Soft Jazz and Wine Drinks (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567321.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Harvey Mandel - Cristo Redentor (1968) Remastered 2003, Raven Records [MP3|320 K
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567295.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Andre Christovam - Catharsis (1997) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567262.jpg" />
 </div>
 
 
@@ -778,7 +778,7 @@ Claude Thornhill - Snowfall (2000) [FLAC|Lossless]<Swing, Bop, Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567153.jpg" />
 </div>
 
 

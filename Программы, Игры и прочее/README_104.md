@@ -1,55 +1,3 @@
-###  Публикация: 1533728   (192489) от 31.10.2022
-
-Буковки: учимся читать весело v5.32 [Ru/En]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-“Буковки” - это инструмент для обучения чтению общепризнанным звуко-буквенным методом, в сочетании с преимуществами небезызвестной методики Зайцева и других методик обучения чтению. Приложение “Буковки” позволит составлять любые слова с помощью удобной озвученной клавиатуры. С ним дети учатся читать по-русски с удовольствием! Слова автоматически разбиваются на склады*. (   Читать дальше...   )Тип издания: Full (Разблокированы все буквы, Disabled Google services)Релиз состоялся: 22.10.2022Разработчик: EditaleПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4296A568A6CC164690E96DBC2E4D27ABE22B0CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657634   (192378) от 04.09.2023
-
-Windy.app: погода и ветер 40.0.6 Mod by GIP-79 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Windy.app - очень и очень востребованное погодное приложение, что детально визуализирует прогнозы на ближайшее время. Владельцы гаджетов смогут воочию наблюдать за вероятным течением ветра, перемещением осадков и прочими аспектами. Это поможет и пилотам и рабочим, что так или иначе зависят от подобных условий и спортсменам, что не хотят рисковать понапрасну. Высокое (   Читать дальше...   )Тип издания: ModРелиз состоялся: 11.07.2023Разработчик: Windy Weather World IncПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D34D94B5F8864916E65020E9C778FF5283AE81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657664   (192363) от 04.09.2023
 
 Windy.com - Weather Forecast 39.1.5 Mod by Jenny66 [Ru/Multi]
@@ -58,7 +6,7 @@ Windy.com - Weather Forecast 39.1.5 Mod by Jenny66 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192363.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Unified Remote v3.21.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192250.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ InShot - Фото и видеоредактор 1.960.1416 Mod by 0x7d [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192248.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ VPN Inf - Security Fast VPN 7.5.824 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192215.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ Square Home Launcher 2.4.15 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192116.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ WPS Office + PDF 18.1.1 Mod by ImanAlien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191851.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ Battery HD Pro 1.99.06 (Google Play) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191814.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ ibis Paint X 10.2.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191801.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ BSPlayer Pro 3.19.247-20230828 Mod by ferhad.necef [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191777.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ Dais Dark - Poweramp v3 Skin 1.3.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191485.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191430.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ Frolomuse: Музыкальный Плеер 7.3.1-R Mod by LITEAPKS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191275.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ Jellify - Живые фотографии v1.4.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191266.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ Frolomuse: Музыкальный Плеер 7.3.1-R Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191236.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ PREQUEL: Редактор фото и видео v1.51.0 Mod by Dymonyxx [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_190966.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ Plus Messenger (Telegram+) v10.0.5.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190921.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190891.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ ElectroCalc - DIY Electronics v3.9  Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190890.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190862.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190850.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ Picture Mushroom - Mushroom ID v2.9.11 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190742.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ Relax Night ~ Nature Sounds v5.13.3 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190516.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ Melon VPN - Secure Proxy VPN 7.9.215 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190492.jpg" />
 </div>
 
 
@@ -664,7 +612,7 @@ Listen Audiobook Player v5.1.0 (955) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190490.jpg" />
 </div>
 
 
@@ -675,6 +623,58 @@ Listen Audiobook Player v5.1.0 (955) Mod by derrin [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21DCB449B6EBDDBD6FEE232902AD100A2E8BA468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658947   (190452) от 10.09.2023
+
+Дневник артериального давления v3.2.4 Mod by cenzo [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дневник артериального давления Pro — это продвинутый инструмент для регулярной записи и анализа измерений артериального давления. Это приложение окажется полезным для людей, страдающих заболеваниями кровеносной системы (например, гипертонией или гипотонией), а также имеющих предрасположенность к таким заболеваниям. Приложение может быть использовано как во время (   Читать дальше...   )Тип издания: ProРелиз состоялся: 29.09.2023Разработчик: FRUCTПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A91CC57EBDF331FCC61627016BAE53E41AE9E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658942   (190413) от 10.09.2023
+
+TrackView - HomeSafe v3.8.27 Mod by maxi123444 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение для просмотра TrackView. Он может отслеживать приложения TrackView на других платформах, например. iOS и ПК. TrackView разработан для обеспечения безопасности семьи. Он превращает ваши смартфоны, планшеты и ПК в подключенную IP-камеру с GPS-локатором, обнаружением событий, оповещениями и возможностями записи в облаке/маршруте. Версии для Windows и (   Читать дальше...   )Тип издания: PlatinumРелиз состоялся: 07.09.2023Разработчик: TrackViewПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF7ED8E20A9FB0040BF223DC5225B58E2617535
 ```
 
 https://mybot314.ru/tekegram_catalog/

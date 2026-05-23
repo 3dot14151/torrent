@@ -1,30 +1,3 @@
-###  Публикация: 1002402   (429676) от 18.10.2016
-
-Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (1.0.0.1) Repack R.G. Catalyst [Episodes 1-8]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Minecraft: Story Mode предлагает отправиться в популярный мир, но уже в виде сюжетного приключения. Проект является не аддоном, а отдельной игрой, где сюжет, как и в других играх Telltale Games, развивается в зависимости от принимаемых игроком решений.
-Сюжет Minecraft: Story Mode, как сейчас принято, поделен на пять эпизодов, составляющих первый сезон. Протагонистом (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3953B86B8F96475A808737025DF146C79E9904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324125   (429221) от 07.09.2019
 
 Okaeri (2019) [Ru/Multi] (1.0) License PLAZA
@@ -33,7 +6,7 @@ Okaeri (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429221.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ Still Life 1, 2 (2005-2009) [Ru] (1.00) Repack R.G. Механики [Dilogy / �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428732.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ Toren (2015) [Ru/Multi] (1.0) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428627.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426681.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ Path to Mnemosyne (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424118.jpg" />
 </div>
 
 
@@ -163,7 +136,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episo
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423431.jpg" />
 </div>
 
 
@@ -189,7 +162,7 @@ Overclocked: A History of Violence / Overclocked. Оправданная жес�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422944.jpg" />
 </div>
 
 
@@ -215,7 +188,7 @@ The Descendant (2016) [En] (3.2/dlc) Repack Other s [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422817.jpg" />
 </div>
 
 
@@ -241,7 +214,7 @@ The Walking Dead: The Telltale Definitive Series (2019) [Ru/Multi] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422780.jpg" />
 </div>
 
 
@@ -267,7 +240,7 @@ The Vanishing of Ethan Carter (2014) [Multi] (1.04) License GOG [Redux]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420073.jpg" />
 </div>
 
 
@@ -293,7 +266,7 @@ Panzer Dragoon: Remake (2020) [Ru/Multi] (0.8.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420067.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ Trollhunters: Defenders of Arcadia / Охотники на троллей: За�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420021.jpg" />
 </div>
 
 
@@ -345,7 +318,7 @@ Octave (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418029.jpg" />
 </div>
 
 
@@ -372,7 +345,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) Repack CoolGames [Epi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416643.jpg" />
 </div>
 
 
@@ -398,7 +371,7 @@ Best Month Ever! (2022) [Ru/Multi] (1.0.0_020) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416064.jpg" />
 </div>
 
 
@@ -424,7 +397,7 @@ Jotun (2015) [Ru/Multi] (11-09-2019) License GOG [Valhalla Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415901.jpg" />
 </div>
 
 
@@ -450,7 +423,7 @@ Don't Starve (2013) [Ru/En] (429404/dlc) License GOG [Alone Pack]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415293.jpg" />
 </div>
 
 
@@ -476,7 +449,7 @@ Gabriel Knight: Sins of the Fathers (2014) [Multi] (1.0) License [20th Anniversa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414111.jpg" />
 </div>
 
 
@@ -503,7 +476,7 @@ Projection: First Light (2020) [Ru/Multi] (2.0.1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413151.jpg" />
 </div>
 
 
@@ -529,7 +502,7 @@ Sea of Solitude (2019) [Multi] (1.0.0.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412098.jpg" />
 </div>
 
 
@@ -555,7 +528,7 @@ Sea of Solitude (2019) [Multi] (1.0.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411941.jpg" />
 </div>
 
 
@@ -581,7 +554,7 @@ The Bridge Curse Road to Salvation (2022) [Multi] (1.5.6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411755.jpg" />
 </div>
 
 
@@ -607,7 +580,7 @@ Full Throttle (1995) [Ru/En] (2.0) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411081.jpg" />
 </div>
 
 
@@ -633,7 +606,7 @@ The Talos Principle (2014) [Ru/Multi] (1.0) License GOG [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409202.jpg" />
 </div>
 
 
@@ -659,7 +632,7 @@ Ginger: Beyond the Crystal (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409148.jpg" />
 </div>
 
 
@@ -670,6 +643,32 @@ Ginger: Beyond the Crystal (2016) [Ru/Multi] (1.0) License SKIDROW
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:491125655F4FECB2504D239CD1DDE71A25564D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066813   (409076) от 27.10.2016
+
+The Deep Paths: Labyrinth Of Andokost (2016) [En] (1.0.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409076.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Deep Paths: Labyrinth Of Andokost - является РПГ игрой от первого лица. Игроку предстоит бродить по темным подземельям и уничтожать монстров применять традиционный пошаговый бой. Игроки исследуют огромный лабиринт, наполненный опасными существами и скрытыми сокровищами, дабы разгадать древнюю тайну зла! Благодаря богатой 3D-графики старой школы, чувство ретро (   Читать дальше...   )Тип издания: LicenseРазработчик: Steve JarmanЖанр: Adventure, Quest, RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1C0F9C8B2F57203720D692DF862586C44F7552
 ```
 
 https://mybot314.ru/tekegram_catalog/

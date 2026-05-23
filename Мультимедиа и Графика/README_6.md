@@ -1,161 +1,3 @@
-###  Публикация: 1866384   (1066184) от 19.04.2026
-
-Steinberg Cubase Pro 15.0.21 Build 252 Portable by 7997 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите начать создавать свою собственную музыку, вывести свое производство на профессиональный уровень или оптимизировать рабочий процесс в сжатые сроки? Что бы вам ни понадобилось, Cubase поможет вам полностью раскрыть свой творческий потенциал. От композиторов голливудских блокбастеров и продюсеров Billboard Hot 100 до увлеченных новичков, мир музыкального производства (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D8D107728368B40BF10BC06A1672107D33662D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866413   (1066176) от 20.04.2026
-
-JRiver Media Center 35.0.70 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-JRiver Media Center — мощный мультимедийный центр, объединяющий в себе работу с музыкой, видео и фотографиями. Проигрывает большинство популярных аудио и видео форматов, включая MP3, аудио CD (поддерживает CDDB) и DVD, может преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты (убирая при этом помехи и шумы), а также создавать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AABDB5951754A5A63CCC8205E102DF3B3D60B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866457   (1066162) от 20.04.2026
-
-SpotiFLAC 7.1.5 Portable [En]
-
->>Мультимедиа и Графика
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Слушайте и скачивайте треки из Spotify, Tidal, Qobuz и Amazon Music в формате FLAC — регистрация не требуется.
-
-SpotiFLAC подключается к API поддерживаемых сервисов и воспроизводит аудио в максимально доступном качестве — настоящий FLAC без потерь, а не потоки AAC или OGG, которые захватывают большинство инструментов.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BAEE0F3B1C45A831EC59C5BEFD8801B7A1DF179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866474   (1066149) от 20.04.2026
-
-SketchUp Pro 2026 26.1.256 [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-SketchUP Pro - является профессиональной версией приложения, позволяющего создавать 3D-модели, демонстрировать их в качестве презентации, обмениваться ими. Программа будет полезна везде, где есть необходимость применения 3D-моделей, будь-то проектирование пристройки для дома, обучение школьников геометрии или же создание модели для Google Earth. Множество простых (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA33D7B9CACBB82315D6F75FFA020EFEF13CC72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866493   (1066132) от 20.04.2026
-
-Adobe Photoshop Lightroom Classic 2026 15.3.0.11 RePack by KpoJIuK [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A16E1F9C04363776EA2670DFE143AF42A1ADC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866506   (1066112) от 20.04.2026
-
-Adobe Premiere Pro 2026 026 26.2.0.65 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Premiere Pro — это продвинутое, гибкое и удобное средство нелинейного видеомонтажа. Импортируйте и комбинируйте любые типы медиаконтента — от видеоматериалов, снятых на мобильный телефон, до видео формата 5K и более высокого разрешения — и после редактируйте видеоматериалы в оригинальных форматах без необходимости перекодирования. Приложение имеет удобный и предельно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:306FB12EF39FD1BCB0A8313D765C93B2249C9F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866527   (1066087) от 20.04.2026
 
 ACDSee Photo Studio Ultimate 2026 19.1.0.4501 Portable by 7997 [Ru]
@@ -164,7 +6,7 @@ ACDSee Photo Studio Ultimate 2026 19.1.0.4501 Portable by 7997 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066087.jpg" />
 </div>
 
 
@@ -190,7 +32,7 @@ X HEVC Encoder 1.1 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066072.jpg" />
 </div>
 
 
@@ -218,7 +60,7 @@ Light Image Resizer Pro 7.6.2.170 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066065.jpg" />
 </div>
 
 
@@ -244,7 +86,7 @@ Ocenaudio 3.18 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066053.jpg" />
 </div>
 
 
@@ -270,7 +112,7 @@ Adobe Media Encoder 2026 26.2.0.52 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066026.jpg" />
 </div>
 
 
@@ -296,7 +138,7 @@ Affinity Studio 3.2.0.4351 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065997.jpg" />
 </div>
 
 
@@ -324,7 +166,7 @@ Adobe Animate 2024 24.0.13.5 Portable by 7997
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065978.jpg" />
 </div>
 
 
@@ -350,7 +192,7 @@ Adobe Photoshop Lightroom Classic 2026 15.3.0.11 Portable by 7997
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065931.jpg" />
 </div>
 
 
@@ -376,7 +218,7 @@ Adobe After Effects 2026 26.2.0.49 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065921.jpg" />
 </div>
 
 
@@ -402,7 +244,7 @@ AviDemux 2.8.2 Nightly (260417) + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065917.jpg" />
 </div>
 
 
@@ -428,7 +270,7 @@ ACDSee Gemstone Photo Editor 16.0.0.1820 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065879.jpg" />
 </div>
 
 
@@ -454,7 +296,7 @@ X HEVC Encoder 1.0 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065866.jpg" />
 </div>
 
 
@@ -482,7 +324,7 @@ X Radio Stream Finder 1.3 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065863.jpg" />
 </div>
 
 
@@ -508,7 +350,7 @@ Blackmagic Design DaVinci Resolve Studio 21.0 Build 20 beta 1 Portable by 7997 [
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065821.jpg" />
 </div>
 
 
@@ -534,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065818.jpg" />
 </div>
 
 
@@ -560,7 +402,7 @@ Agisoft Metashape Professional 2.3.1 Build 22361 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065741.jpg" />
 </div>
 
 
@@ -586,7 +428,7 @@ Wondershare UniConverter 17.3.1.543 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065727.jpg" />
 </div>
 
 
@@ -612,7 +454,7 @@ ACDSee Photo Studio Ultimate 2026 19.1.0.4501 Full / Lite RePack by KpoJIuK [Ru/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065685.jpg" />
 </div>
 
 
@@ -638,7 +480,7 @@ reaConverter Pro 8.0.214 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065660.jpg" />
 </div>
 
 
@@ -665,7 +507,7 @@ ACDSee Photo Studio Ultimate 2026 19.1.0.4501 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065648.jpg" />
 </div>
 
 
@@ -676,6 +518,164 @@ ACDSee Photo Studio Ultimate сочетает в себе поддержку с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDFCF5898C44A4C0372CCD7721D456CDF257EF3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865710   (1065595) от 17.04.2026
+
+JRiver Media Center 35.0.70 (x64) [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065595.jpg" />
+</div>
+
+
+###  Подробнее
+
+JRiver Media Center — мультимедийный центр, объединяющий в себе работу с музыкой, видео и фотографиями. Проигрывает большинство популярных аудио и видео форматов, включая MP3, аудио CD (поддерживает CDDB) и DVD, может преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты (убирая при этом помехи и шумы), а также создавать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF6E28EF5BB9AB5812A25CFE203C50FAB4A6BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865773   (1065554) от 17.04.2026
+
+Aiarty Image Enhancer 3.11 [Multi]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiarty Image Enhancer (с генеративным ИИ) — это современное программное обеспечение для улучшения изображений, разработанное компанией Digiarty Software. Оно использует передовые технологии искусственного интеллекта для улучшения и масштабирования изображений, сохраняя при этом реалистичные детали.
+Программа позволяет легко улучшать фотографии и AI-арт, делая процесс (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140DAC500E7FF5E66149D54459E835BF1B6F61B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865786   (1065544) от 17.04.2026
+
+KMPlayer 4.2.3.34 Plus Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065544.jpg" />
+</div>
+
+
+###  Подробнее
+
+The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3989C79E5C0E71E73C45DE66E24A2FCA916B747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865795   (1065536) от 17.04.2026
+
+Adobe Photoshop Lightroom Classic 2026 15.3.0.11 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Независимо от уровня ваших пользовательских навыков владения фоторедакторами Adobe Photoshop Lightroom Classic включает все необходимые инструменты для редактирования фотографий на ПК. Lightroom Classic предоставляет простые, но впечатляющие инструменты и расширенные функции для создания невероятных фотографий. Упорядочивайте фотографии на компьютере и делитесь ими (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA632398C8A286F2E0A3B9E6C68306E65A2B034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865798   (1065529) от 17.04.2026
+
+X Radio Stream Finder 1.1 Portable [En]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просматривайте, ищите и воспроизводите более 35 000 интернет-радиостанций на Windows. Встроенный плеер на базе ffplay, плейлист «Мои станции» с экспортом и импортом в формат M3U8, сортировка по столбцам, фильтры по странам и кодекам — всё бесплатно, без рекламы и регистрации.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D272AADE0BFD8FF955AB33C6B075C8F5B89F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865873   (1065480) от 17.04.2026
+
+Aiarty Image Enhancer 3.11 Portable by 7997 [Multi]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiarty Image Enhancer (с генеративным ИИ) — это современное программное обеспечение для улучшения изображений, разработанное компанией Digiarty Software. Оно использует передовые технологии искусственного интеллекта для улучшения и масштабирования изображений, сохраняя при этом реалистичные детали.
+Программа позволяет легко улучшать фотографии и AI-арт, делая процесс (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B3565F83AA5EBEFF2E1368DD88A8293E300DDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

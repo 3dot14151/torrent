@@ -1,32 +1,3 @@
-###  Публикация: 794625   (695896) от 09.06.2014
-
-VA - Русский Рок - Фарш (vol. 2) (2014) [MP3|320 кб/с]<Рок, Хард-рок, Хеви-метал>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Секрет - Всё Это И Есть Любовь
-02. Найк Борзов - Поцелуй И Укус
-03. Моя Подруга Катрин! - Мосты
-04. Вектор Эго - Никогда(   Читать дальше...   )Жанр: Рок, Хард-рок, Хеви-металПродолжительность: 03:16:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE02AEF012CDF145679ABE2E7C72C9EDB519F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403035   (695826) от 17.08.2020
 
 VA - Beatport Electro House: Sound Pack #144 (2020) [MP3|320 Kbps] <Electro House>
@@ -35,7 +6,7 @@ VA - Beatport Electro House: Sound Pack #144 (2020) [MP3|320 Kbps] <Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695826.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Empire Records - Trance 90's (2018) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695671.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Pop Slam Radio: Spring Edition (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695661.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Empire Records - Trance 90's 2 (2019) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695660.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Latino Sound Cartel (2019) [MP3|320 Kbps] <Latino, Dance, Reggaeton>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695658.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Hit Dance Music 90s (2019) [MP3|320 Kbps] <Pop, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695342.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Музыкальный адреналин на Русском радио (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695191.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Fresh Party Spring Break (2018) [MP3|320 Kbps] <Funky House, Hardstyle, Han
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695138.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Хитовая весна от Европы Плюс. Часть № 2 (201
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695125.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Natural Lounge (2018) [MP3|320 Kbps] <Lounge, Downtempo, Relax>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695105.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Deep House Collection Vol.167 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695080.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Шальной шансон в дорогу. Выпуск № 10 (2017) [MP
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695031.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Весеннее созвездие хитов (3) (2018) [MP3|256 Kbps] <�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695016.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Lobby Bar Lounge Vol.4: 20 Midnight Lounge Tunes (2016) [MP3|320 кб/с] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694934.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Extra Trance: Bonus [07] (2016) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694844.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - Chillout Classical Study (2016) [MP3|320 кб/с] <Downtempo, Chillout, Ins
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694831.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Весенний фестиваль хитов 50/50 (2011) [MP3|128 kbps]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_694715.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ VA - Planet Pop Vol. 05: Lolipop Version (2016) [MP3|192-320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694700.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ VA - Хиты Под Водочку (2011) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_694461.jpg" />
 </div>
 
 
@@ -580,7 +551,7 @@ VA - German Top 50 Party Schlager Charts 11.03.2019 (2019) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694303.jpg" />
 </div>
 
 
@@ -609,7 +580,7 @@ VA - Лето солнце жара. Популярный сборник (2016) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694287.jpg" />
 </div>
 
 
@@ -638,7 +609,7 @@ VA - A State Of Trance Classics Vol.14 (The Full Unmixed Versions) (2020) [MP3|3
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694264.jpg" />
 </div>
 
 
@@ -667,7 +638,7 @@ VA - NOW Yearbook Extra 1982 (2022) 3CD [MP3|320 Kbps] <Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694245.jpg" />
 </div>
 
 
@@ -696,7 +667,7 @@ VA - NOW Yearbook Extra 1984 (2022) 3CD [MP3|320 Kbps] <Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694242.jpg" />
 </div>
 
 
@@ -725,7 +696,7 @@ VA - German Top 100 Single Charts 18.03.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694192.jpg" />
 </div>
 
 
@@ -739,6 +710,35 @@ VA - German Top 100 Single Charts 18.03.2019 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B51B266A6856A3EF620FD9F27308BE087C47B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403163   (694158) от 18.08.2020
+
+VA - Beatport Progressive House: Electro Sound Pack #145 (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694158.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A.J Roland - Mysteries Of Life
+002. Brunoh - Empatia
+003. Jordan Dae - Take On The World
+004. Young - Play Back(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 09:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40759B8694B3119153E1F7BF8F179BF658B18897
 ```
 
 https://mybot314.ru/tekegram_catalog/

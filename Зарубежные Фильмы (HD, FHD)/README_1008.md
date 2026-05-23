@@ -1,55 +1,3 @@
-###  Публикация: 1688343   (125212) от 29.12.2023
-
-Человек, который изобрёл Рождество / The Man Who Invented Christmas (2017) BDRip [AV1/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фильм о том, как отчаявшийся и собравшийся было порвать с писательской карьерой Диккенс зажёгся идеей святочного рассказа, и как последний повлиял на становление Рождества одним из главных праздников в сознании британцев... Вплоть до середины XIX века Рождество в Великобритании отмечалось на вторых ролях, и затмевалось такими праздниками, как Пасха и День подарков. (   Читать дальше...   )Производство: Ирландия, Канада, Mazur Kaplan Company, The Mob Film CompanyЖанр: драма, комедия, биографияРежиссер: Бхарат НаллуриАктеры: Дэн Стивенс, Кристофер Пламмер, Мириам Марголис, Джонатан Прайс, Саймон Кэллоу, Козимо Фуско, Дональд Самптер, Иэн МакНис, Билл Патерсон, Аннет БэдлендПеревод: Дублированный (Pride Production)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7195FEB6E31BF88EC8EED6CB2BAE7D97B54347AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688721   (125140) от 30.12.2023
-
-Преступный бургер / Taeter Burger (2023) WEBRip [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Год 2161: один андроид и трое сотрудников сети ресторанов быстрого питания с человеческим мясом должны сразиться с армией мутантов, созданных террористами.Производство: Италия / NecrostormЖанр: фантастика, боевикРежиссер: Джулио Де Санти, Тициана МачеллаАктеры: Илария Калойси, Дамиано Чионни, Питер Косгров, Кристиан Коррадетти, Джулио Де Санти, Дэн Уайлдер, Кристиан Рива, Магдалина Бойл, Вишал Раджпут, Вилмар ЗимозаПеревод: Двуголосый любительский (Yuka_chan & datynet)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3300BD727A428B2C770A41F91FF731859E019957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688476   (125132) от 30.12.2023
 
 Как заниматься сексом / How to Have Sex (2023) WEB-DL [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125132.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125118.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125117.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125099.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125098.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125095.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125092.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125091.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125042.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124980.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124977.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124976.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124975.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124967.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124918.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124846.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124842.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124841.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124840.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124839.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124838.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124837.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124812.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124772.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:356BB683D0206ABBF05674CB9CC7140D5EE55283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689529   (124753) от 02.01.2024
+
+Вампир в Бруклине / Vampire in Brooklyn (1995) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Импозантный карибский вампир Максимилиан решает нанести визит в город Нью-Йорк, чтобы исполнить свою давнюю мечту - обзавестись обворожительной спутницей, которая поможет ему скрасить многовековое вампирское одиночество. Причём подругой кровососа может стать только женщина, в роду которой есть вампиры. И чёрному вампиру посчастливилось найти в Бруклине подходящую (   Читать дальше...   )Производство: США / Eddie Murphy Productions, Paramount PicturesЖанр: ужасы, фэнтези, мелодрама, комедияРежиссер: Уэс КрэйвенАктеры: Эдди Мёрфи, Анджела Бассетт, Аллен Пэйн, Кадим Хардисон, Джон Уизерспун, Закес Мокае, Джоанна Кэссиди, Симби Хали, Мессири Фриман, Келли СиннантПеревод: профессиональный многоголосый (Paramount Channel, СЕС), профессиональный двухголосый (Премьер Видео Фильм), авторский (Гаврилов, Визгунов, Сонькин)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBED1CCD3F151A435099C3425A2A38721261282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689294   (124752) от 02.01.2024
+
+Шоссе смерти / Highwaymen (2003) WEB-DLRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ренни Крею терять нечего: после того, как извращённый садист безжалостно отнял жизнь у его жены, он бросил всё и посвятил годы поискам убийцы. Опасный психопат, который расправился с женой Крея, продолжает совершать зверские преступления: он разъезжает на своём потрепанном «Эль Дорадо» 72-го года выпуска по безлюдным ночным дорогам и убивает молодых женщин. Ренни, (   Читать дальше...   )Производство: США, Канада / Cornice Entertainment, Millenium Films, New Line CinemaЖанр: ужасы, боевик, триллер, криминалРежиссер: Роберт ХармонАктеры: Джеймс Кэвизел, Рона Митра, Фрэнки Фэйзон, Колм Фиор, Гордон Карри, Андреа Рот, Ноам Дженкинс, Тоби Проктор, Джеймс Ки, Гилейн Сент-ОнджПеревод: Двуголосый профессиональный (Премьер Видео Фильм, Universal Pictures Rus, НТВ+), Одноголосый любительский (Переводман)Язык озвучки: русский, английскийСубтитры: русские, английские (Full, SDH)Продолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2CE4790B4DED20DC47275A4BA4B4743159753ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

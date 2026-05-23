@@ -6,7 +6,7 @@ Forgotten North - Ara II (2022) [MP3|320 Kbps] <Symphonic Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364370.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Vrylnia - The Other World (2022) [MP3|320 Kbps] <Symphonic Power Metal, Female V
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364287.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ginevra - We Belong To The Stars (2022) [MP3|320 Kbps] <Melodic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364189.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rave The Reqviem - FVNERAL [sic] (2018) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364135.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Behemoth - Opvs Contra Natvram (2022) [MP3|320 Kbps] <Blackened Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364122.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Soulfly - Ritual (2018) [MP3|320 Kbps] <Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363836.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Amaranthe - Helix (2018) [MP3|320 Kbps] <Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363821.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Draconian - Sovran (2015) Deluxe Edition [MP3|320 кб/с]<Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363314.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Mindahead - Reflections (2016) [MP3|192 Kbps] <Progressive, Avant-Garde, Melodic
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362032.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Hteththemeth - Best Worst Case Scenario (2016) [MP3|320 Kbps] <Avant-Garde Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362027.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ My Dying Bride - Meisterwerk III (2016) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361862.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ In Flames - Battles (2016) Limited Edition [MP3|320 Kbps] <Modern Metal, Alt.Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361279.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Serenity - Lionheart (2017) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360771.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Dark Lunacy - The Rain After The Snow (2016) [MP3|320 Kbps] <Melodic Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359232.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Death ...Is Just the Beginning, MMXVIII (2018) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359031.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Disturbed - Evolution (2018) Deluxe Edition [MP3|320 Kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358353.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Doro - Fur Immer (2017) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358138.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dying Aura - Of Death, Kings and Solitude (2020) [MP3|320 Kbps] <Atmospheric Bla
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355902.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Magoa - Imperial (2016) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355041.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Pain - We Come In Peace (2012) [MP3|320 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354984.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Mekaora - Elysium (2016) [MP3|320 Kbps] <Melodic Death Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354885.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Freedom Call - Master of Light (2016) Limited Edition  [MP3|320 Kbps] <Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354779.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354443.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Hanging Garden - I Am Become (2017) [MP3|320 Kbps] <Doom-Death Metal, Post-Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354088.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Winds of Plague - Blood of My Enemy (2017) [MP3|320 Kbps] <Symphonic Metalcore, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353976.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Korn - The Serenity Of Suffering (2016) Japanese Edition [MP3|320 кб/с]<Alter
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353768.jpg" />
 </div>
 
 

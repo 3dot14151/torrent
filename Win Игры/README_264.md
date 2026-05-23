@@ -1,29 +1,3 @@
-###  Публикация: 1068111   (381823) от 31.10.2016
-
-Through the Woods (2016) [Ru/Multi] (1.0/u1) Repack R.G. Revenants
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Through the Woods — это приключенческая игра от третьего лица в жанре «хоррор». Действие разворачивается в лесах западного побережья Норвегии и повествует о матери, потерявшей своего сына. По мере игры вам предстоит узнать от женщины, что предшествовало исчезновению ее сына.Тип издания: RepackРазработчик: Antagonist GamesЖанр: Adventure, Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Английский, НорвежскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:436CAC40213A810713E3B0DFBC1F994A52E3395D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253601   (381370) от 10.10.2018
 
 The Conjuring House (2018) [Ru/Multi] (1.0.4) Repack xatab
@@ -32,7 +6,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381370.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ My Memory of Us (2018) [Ru/Multi] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381243.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Outbreak: The Nightmare Chronicles (2018) [En] (1.3/dlc) License PLAZA [Complete
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381242.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381235.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Amazing Spider Man 2 / Новый Человек-паук (2014) [Ru/Multi] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381128.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Halloween Stories 4: Defying Death (2020) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380892.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Loco Parentis (2019) [Ru/En] (1.0.0.4242) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380364.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Swag and Sorcery (2019) [Ru/Multi] (1.52) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380306.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Franchise Hockey Manager 3 (2016) [En] (1.0) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379714.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Starpoint Gemini 2 (2014) [Ru/En] (1.9300/dlc) Repack R.G. Catalyst [Gold Pack]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379710.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Grim Facade 12: The Black Cube / За гранью жестокости 12: Чё
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379302.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ X-Morph: Defense (2017) [Ru/Multi] (1.12/dlc) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379100.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Valthirian Arc Hero School Story (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379090.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Red Alliance (2018) [Ru/En/Fr] (1.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378940.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Space Hulk: Tactics (2018) [Ru/En] (28103) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378935.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Red Alliance (2018) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378928.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Sin (2021) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378592.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Train Sim World 3 (2022) [Ru/Multi] (1.0.16/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378551.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ B A S E M E N T (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378323.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ MotoGP™20 (2020) [Multi] (1.0/dlc) Repaсk R.G. Механики
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378097.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Rogue Trooper Redux (2017) [Multi] (5560) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378048.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Resident Evil Revelations 2 (2015) [Ru/En] (5.0/dlc) Repack xatab [Episodes 1-4]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377990.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Train / Поезд (2013) [Ru/En] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377913.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377781.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Dungeon of the Endless (2014) [Ru/Multi] (1.1.5/4dlc) Repack R.G. Механик
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377608.jpg" />
 </div>
 
 
@@ -667,6 +641,38 @@ Dungeon of the Endless - это приключенческий "рогалик" 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9772C7A60E68F2139DCF549AFB0F109611F40BA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567702   (377397) от 11.11.2012
+
+Deadlight [Ru/En] (Repack/1.0.9249.u.1) 2012 | R.G. Catalyst
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Deadlight, — это альтернативный 1986-й, когда мир столкнулся с новой апокалиптической угрозой — загадочной вирусной инфекцией, обращающей людей в «тени», или попросту в зомби. При этом, в отличие от подавляющего большинства подобных проектов, Deadlight, вы не поверите, — пазл-платформер. То есть придётся не столько стрелять, сколько думать.
+
+«1986-й выбран не случайно, — поясняет исполнительный директор студии Рауль Рубио (Raul Rubio). — Это время запомнилось активным освоением космоса и выходом таких фильмов, как Rambo: First Blood и Day of the Dead. Смешайте всё это — и получите уникальную визуальную стилистику».
+
+Перемещаясь по полумёртвому северо-западному побережью Британской Колумбии (Канада) и США, Рэндэлл Уэйн будет искать оружие и других выживших. «Вам не нужно биться за правду или спасать мир, — продолжает г-н Рубио. — Это история Рэндэлла, его проблем, чувств и желаний». Сценарий написан испанским драматургом Антонио Роджано (Antonio Rojano), который вдохновлялся произведениями Стивена Кинга, Джеймса Балларда и Кормака Маккарти.
+
+«Вы поймёте, что в этом мире даже простое действие вроде перехода улицы становится невероятно сложным и опасным», — продолжают девелоперы. Обещана достоверная физическая модель, на которой и будут базироваться головоломки. Созданием «альтернативного мира паранойи и хаоса» занимается команда из 22 человек, прежде работавших в таких компаниях, как Blizzard, Pyro Studios, Sony..(   Читать дальше...   )Тип издания: RepackРазработчик: Tequila WorksЖанр: Arcade (Platform) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA68E6877793D468E190E10BC6C607FC3F844D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Tor Browser Bundle 10.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007687.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Auslogics BoostSpeed 12.1.0.1 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007682.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Reg Organizer 8.75 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007677.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Reg Organizer 8.75 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007674.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Radmin VPN 1.1.4392.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007670.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ MiniTool Partition Wizard Technician 12.5 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007656.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Opera 77.0.4054.203 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007601.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Auslogics Registry Cleaner Pro 9.1.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007592.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Windows 10 Manager 3.5.2.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007557.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Auslogics Windows Slimmer 3.1.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007556.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Auslogics Disk Defrag Pro 10.1.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007551.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ AOMEI Partition Assistant Technician Edition 9.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007549.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Auslogics BoostSpeed 12.1.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007540.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ TeamViewer 15.19.3.0 (08.07.2021) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007537.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Microsoft Edge 91.0.864.67 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007490.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ FBackup 9.1.357 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007457.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Microsoft Edge 91.0.864.67 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007451.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ RogueKiller Anti-Malware 15.0.7 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007440.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ PrivaZer 4.0.27 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007437.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ FileZilla 3.55.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007436.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ PrivaZer 4.0.27 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007435.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Cyberduck 7.10.0 Build 35184 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007424.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ jv16 PowerTools 6.1.1.1216 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007423.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Calibre 5.23.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007422.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ WinToUSB Free / Pro / Enterprise / Technician 6.1.2.0 RePack (& Portable) by Dod
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007417.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ AOMEI Partition Assistant Standard Edition 9.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007403.jpg" />
 </div>
 
 

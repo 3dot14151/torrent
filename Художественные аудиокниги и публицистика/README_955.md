@@ -1,81 +1,3 @@
-###  Публикация: 1822411   (101049) от 06.10.2025
-
-Наталья Александрова | Медальон Распутина (2024) [MP3, Нина Медникова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Григорий Распутин играл значительную роль в российском обществе: он мог назначать и снимать министров, влиять на внешнюю и внутреннюю политику государства. Он якобы обладал сверхъественными способностями, и в этом ему помогал магический медальон… В наши дни капитану полиции Лебедкину и его напарнице попался весьма капризный потерпевший Аркадий Херувимский. Он уверял, (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 08:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65CB5FBA1843D4BD92B022C17E65B2B4C75C1DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822310   (101048) от 06.10.2025
-
-Иван Иванов (exe081) | Тихая охота (2025) [MP3, Роман Ефимов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мир погиб, уничтоженный эпидемией, превратившей людей в опасных тварей. Но росток цивилизации не так просто затоптать. И вот- мёртвые просторы страны вновь тревожат звук топора, пилы, рев двигателей. Все вроде прекрасно, синее небо, чистый воздух. И темные тучи на горизонте... Там , за тонкой границей растет новая угроза. Но Трое из леса - учёный, следопыт-бродяга (   Читать дальше...   )Жанр: фантастика, ПостапокалипсисИздательство: Аудиокнига своими рукамиПродолжительность: 39:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB04B6971D883578BB35722B7210C9F9ECD5B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822324   (101046) от 06.10.2025
-
-Павел Кожевников | Архил (Книга 1) (2025) [MP3, Максим Суслов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Сергей погибает в авиакатастрофе и возрождается в другом мире как лич, то есть маг-некромант ставший нечистью. Используя своё магическое могущество, он решает вернуться в родной мир, в Россию, но попадает не в нашу современность, а во времена Великой Отечественной войны. Здесь у него появляется реальная возможность принести большую пользу своей стране (   Читать дальше...   )Жанр: Фантастика, фэнтезиИздательство: 1С ПаблишингПродолжительность: 08:22:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2458339A790BC08F2B72E04F0BF21FC3047C6D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822296   (101045) от 06.10.2025
 
 Виктор Молотов, Игорь Алмазов | Жизнь Лекаря с нуля. Мечников (Том 9). Тень правды (2025) [MP3, Радион Нечаев]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101045.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101040.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101039.jpg" />
 </div>
 
 
@@ -166,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101038.jpg" />
 </div>
 
 
@@ -194,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101037.jpg" />
 </div>
 
 
@@ -221,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101036.jpg" />
 </div>
 
 
@@ -247,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101035.jpg" />
 </div>
 
 
@@ -273,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101034.jpg" />
 </div>
 
 
@@ -299,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101033.jpg" />
 </div>
 
 
@@ -325,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101032.jpg" />
 </div>
 
 
@@ -351,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101031.jpg" />
 </div>
 
 
@@ -377,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101029.jpg" />
 </div>
 
 
@@ -403,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101027.jpg" />
 </div>
 
 
@@ -429,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101026.jpg" />
 </div>
 
 
@@ -455,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101025.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101024.jpg" />
 </div>
 
 
@@ -507,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101022.jpg" />
 </div>
 
 
@@ -533,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101020.jpg" />
 </div>
 
 
@@ -560,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101019.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101018.jpg" />
 </div>
 
 
@@ -612,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101008.jpg" />
 </div>
 
 
@@ -638,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100917.jpg" />
 </div>
 
 
@@ -664,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100906.jpg" />
 </div>
 
 
@@ -675,6 +597,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E7799F3695599C782E218C06D2400551A335939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822516   (100899) от 07.10.2025
+
+Эдуард Хруцкий | Четвёртый эшелон (Книга 3). Приступить к ликвидации (2024) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100899.jpg" />
+</div>
+
+
+###  Подробнее
+
+1943 год. Москва. В городе совершено несколько дерзких нападений на магазины и машины с продуктами. Убиты несколько человек. В ходе расследования сотрудники МУРа выясняют, что в деле замешаны особо опасные преступники, занимающиеся помимо грабежей и разбоев, подделкой продуктовых карточек. Перед отделом по борьбе с бандитизмом поставлена задача любым способом в кратчайшие (   Читать дальше...   )Жанр: ДетективИздательство: СОЮЗПродолжительность: 05:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8042006640F3A6AC172954A0E2CB84213AD6262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822253   (100843) от 05.10.2025
+
+Филип Дик | Вращающееся колесо (2025) [MP3, Александр Большешальский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бард Сунг-Ву получает задание — отправиться в глушь и проверить, не зарождаются ли среди низших каст, Фермеров и Техников, тайные еретические культы. Но сам он думает о другом: однажды совершённый грех не даёт ему покоя. Сунг-Ву уверен, что в следующем перевоплощении его ждёт участь насекомого-падальщика на далёкой зловонной планете. Теперь его единственное желание (   Читать дальше...   )Жанр: научная фантастика, ПостапокалиптикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD34236EF1D9BDAD4812505FF777394D898FDE5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822265   (100832) от 06.10.2025
+
+Уилл Дин | Пусть все горит (2024) [MP3, Юлия Рудина]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он зовет меня Джейн. Но это не мое настоящее имя… Уже семь лет как моим новым домом стала одинокая ферма среди бескрайних полей. Кажется, именно в таком месте человек должен чувствовать себя по-настоящему свободным. И все же я в ловушке. Никто не знает, как я попала в Англию. Никто не знает, что я здесь. Муж следит за каждым моим шагом: по всему дому развешаны камеры, (   Читать дальше...   )Жанр: ТриллерИздательство: INSPIRIA (Эксмо)Продолжительность: 08:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC705E6B551208728BD5366E3D0A0D76C593CB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

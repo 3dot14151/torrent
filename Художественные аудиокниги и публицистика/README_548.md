@@ -1,83 +1,3 @@
-###  Публикация: 1322285   (450509) от 28.08.2019
-
-Иван Любенко | Клим Ардашев (Книга 10). Супостат (2018) [MP3, Максим Горбачев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Петроград, февраль 1915 года. Клим Пантелеевич Ардашев, статский советник МИДа, узнает от своей жены о несчастье, постигшем ее модистку, работавшую в ателье «Мадам Дюклэ». Белошвейка Анна Извозова подверглась нападению неизвестного. Ее усыпили хлороформом и ослепили, оставив на лице глубокие рваные раны. Поразительно было то, что их «рисунок» напоминал перевернутые (   Читать дальше...   )Жанр: Исторический детективЯзык: 24/7Продолжительность: 7:26:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30FC3FE3181376704E891ECF13283D27D06ECC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322232   (450506) от 28.08.2019
-
-Александр Плетнёв | Фактор умолчания (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Беспримерный поход «Петра Великого» завершился с приходом корабля в Камрань. И крейсеру необходимо перейти в метрополию, непосредственно в базу флота, в СССР.
-А в Вашингтоне, в ЦРУ, в штабе флота, уже скроили планы и…
-И маневрируют в позиции авианосцы, подвешиваются ракеты под крылья самолетов, выходят на рубежи субмарины. На что рассчитывают? Чего хотят? Сатисфакции? (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 10:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF0B5F9DB2F0D366249AED9E0B8FD48EB4ACA8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322300   (450505) от 28.08.2019
-
-Иван Любенко | Клим Ардашев (Книга 11). Киевский лабиринт (2019) [MP3, Максим Горбачев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1916 год. Предвкушая долгожданный отдых, статский советник Ардашев приезжает в Киев погостить у родственников жены. И все, казалось бы, начинается неплохо… На следующий день Клим Пантелеевич покупает супруге дорогой подарок в ювелирном салоне — золотые часы, украшенные драгоценными камнями. Однако уже наутро обнаруживается, что часы вышли из строя. Похоже, Ардашеву (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F47ADB76268683084657B0134B71FC6553449B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163146   (450472) от 05.09.2017
 
 Сергей Нагорный | Сказка. Душа абрикосового дерева 2 (2017) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450472.jpg" />
 </div>
 
 
@@ -113,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450471.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450463.jpg" />
 </div>
 
 
@@ -167,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450421.jpg" />
 </div>
 
 
@@ -195,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450337.jpg" />
 </div>
 
 
@@ -221,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450336.jpg" />
 </div>
 
 
@@ -247,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450275.jpg" />
 </div>
 
 
@@ -273,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450262.jpg" />
 </div>
 
 
@@ -299,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450225.jpg" />
 </div>
 
 
@@ -325,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450218.jpg" />
 </div>
 
 
@@ -351,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450171.jpg" />
 </div>
 
 
@@ -380,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449988.jpg" />
 </div>
 
 
@@ -407,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449725.jpg" />
 </div>
 
 
@@ -433,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449680.jpg" />
 </div>
 
 
@@ -460,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449676.jpg" />
 </div>
 
 
@@ -488,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449675.jpg" />
 </div>
 
 
@@ -516,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449566.jpg" />
 </div>
 
 
@@ -542,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449565.jpg" />
 </div>
 
 
@@ -570,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449564.jpg" />
 </div>
 
 
@@ -596,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449553.jpg" />
 </div>
 
 
@@ -624,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449551.jpg" />
 </div>
 
 
@@ -652,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449405.jpg" />
 </div>
 
 
@@ -678,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449272.jpg" />
 </div>
 
 
@@ -689,6 +609,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2955C3F960471874AC0D80F5F443D910CFBDB6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060542   (449166) от 10.10.2016
+
+Анатолий Виноградов | Байрон (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449166.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Байрон" - биографический роман о жизни английского поэта-романтика Джорджа Гордона Байрона. Сложная судьба поэта, ощущение катастрофичности и в мире, и в самом человеке, разочарование в действительности отразились в его творчестве. Он создал тип "байронического" рефлексирующего героя: разочарованный мятежный индивидуалист, одинокий, не понятый (   Читать дальше...   )Жанр: Классика, исторический романПродолжительность: 09:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B450991C5030BDF2DC10A33B7218BEBB74AE2F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060980   (449152) от 10.10.2016
+
+Дороти Сейерс | Отражение в зеркале (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ из сборника "Каникулы палача". Англия времен Дороти Л. Сэйерс во многом изменилась, но и ныне одним из истинных удовольствий, заставляющих брать в руки ее книги, является желание постичь суть человеческой природы, которую никакое время изменить не может, хотя наши представления и восприятие мира волею обстоятельств становятся иными. Да и преступления (   Читать дальше...   )Жанр: ДетективПродолжительность: 01:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1643150DCDE44C579F2B23F5C9D3E7C0960DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569778   (449091) от 14.08.2022
+
+Макс Вальтер | Паразит (Книга 2). Симбиоз (2022) [MP3, Дмитрий Хазанович]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ядерная катастрофа уничтожила цивилизацию, унесла миллиарды жизней, но взамен дала людям нечто. Возможно, это новый виток эволюции, или шанс окончательно обескровить мир.
+Вот только героям плевать на вселенские планы, их мало волнует чья-то судьба, кроме собственной. И они не одиноки в своих стремлениях, ведь в таком дерьме смогут выжить лишь конченые, беспринципные (   Читать дальше...   )Жанр: Научная фантастика, Психология, ужасыПродолжительность: 07:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A493A8510AF0FDC69B8C25FA54C51AA323B51BF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

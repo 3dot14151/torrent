@@ -1,82 +1,3 @@
-###  Публикация: 1184293   (300844) от 17.11.2017
-
-Джон Фланаган | Руины Горлана (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Уилл – пятнадцатилетний подкидыш, который гордится тем, что его отец был могучим воином и много лет назад погиб в бою. Только Уилла могучим уж никак не назовешь – невысокого роста, слишком слабый для своего возраста, он с нетерпением и страхом ожидает Дня Выбора, ведь в этот день решится, каким делом он будет заниматься всю жизнь. Чтобы почтить память отца, он мечтает (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 06:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1BB0632294A49470CD75A1EDAEFC9DB61EFC4CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261600   (300745) от 12.11.2018
-
-Аркадий и Борис Стругацкие | Страшная большая планета (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В аудиокнигу «Страшная большая планета» включены три произведения, написанные братьями Стругацкими и объединённые темой космоса. «Страшная большая планета» – незаконченная повесть Аркадия Стругацкого. Звездолёт К-16, следовавший на планетографическую станцию «Юпитер-1», столкнулся с метеоритом. Топлива практически не осталось, и корабль неотвратимо падал на Юпитер. (   Читать дальше...   )Жанр: Научная фантастикаПродолжительность: 02:26:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D1CEB70725A595AE191547CF59504DBD3D3DFB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077908   (300700) от 01.12.2016
-
-Наталья Громова | Скатерть Лидии Либединской (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лидия Либединская (1921–2006) — прозаик, литературовед; урожденная Толстая, дочь поэтессы Татьяны Вечорки, автор книги воспоминаний «Зеленая лампа».
-Всю жизнь Лидия Либединская притягивала незаурядных людей, за столом ее гостеприимного дома собирался цвет нашей культуры: Корней Чуковский, Виктор Драгунский, Давид Самойлов, Семен Липкин, Булат Окуджава, Каверины, (   Читать дальше...   )Жанр: Культурология Биографии и МемуарыПродолжительность: 10:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F962A284D6F0064521FDBD27E3FAC1C4EB6779C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077451   (300699) от 01.12.2016
 
 Михаил Лермонтов | Страницы дневника Арбенина (2005) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300699.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300691.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300614.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300582.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300529.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300518.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300512.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300321.jpg" />
 </div>
 
 
@@ -295,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300301.jpg" />
 </div>
 
 
@@ -321,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300290.jpg" />
 </div>
 
 
@@ -348,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300172.jpg" />
 </div>
 
 
@@ -375,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300000.jpg" />
 </div>
 
 
@@ -402,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299998.jpg" />
 </div>
 
 
@@ -428,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299996.jpg" />
 </div>
 
 
@@ -454,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299855.jpg" />
 </div>
 
 
@@ -480,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299847.jpg" />
 </div>
 
 
@@ -506,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299846.jpg" />
 </div>
 
 
@@ -532,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299690.jpg" />
 </div>
 
 
@@ -558,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299573.jpg" />
 </div>
 
 
@@ -584,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299534.jpg" />
 </div>
 
 
@@ -610,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299448.jpg" />
 </div>
 
 
@@ -639,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299153.jpg" />
 </div>
 
 
@@ -665,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299148.jpg" />
 </div>
 
 
@@ -676,6 +597,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1BC31FC77346381BDC07AFDE82B53173B175085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184663   (299146) от 18.11.2017
+
+Фергюс Хьюм | Зеленая мумия (2017) [MP3, Надежда Винокурова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сонная деревушка неожиданно становится предметом сплетен для всей Англии: еще бы, ведь здесь произошло неслыханное преступление! Местный ученый отправил ассистента на Мальту купить уникальную перуанскую мумию в зеленом саркофаге. Вот только когда профессор вскрыл ящик, то вместо груза обнаружил внутри труп своего помощника…
+Окажись поблизости великий детектив вроде (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 10:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7144C4F603B8DACFDF992784D6B17F117E4428E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184713   (299138) от 18.11.2017
+
+Александр Варго | Пуповина (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внецикловый роман и два рассказа Сергея Давиденко.
+Сергей очень был рад полученному предложению: некий, наверняка выживший из ума, старик нанял их с приятелем Максом похитить и доставить к нему одну женщину по имени Олеся. За хорошие деньги разумеется. Плевое дело. Приехав домой к жертве, Сергей требует от нее кое о чем рассказать. Олеся, пусть и не сразу и с неохотой, (   Читать дальше...   )Жанр: ХоррорПродолжительность: 05:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B590E30E1A60F74201D802758E3847A8E856792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184752   (298999) от 18.11.2017
+
+Луиза Пенни | Старший инспектор Арман Гамаш (Книга 8). Эта прекрасная тайна (2017) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298999.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом уединенном монастыре, затерянном в дебрях Квебека, почти всегда царит тишина, прерываемая лишь старинными песнопениями. Прекрасные голоса монахов зачаровывают всех, кому посчастливится их услышать, и кажется, что рядом с этой красотой нет места злу. Однако в монастыре происходит убийство, и старший инспектор Арман Гамаш начинает расследование, не подозревая, (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 14:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C1243A3EEF0BAE066EBB8D2649638AED22A62A
 ```
 
 https://mybot314.ru/tekegram_catalog/

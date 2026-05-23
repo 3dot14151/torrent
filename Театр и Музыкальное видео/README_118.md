@@ -1,114 +1,3 @@
-###  Публикация: 1582325   (210363) от 28.06.2023
-
-Квартирник у Маргулиса. Zero People (09.10.2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Zero People — это сайд-проект музыкантов популярной рок-группы Animal ДжаZ Александра Кросовицкого и Александра Заранкина. За 11-летнюю историю они выпустили шесть альбомов, стали одной из самых популярных и востребованных групп в стране и доказали, что «пиано-рок» с исповедальными текстами может собирать многотысячные залы. В гостях у Евгения Маргулиса Zero People (   Читать дальше...   )00:00:06 Квартирник у Маргулиса - Zero People
-00:00:06 Ремесло
-00:07:32 Человек
-00:14:04 Беда(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Пиано-рокПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E457D138C7D53D8D222AFB530BFE455CC74AD7D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603522   (210238) от 11.01.2023
-
-Bollywood: новогодний киноконцерт / Bollywood Mix Video (2023) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов из индийских фильмов таких как: PK (ПиКей), Dhoom-2, Dhoom-3, 3 Idiots (Три идиота), Bajirao Mastani, Bang Bang и другие известные кинокартины.Производство: ИндияЖанр: Pop, DanceРежиссер: Аамир КханАктеры: Аамир Кхан, Каджол, Варун Дхаван, Шах Рукх Кхан, Карина Капур, Приянка Чопра, Дипика Падуконе и др.Продолжительность: 01:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9A21E845A2FE8B8051CBE540DAC2CC174F6FE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642108   (210129) от 30.06.2023
-
-eRa - The Live Experience 2019 (2022) CamRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Любительская Multicam-запись дебютного концертного тура «The Live Experience» группы eRa, прошедшего в конце 2019 года под руководством автора проекта Эрика Леви.
-Музыкальная программа первых европейских гастролей включает пару десятков лучших композиций, накопившихся за четверть века существования eRa.
-Относительно студийных/альбомных версий, живое выступление имеет (   Читать дальше...   )01) Agnus Deorem
-02) Enae Volare (Remix)
-03) Nomen AdoreЖанр: Нью-эйдж, Симфоник-металПродолжительность: 01:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFD4B8E5C9FA7642C0097AAB37C52650CBF068C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571433   (209961) от 22.08.2022
-
-Вячеслав Бутусов – Юбилейный концерт (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Первый канал представляет телеверсию концерта одного из самых известных представителей отечественной рок-сцены. В программе — лучшие хиты Nautilus Pompilius и презентация альбома «Аллилуйя»: «Эта музыка будет вечной», «Одинокая птица», «Тутанхамон», «Взгляд с экрана», «Люди», «Бриллиантовые дороги», «Элизобарра», «Чудное мгновенье», «Идиот», «Если я стану рыбой», (   Читать дальше...   )Производство: РоссияЖанр: Концерт, шоуСубтитры: ОтсутствуютПродолжительность: 01:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69140B865CD8ABF0C5E6458DC9FAFF8C226A416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643524   (209944) от 02.07.2023
 
 Квартирник у Маргулиса. Юта (12.03.2022) WEBRip [H.264/1080p]
@@ -117,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209944.jpg" />
 </div>
 
 
@@ -146,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209822.jpg" />
 </div>
 
 
@@ -175,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209793.jpg" />
 </div>
 
 
@@ -202,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209753.jpg" />
 </div>
 
 
@@ -229,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209733.jpg" />
 </div>
 
 
@@ -256,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209184.jpg" />
 </div>
 
 
@@ -282,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208922.jpg" />
 </div>
 
 
@@ -308,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206830.jpg" />
 </div>
 
 
@@ -337,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206409.jpg" />
 </div>
 
 
@@ -366,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205794.jpg" />
 </div>
 
 
@@ -392,7 +281,7 @@ Green Day - 21 Guns (2009) BDRip [H.264/1080p-LQ] [handmade Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204977.jpg" />
 </div>
 
 
@@ -418,7 +307,7 @@ Sting / Live in Berlin (2010) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204735.jpg" />
 </div>
 
 
@@ -444,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204288.jpg" />
 </div>
 
 
@@ -473,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204276.jpg" />
 </div>
 
 
@@ -499,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204158.jpg" />
 </div>
 
 
@@ -528,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204124.jpg" />
 </div>
 
 
@@ -554,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203817.jpg" />
 </div>
 
 
@@ -581,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203525.jpg" />
 </div>
 
 
@@ -608,7 +497,7 @@ Tarja Turunen - Best Of: Living The Dream Circus Life (2022) BDRip [H.265/1080p-
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202964.jpg" />
 </div>
 
 
@@ -634,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201767.jpg" />
 </div>
 
 
@@ -663,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201640.jpg" />
 </div>
 
 
@@ -689,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201127.jpg" />
 </div>
 
 
@@ -700,6 +589,113 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:268CA0A8515D38B3681AEC98738C7C16C24A51CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620150   (201115) от 19.03.2023
+
+Квартирник у Маргулиса. Группа «Пикник» (18.03.2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их творческий путь начался в уже далеком 1978 году в Ленинграде, однако сами участники считают отправной точкой 1981-й — год, когда в коллектив пришел Эдмунд Шклярский. За более чем 40 лет на сцене «Пикник» сформировал уникальный стиль, выпустил несколько десятков альбомов и завоевал любовь миллионов слушателей. Их любят не только за невероятные и яркие представления, (   Читать дальше...   )00:00  Сияние
+05:48  Только не плачь, палач
+12:18  Играй, страна, играй!
+20:29  Разноцветные ленты(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC87764378605B3A5189704553C2FFF9D5F511F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621265   (200255) от 07.04.2023
+
+Патхан / Pathaan (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипы из фильма "Pathaan" : "Besharam Rang" и "Jhoome Jo Pathaan"Производство: Индия, Yash Raj Films Pvt. Ltd.Жанр: музыка, клипыПеревод: отсутствуетЯзык озвучки: индийскийСубтитры: русские, английские (на слова песен)Продолжительность: 00:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900488F5537956487A5C048C60430D4B84ED9CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 889904   (199297) от 26.04.2023
+
+Umbra Et Imago – 20 (2011) 2xDVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199297.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 июля Umbra Et Imago отметила свое 20-летие. В рамках празднования дня рождения группа выступила с большим концертом в "Crystal Ballroom" в Карлсруэ. Шоу включало в себя как акустическое выступление, так и роковую часть. Кроме того, музыканты выпустили новый сингл "Davon geht die Welt nicht unter", который они окрестили "юбилейным леденцом". (   Читать дальше...   )Жанр: Gothic MetalРежиссер: Gregor SkowronekПеревод: Не требуетсяПродолжительность: 01:06:22 + 01:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D313A93CD3615F21E51E3948F1F803158769EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630542   (199093) от 01.05.2023
+
+Демон Онегина (2015) WEB-DL [H.264/1080p] (Театр ЛДМ "НОВАЯ СЦЕНА")
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Евгений Онегин, в финале жизни оказавшийся в доме скорби бредит – ждет какого-то письма, бормочет, что Татьяна любит его. Медсестры делают ему укол и старик, задремав, во сне слышит голос секунданта той дуэли, которая когда-то разрушила и его жизнь, и жизни тех, кто был ему дорог. Онегин просыпается в ужасе, но и тут нет ему покоя – ему является… Демон. Старик обвиняет (   Читать дальше...   )Производство: Россия / Театр ЛДМ "НОВАЯ СЦЕНА"Жанр: театр, искусство, мюзиклРежиссер: Ирина АфанасьеваАктеры: Иван Ожогин, Анастасия Макеева, Антон Авдеев, Мария Лагацкая-Зимина, Сергей Худяков, Наталья Фаерман, Манана Гогитидзе, Олег Калабаев, Роман Никитин, Александр Кулинкович, Евгений Чесноков, Зинаида Некрасова, Ярослав ШварёвЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE78D2C9A1E40EA5CB15F00445E33A2A60D7C39A
 ```
 
 https://mybot314.ru/tekegram_catalog/

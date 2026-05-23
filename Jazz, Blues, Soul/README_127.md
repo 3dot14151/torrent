@@ -6,7 +6,7 @@ Billie Holiday - Don't Explain (1956 - 1958) 1990, Magic Music [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798860.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ike Quebec - The Complete Blue Note 45 Sessions (1959, 1960, 1962) 2CD, 2005, Bl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798853.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Royal Crown Revue - Kings Of Gangster Bop (1991) [MP3|320 Kbps] <Swing>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798845.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Henry Mancini - The Real... Henry Mancini (2014) 3CD [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798802.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Aldo Romano - Threesome (2004) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798789.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Johnny Frigo - Summer Me!: Live at Battle Ground (1986 - 1997) 2008, Log Cabin R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798779.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Howlin' Wolf - The London Howlin' Wolf Sessions (1989) [FLAC|Lossless|tracks + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798749.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ella Fitzgerald - Milestones Of A Jazz Legend: Sings The Songbooks (1956 - 1959)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798472.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Joe Henderson - Mode For Joe (1966) 1988, Blue Note Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798301.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Sexy Christmas Blues (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798236.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Claudio Chiara - It's Easy to Say (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798134.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dexter Gordon Quartet - Espace Cardin 1977 (2018) Elemental Music [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798104.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Joe Henderson - The Complete Blue Note Studio Sessions (1963 - 1967) 5CD, 2021, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798001.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Cymande - Arrival (2009) [FLAC|Lossless|tracks + .cue] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797872.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Michael Silverman Jazz Piano Quartet - Jazz! Smooth Jazz Essentials and Traditio
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797799.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ George Adams & Don Pullen Quartet - Decisions (1984) Remaster, 2015, Solid Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797702.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Hal Galper Quintet Live - Redux '78, 1991, Concord Jazz(1991) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797700.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Art Farmer - Gentle Eyes (1971/1972) 1991, Mainstream Records[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797698.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sadao Watanabe - Live At The Junk (1969) Remaster, 2015, Sony Music[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797697.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Art Farmer - Modern Art (1958) Remaster, 2001, Toshiba[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797696.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Blue Mitchell - The Thing To Do (1964) Remaster, 1995, EMI[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797670.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Shirley Scott - & The Soul Saxes (1969) Remaster, 2013, Warner[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797669.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Sonny Rollins - The Bridge (1962) 1999,Ars Nova [FLAC|Lossless|image + .cue] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797664.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Dave Weckl Band - Transition (2000) [APE|Lossless|image + .cue] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797662.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Billy Cobham's Culturemix - Colours (2004) [APE|Lossless|image + .cue] <Jazz, Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797656.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ The Bluesbones - Live at the Bosuil (2013) [FLAC|Lossless|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797650.jpg" />
 </div>
 
 

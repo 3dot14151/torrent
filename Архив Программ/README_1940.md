@@ -6,7 +6,7 @@ The Bat! Professional Edition 7.1.6.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150435.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wondershare PDFelement 10.1.7.2541 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150427.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Bat! Professional Edition 7.1.6.0 RePack (& Portable) by elchupacabra [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150406.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Radiant Photo 1.1.2.346 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150380.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Movavi Video Suite 22.1.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150379.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ReviverSoft Driver Reviver 4.0.1.44 [Rus/Eng] RePack by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150377.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150374.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Windows Update MiniTool 24.12.2015 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150335.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Unchecky 0.4.2 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150314.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ USDownloader 1.3.5.9 Portable (24.12.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150274.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Aiseesoft Video Enhancer 1.0.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150264.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Kaspersky Lab Products Remover 1.0.930 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150253.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ MSAct Plus 1.1.0 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150236.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Windows 10 (v21h2) x64 LTSC 2021 by KulHunter v1.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150219.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Topaz Photo AI 2.1.3 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150206.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ ZD Soft Screen Recorder 10.2.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150190.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Movavi Video Suite 22.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150174.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ WinTools.net Premium 16.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150163.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Bandicam 5.0.1.1799 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150159.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ All My Movies 7.3 Build 1406 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150155.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Turbo Studio 23.11.19.0 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150151.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Windows 8.1 x86 Professional NVDA для незрячих. 2015.12.13 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150143.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Acronis True Image 2021 Build 35860 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150133.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Wise JetSearch 3.16.154 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150097.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Luminar Neo 1.16.0.12503 Repack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150085.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Windows 7/10/11 Pro х86-x64 by systemp 21.12.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150083.jpg" />
 </div>
 
 

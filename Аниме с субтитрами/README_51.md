@@ -6,7 +6,7 @@ The Cockpit | Кокпит [1993, OVA, 3 эп.] DVDrip 720p 10-bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700397.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Momokuri / Момокури [2015, TV, 26 из 26] WEB-DLRip 360-576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700234.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ B-Project: Kodou Ambitious | Проект Б: Амбициозное биени�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699706.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ B-Project: Zecchou Emotion | B-Project: Zeccho*Emotion | Проект Б: Кул
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699704.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu | How Not to Summon a Demon Lord 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699159.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ IS: Infinite Stratos / Необъятные Небеса [ТВ-1] [2011, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698550.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698026.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Girls und Panzer Gekijouban | Girls und Panzer der Film | Девушки и та
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697696.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696895.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ KO Seiki Beast Sanjuushi / K.O. Beast / Зверовоины [1992, OVA, 7 ep.] 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696875.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Seiken no Blacksmith / The Sacred Blacksmith / Божественный Кузн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696754.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Gakusen Toshi Asterisk | The Asterisk War | Войны Астериска [2015,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696587.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Crusher Joe: The OVA's / Крушила Джо OVA 1 и 2 [1989, OVA, 2] BDRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695039.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Crusher Joe / Крушила Джо - Фильм [1983, Movie] BDRip 1080p HEVC 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694954.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Senjou no Valkyria / Valkyria Chronicles / Хроники Валькирии [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_694787.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Rozen Maiden Zuruckspulen | Rozen Maiden ~2013~ | Девы Розена (2013) [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694217.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Haiyore! Nyaruko-san W OVA | Няруко-сан: Крадущийся хаос 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694201.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Hotarubi no Mori e / To the Forest of Firefly Lights / В лес, где мер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693345.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders - Egypt Hen | Невероятны�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692093.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Kenpuu Denki Berserk | Berserk | Берсерк [1997, TV, 25 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691920.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Kowarekake no Orgel | Half-Broken Music Box | Полусломанная муз�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691731.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Hotarubi no Mori e / To the Forest of Firefly Lights / В лес, где мер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691666.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Steins;Gate: Kyoukaimenjou no Missing Link - Divide By Zero / Врата Ште�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691123.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Kuusen Madoushi Kouhosei no Kyoukan / Sky Wizards Academy / Инструктор
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691076.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Show by Rock!! | Рок-шоу! [2015, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690539.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Kacchikenee! / Спасибо за всё! [2016, Movie] SATRip 720p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688964.jpg" />
 </div>
 
 

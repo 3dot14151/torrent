@@ -6,7 +6,7 @@ Apowersoft Screen Capture Pro 1.4.8.2 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370219.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VMware ThinApp Enterprise 4.7.3 Build 891762 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_370216.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ NeoDownloader 2.9.170 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_370208.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ashampoo Burning Studio 12 12.0.1.8 (3510) Final RePack (& Portable) by KpoJIuK 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_370202.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ ApulSoft - apShaper v1.0.0 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370200.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Psiphon 3 bild 138 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370165.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ CorelDRAW Graphics Suite 2022 24.2.0.443 Full / Lite RePack by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370120.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Wise Disk Cleaner 10.2.5.776 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370096.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Dr.Web Security Space 8.0.0.11100 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_370074.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Topaz Sharpen AI 1.4.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370070.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Dr.Web Anti-Virus 8.0.0.11100 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_370064.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Ashampoo Burning Studio 12 12.0.1.8 (3510) Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_370058.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Blue Cat's All Plug-Ins Pack (2019.9) STANDALONE, VST, VST3, RTAS, AAX RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370045.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ PowerISO 7.5 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369963.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Format Factory 4.9.0.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369960.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ CableGuys - ShaperBox 2.0 VST RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369955.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Skype 6.0.0.126 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_369929.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ AdwCleaner 5.015 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369903.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ CCleaner 5.11.5408 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369901.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Ad Muncher 4.93.33707 Repack by Andron1975 [Русский / Английски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_369896.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369889.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Chromium 64.0.3247.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369840.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ WinRAR 5.80 Beta 2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369779.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Symantec Endpoint Protection 14.2.1.1 (14.2 RU1 MP1) build 4815 (14.2.4815.1101)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369776.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Alcohol 120% 2.0.3 Build 11012 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369765.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Windows 10 Enterprise LTSB-LTSC Release by StartSoft 27-28-29-30 2018 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369763.jpg" />
 </div>
 
 

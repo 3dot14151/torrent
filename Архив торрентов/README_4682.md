@@ -6,7 +6,7 @@ DxO PhotoLab Elite 7.5.0 build 176 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63830.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ashampoo WinOptimizer 26.00.24 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63826.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Foxit PDF Editor Pro 2024.1.0.23997 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63824.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ AIMP 5.30 Build 2541 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63818.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ SamDrivers 24.3 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63817.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ RisohEditor 5.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63810.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ DxO PhotoLab Elite 7.5.0 build 176 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63808.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ MediaHuman YouTube Downloader 3.9.9.88 (0305) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63807.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ PotPlayer 240305 (1.7.22124) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63806.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Ableton Live Suite 12 v.12 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63805.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Windows 10 Manager 3.9.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63800.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ PDF24 Creator 11.17.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63791.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ QuickMemoryTestOK 4.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63790.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Foxit PDF Editor Pro 2024.1.0.23997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63783.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ FxSound Pro 1.1.22.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63768.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Tor Browser Bundle 13.0.11 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63764.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v15 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63757.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ IObit Uninstaller Pro 13.4.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63732.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ AIMP 5.30 Build 2541 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63729.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ WinBin2Iso 6.26 Build 001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63728.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ InnoExtractor Ultra 7.3.2.535 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63727.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ AIDA64 Extreme Edition 7.00.6754 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63721.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ PotPlayer 240307 (1.7.22125) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63716.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Supermium 122.0.6261.85 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63713.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VueScan Pro 9.8.29 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63698.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ SweetScape 010 Editor 14.0.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63696.jpg" />
 </div>
 
 

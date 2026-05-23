@@ -6,7 +6,7 @@ Multitouch 1.22.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039643.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RH Timer 2.4.2 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039642.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Screenium 3 v3.2.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039641.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SecuritySpy 5 v5.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039637.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ WebScraper 4.14.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039636.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Devious Machines - Infiltrator 2.2.8 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039633.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Sumatra PDF 3.5.15308 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039632.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ NIUBI Partition Editor 9.3.7 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039628.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.24 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039623.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ MediaHuman Youtube Downloader 3.9.9.51[Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039614.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Hej Stylus! v3 3.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039612.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Network & Battery 12.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039611.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ KeyCue 9.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039610.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Allavsoft Video Downloader Converter 3.23.2.7683 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039604.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ iA Writer 5.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039602.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Capto: Screen Capture & Record 1.2.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039601.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Wondershare PDFelement 9.4.2.2105 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039591.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Soft Organizer Pro 9.27 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039589.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Microsoft Visual Studio 2022 Enterprise 17.4.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039582.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ FinePrint 11.34 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039576.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ K-Lite Codec Pack Update 15.9.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039566.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ The Unarchiver - Unzip RAR ZIP 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039563.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Athentech Perfectly Clear Complete 3.11.1.1901 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039557.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Reg Organizer 9.11 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039550.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Reg Organizer 9.11 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039543.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ XYplorer 24.10.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039540.jpg" />
 </div>
 
 

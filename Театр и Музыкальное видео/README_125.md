@@ -1,122 +1,3 @@
-###  Публикация: 739055   (147959) от 27.12.2013
-
-Сборник клипов - VA - Various Music part. 49 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-1. Ahmed Chawki feat. Pitbull and Mandinga - Habibi I Love You 1080p (3:52)
-2. Antonia - Marabou (Madalin Sichitiu Remix Edit) (VJ Tony Video Edit) 1080p (3:25)
-3. Bad Girl Takeover (ft. DJ Khaled & Meek Mill) 1080p (3:36)
-4. BASTO - Live @ Starfloor 2013 (Paris) 1080p (13:42)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04586E8E76383A6B42E701B5DA8F4B1194E65A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015394   (147953) от 24.12.2018
-
-Нюша - Сборник видеоклипов (2009-2018) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-1.  Больно
-2.  Вою на луну
-3.  Выбирать чудо
-4.  Выше(   Читать дальше...   )Производство: РоссияЖанр: Музыка, клипыПеревод: ОтсутствуетСубтитры: нетПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4D529935C109F27D31959E3BF05CBEB044CF08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589457   (147922) от 15.12.2012
-
-Rammstein - Mein Herz Brennt  (2012) WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Rammstein - Mein Herz brennt. Второй официальный клип.Жанр: IndustrialРежиссер: Zoran BihaćАктеры: Тилль Линдеманн, Рихард Круспе, Пауль Ландерс, Оливер Ридель, Кристоф Шнайдер, Кристиан Лоренц.Перевод: ОтсутствуетПродолжительность: 00:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7291FF77D0738F7BE7343FA30577AFFEF1D1656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588917   (147663) от 15.12.2012
-
-Metallica-Garage Inc. Live  Roseland NYC 1998 (1998) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Легендарный концерт, снятый MTV в Нью-Йорке, в 1998 году.
-
-Трек лист:
-
-01. Creeping Death Jam
-02. Die Die My Darling
-03. Blitzkrieg
-04. Small Hours
-05. The Prince
-06. Sabbra Cadabra(   Читать дальше...   )Жанр: Thrash metal.Режиссер: Joe FridayПеревод: ОтсутствуетПродолжительность: 01:42:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678178   (147359) от 20.11.2023
 
 МузЛофт-подкаст / МузLoft. Игорь Саруханов (2023) WEBRip [H.264/1080p]
@@ -125,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147359.jpg" />
 </div>
 
 
@@ -152,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147202.jpg" />
 </div>
 
 
@@ -181,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146933.jpg" />
 </div>
 
 
@@ -211,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146767.jpg" />
 </div>
 
 
@@ -240,7 +121,7 @@ The World of Hans Zimmer: A Symphonic Celebration - Hollywood in Vienna 2018 (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146589.jpg" />
 </div>
 
 
@@ -266,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146490.jpg" />
 </div>
 
 
@@ -295,7 +176,7 @@ Metallica - 40th Anniversary Shows (2021) WEB-DL [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146406.jpg" />
 </div>
 
 
@@ -321,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146338.jpg" />
 </div>
 
 
@@ -350,7 +231,7 @@ Metallica - Live at Maida Vale Studio (Nov.17 2016) WEB-DL [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146232.jpg" />
 </div>
 
 
@@ -379,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146044.jpg" />
 </div>
 
 
@@ -406,7 +287,7 @@ Pink - The Truth About Love Tour (Live From Melbourne) (2013) BDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145936.jpg" />
 </div>
 
 
@@ -435,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145905.jpg" />
 </div>
 
 
@@ -462,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145892.jpg" />
 </div>
 
 
@@ -489,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145704.jpg" />
 </div>
 
 
@@ -515,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145624.jpg" />
 </div>
 
 
@@ -541,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145512.jpg" />
 </div>
 
 
@@ -568,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145497.jpg" />
 </div>
 
 
@@ -594,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145464.jpg" />
 </div>
 
 
@@ -623,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145237.jpg" />
 </div>
 
 
@@ -649,7 +530,7 @@ AC/DC - Live At Donington (1992) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145106.jpg" />
 </div>
 
 
@@ -681,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144862.jpg" />
 </div>
 
 
@@ -710,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144735.jpg" />
 </div>
 
 
@@ -721,6 +602,119 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E503078811F5671D0082FADB5E34E1BF945EECB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087594   (144397) от 28.12.2016
+
+Вышел ангел из тумана (2005) SATRip (Московский академический театр сатиры)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пенсионерка Екатерина Кондратьевна Первухина отмечает день рождения. К ней на праздник приехали все ее родные и близкие. Два брата, ее сыновья - бедный ученый и богатый деляга, еще совсем недавно живущие в мире и согласии, теперь открыто враждуют между собой, и лишь на дне рождении матери решают разыграть семейную идиллию, примирение. Но Екатерина Кондратьевна сама (   Читать дальше...   )Производство: Россия, Московский академический театр сатирыЖанр: Трагикомедия, спектакльРежиссер: Никита ШиряевАктеры: Ольга Аросева, Лев Дуров, Андрей Зенин, Борис Тенин мл., Татьяна Титова, Луиза Мосендз, Ольга Мотина, Светлана Малюкова, Зоя Зелинская, Павел МисаиловПродолжительность: 02:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD30487A9DD2F54E7BB260E7B292F4E52DF81328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590235   (144146) от 16.12.2012
+
+Легенды Ретро FM (2012) CamRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144146.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 декабря в спорткомплексе «Олимпийский» состоялся восьмой международный фестиваль «Легенды Ретро FM». Все гости шоу провели вечер в компании суперзвезд отечественной и зарубежной эстрады, потанцевали,  спели хором  любимые  песни и  совершили  незабываемое  путешествие в 70-е, 80-е и 90-е! Почти все артисты, выступившие на сцене «Олимпийского», приехали на «Легенды Ретро FM» впервые! В супершоу приняли участие: AL BANO, ЮРИЙ  АНТОНОВ, C.С. CATCH, АНЖЕЛИКА  ВАРУМ, ЛЕВ ЛЕЩЕНКО, SECRET SERVICE, МИРАЖ, BACCARA, ЮРИЙ  ЛОЗА, (   Читать дальше...   )01. Intro: балет Тодес
+Александр Айвазов
+02. Лилии
+03. Валентинов день
+Baccara
+04. Cara Mia
+05. Sorry I'm A Lady
+06. Yes Sir, I Can Boogie
+Лев Лещенко
+07. Прощай(   Читать дальше...   )Жанр: КонцертПродолжительность: 04:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B36E1F78DA6BA478F90F98F18F2531C414C0BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970030   (143532) от 29.12.2015
+
+Михаил Зощенко - Грустный Зощенко (2003) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный режиссер и актёр Владимир Андреев исполняет рассказы Михаила Зощенко: "Мелкий случай из личной жизни", "Тридцать лет спустя"...Производство: Россия, Студия фондовых и архивных программ телеканала "Культура"Жанр: Моноспектакль, литературное чтение, комедияРежиссер: Константин АнтроповАктеры: Владимир АндреевПродолжительность: 00:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3437F9C7445E9F3E013F2C9885FB51CAC8A86528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347593   (143520) от 28.12.2019
+
+Decrepit Birth - Epigenetic Triplicty (360° Visualizer) (2017) WEB-DL [H.264/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143520.jpg" />
+</div>
+
+
+###  Подробнее
+
+360° Visualizer Music VideoЖанр: Technical Death MetalПродолжительность: 00:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF1FE95DBFD7983A1F5152D72B6AF3D7AA74E0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

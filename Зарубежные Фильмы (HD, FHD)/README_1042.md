@@ -1,57 +1,3 @@
-###  Публикация: 460278   (79488) от 01.03.2012
-
-Однажды в Ирландии / The Guard (2011) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Женщины, выпивка и веселые шутки - вот радости добродушного ирландского полицейского, сержанта Джерри Бойла. Он никогда не помышлял о геройстве, пока однажды в Дублине не появился агент ФБР, который призвал незадачливого служителя порядка помочь ему накрыть международную банду наркоторговцев. Смогут ли сработаться веселый рыжий ирландец и решительный афроамериканец? (   Читать дальше...   )Жанр: триллер, комедия, криминалРежиссер: Джон Майкл МакДонаАктеры: Брендан Глисон, Дон Чидл, Марк Стронг, Лиам Каннингэм, Дэвид Уилмот, Рори Кинэн, Фионнула Флэнаган, Доминик МакЭллигот, Сара Грин, Катарина КэсПеревод: Одноголосый закадровый (Ю.Сербин)
-Одноголосый закадровый (Дмитрий «Гоблин» Пучков)Субтитры: Русские
-Английские (2 вида)Формат: MKVПродолжительность: 01:35:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460155   (79408) от 01.03.2012
-
-Переростки / The Inbetweeners Movie (2011) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Устав от своих проблем, четверо восемнадцатилетних приятелей подростков с юга Англии отправляются на двухнедельный отдых-мальчишник в Грецию.Жанр: комедияРежиссер: Бен ПалмерАктеры: Саймон Бёрд, Джеймс Баккли, Блейк Харрисон, Джо Томас, Эмили Хэд, Лидия Роуз Бьюли, Лаура Хэддок, Тамла Кэри, Джессика Нэппет, Тео Барклем-БиггзПеревод: ДублированноеСубтитры: ОтсутствуютФормат: MKVПродолжительность: 01:36:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 460041   (79229) от 29.02.2012
 
 Очень опасная штучка / One for the Money (2012) [H.264/720p-LQ] BDRip
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79229.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79077.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79039.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78842.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78627.jpg" />
 </div>
 
 
@@ -192,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78593.jpg" />
 </div>
 
 
@@ -220,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78584.jpg" />
 </div>
 
 
@@ -246,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78511.jpg" />
 </div>
 
 
@@ -272,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78484.jpg" />
 </div>
 
 
@@ -299,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78457.jpg" />
 </div>
 
 
@@ -326,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78441.jpg" />
 </div>
 
 
@@ -352,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78439.jpg" />
 </div>
 
 
@@ -378,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78430.jpg" />
 </div>
 
 
@@ -405,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78423.jpg" />
 </div>
 
 
@@ -431,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78422.jpg" />
 </div>
 
 
@@ -458,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78275.jpg" />
 </div>
 
 
@@ -484,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78233.jpg" />
 </div>
 
 
@@ -510,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78220.jpg" />
 </div>
 
 
@@ -537,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78028.jpg" />
 </div>
 
 
@@ -564,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78011.jpg" />
 </div>
 
 
@@ -591,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77817.jpg" />
 </div>
 
 
@@ -617,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77767.jpg" />
 </div>
 
 
@@ -643,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77718.jpg" />
 </div>
 
 
@@ -669,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77611.jpg" />
 </div>
 
 
@@ -680,6 +626,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 451894   (77395) от 20.02.2012
+
+Вальс с Баширом / Vals Im Bashir / Waltz with Bashir (2008) BDRip [H.264/720p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый полнометражный документальный мультфильм – глубоко личная работа израильского режиссера Ари Фольмана. Друг автора страдает от ночных кошмаров, связанных с 1980-ми годами, когда оба они были юными солдатами израильской армии.
+Сам Фольман понимает, что из его памяти выпали большие куски воспоминаний о том времени. Он начинает разыскивать друзей и сослуживцев, (   Читать дальше...   )Производство: США, Германия, Финляндия, Франция, Швейцария, Австралия, Бельгия, ИзраильЖанр: Военный, драма, исторический, анимационныйРежиссер: Ари ФольманПеревод: MVO (лицензия)Язык субтитров: Русские, украинские (vatah)Продолжительность: 01:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB3F9F4FBA468C0CCC89B996B2A4B37B14C7F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454188   (77048) от 18.02.2012
+
+Грибы 3D / One Way Trip 3D (2011) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77048.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре событий группа молодых людей отправившихся в лес на поиски галлюциногенных грибов. Добравшись до места, они начинают сбор грибов, а вечером решают немного оттянуться. Веселье заканчивается, когда один из ребят, отлучившийся за пивом, возвращается с разбитым в кровь лицом. Что с ним случилось, он понятия не имеет. Ребята решают срочно уйти из леса, но обнаруживают, (   Читать дальше...   )Производство: HesseGreutert Film AG / SuperfilmЖанр: Ужасы, ТриллерРежиссер: Маркус ВельтерАктеры: Сабрина Рейтер, Мелани Винигер, Херберт Лайзер, Мартин Лус, Аарон Хиц, Маттиас Бритшджи, Саймон Кэсер, Изабелль Барт, Гарри Лампль, Таня РаунигПеревод: ДублированныйСубтитры: Вшитые (отключаемые)Язык субтитров: Английский (форсированные)Продолжительность: 1:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C19A7283F587D8C44BF9F133F91BFE83A89F19
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1803368   (13781) от 22.06.2025
-
-Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack EXROW
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Собирайте стадо и отправляйтесь в Goat Simulator 3 - новую, реалистичную «песочницу» на ферме. Присоединитесь к Пилгор на острове Сан-Ангора и приготовьтесь к головокружительным приключениям. Облизывайте, бодайте и ломайте всё, что захочется в огромном новом мире. Убивайте время самым бесцельным способом со времён оригинальной Goat Simulator! Мы не будем объяснять (   Читать дальше...   )Тип издания: RepackРазработчик: Coffee Stain North ABЖанр: Экшены, АркадыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43EE7E38BA834A32A2EC644E15066C6D399117F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803402   (13770) от 22.06.2025
 
 Yao-Guai Hunter (2023) [Multi] (1.0.0/dlc) Repack FitGirl
@@ -32,7 +6,7 @@ Yao-Guai Hunter (2023) [Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13770.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Victoria 3 (2022) [Ru/Multi] (1.9.2/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13768.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Augmented Empire (2025) [Multi] (22089) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13765.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Void Sails (2025) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13764.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ High On Life (2022) [Ru/Multi] (Build 12527950/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13763.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Svarog's Dream (2023) [En] (7.0.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13747.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Snow Plowing Simulator (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13736.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Fallout 3 (2009) [Ru] (1.7.0.4/dlc) Repack EXROW [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13728.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Len's Island (2021) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13724.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Farm Manager World (2024) [Ru/Multi] (1.0.20250421.417) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13719.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Post Trauma (2025) [Multi] (1.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13704.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Snow Plowing Simulator (2024) [Ru/Multi] (2506161915) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13686.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ TRON: Catalyst (2025) [Ru/Multi] (0.10.3 CS:16422) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13660.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13656.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250616_210
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13654.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Suit for Hire (2021) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13633.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Vivat Slovakia (2024) [Multi] (1.0b12) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13628.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13615.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13611.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Burnhouse Lane (2022) [Ru/Multi] (1.4.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13605.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Downfall: A Horror Adventure Game / Downfall: История в стиле хо�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13598.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Maliki: Poison Of The Past (2025) [Multi] (1.3.2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13585.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Stellaris (2016) [Ru/Multi] (4.0.1/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13584.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (1.2.18.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13550.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Kingdom Two Crowns (2018) [Ru/Multi] (2.2.0 r22519/dlc) License GOG [Royal Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13538.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Kingdom Two Crowns является новым этапом развития э�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BF2924326BEE1EB94E9C7895093ABD53A446461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764540   (13532) от 25.06.2025
+
+Lightyear Frontier (2024) [Ru/Multi] (0.5.1593) Repack Pioneer [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выстройте фермерское хозяйство на далекой планете и исследуйте безмятежный открытый мир! Вам предстоит построить экологичную экзоферму, растить инопланетные культуры, модифицировать своего робота и изучать загадки нового мира вместе с тремя друзьями. Живите в гармонии, наслаждаясь видами и звуками своего нового дома. Пусть стрессы, сражения, жажда и голод подождут! (   Читать дальше...   )Тип издания: RepackРазработчик: FRAME BREAK, Amplifier StudiosЖанр: Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F36E52194CD161A4319BF44E0D8F4E23624FA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

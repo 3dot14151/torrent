@@ -1,55 +1,3 @@
-###  Публикация: 1209266   (779482) от 25.02.2018
-
-Скороговорун v1.0 AdFree [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Самый ценнейший дар - это умение красиво говорить. В развитие речи вам помогут - скороговорки, стихи, упражнения, слоговые таблицы, дыхательная гимнастика.Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 26.11.2016Разработчик: ShAppПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B56766B9C552E2B45DCDAB900524F2B3F493DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975912   (779421) от 25.02.2018
-
-Электрика v2.2.4 Pro [Ru] - Подручный интерактивный справочник по электрике и автоматизации
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Подручный интерактивный справочник по электрике и автоматизации. Наш проект создавался профессионалами для профессионалов и призван упростить Вашу работу и сэкономить время. Идея создания такого приложения пришла во время работы, когда приходится постоянно обращаться к информационным таблицам, характеристикам и справочным материалам.Тип издания: Pro и Ad-Free (удалена реклама)Релиз состоялся: 21.02.2018Разработчик: Evgeny ChestnovПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981AAE2260A6A1E898D5724B24D5F8AA097D6923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012879   (778253) от 02.05.2016
 
 Сложи весь мир v1.0.8 [Ru/Multi]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778253.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Garmin: Taiwan Topo 2016.10 NT [Ch]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774099.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Garmin: NaviGuide Hungary v2016.05 NT beta [Hu]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774098.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Garmin: Topo Germany Pro v8 [De]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774032.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Garmin: TOPO Israel v3 Light [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773974.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Strive Intervals v1.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772951.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ SPB TV Russia v1.9.5 AdFree [Ru] - онлайн ТВ каналы, фильмы 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772767.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Landstalker - The Treasures Of King Nole 1.1.1 (SEGA Genesis Game) [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771898.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Garmin: Vietnam Map 2.08.0416 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771127.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Global Equalizer & Bass Booster Pro v0.03 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770570.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Teenage Mutant Ninja Turtles - Recolored (8-Bit) 1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770395.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Knights & Dragons - Final Cut 1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769166.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ S.T.A.L.K.E.R. Call of Pripyat Mobile v0.06 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769131.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ DevCheck Hardware and System Info Pro 2.61 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768864.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768854.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ FullReader Premium 4.2.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768848.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768492.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768488.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768362.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768356.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768333.jpg" />
 </div>
 
 
@@ -618,7 +566,7 @@ Language Translator v1.5 AdFree [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767550.jpg" />
 </div>
 
 
@@ -644,7 +592,7 @@ TikTok v16.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767478.jpg" />
 </div>
 
 
@@ -670,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767451.jpg" />
 </div>
 
 
@@ -681,6 +629,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCA0804DEC0BED5B0BA4D15D8F56E2A9B23BD5F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342814   (767443) от 30.06.2020
+
+Астрологические карты Pro v9.3.7 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Астрологические Карты Pro – это профессиональная астрологическая программа для Android, которая строит 12 типов астрологических карт, содержит кроме планет ещё и 6 астероидов, и 23 фиктивные точки, включая транснептуны, и несколько жребиев. А так же есть выбор из 11 систем домов, 22 вида аспектов с настраиваемыми орбисами и база данных из около 100000 мест с заданными (   Читать дальше...   )Тип издания: Пиратка (Pro с Маркета)Релиз состоялся: 26.06.2020Разработчик: rs-astro-devПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A1FD1BF4A556B4DDF10A3047F9E972ADF74F360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 764688   (767150) от 18.03.2018
+
+Помощник электрика v11 AdFree [Ru] - справочник электрика
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767150.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью данного приложения возможно рассчитать:Тип издания: Пиратка (удалена реклама)Релиз состоялся: 09.04.2017Разработчик: NTDПоддерживаемая ОС: Android 1.6+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F33DF9137FEDBF66A6630DFF0EBAC80A2FC1177
 ```
 
 https://mybot314.ru/tekegram_catalog/

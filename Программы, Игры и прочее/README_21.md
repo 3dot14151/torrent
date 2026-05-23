@@ -1,55 +1,3 @@
-###  Публикация: 1438569   (1040848) от 09.01.2021
-
-Levelhead v100.0.38 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Levelhead - вы несете ответственность за подготовку вашего робота-доставщика GR-18 к любой ситуации. Создавайте свои уровни в интуитивно понятном редакторе в мастерской, а затем представляйте их всему миру. Стройте невероятные устройства и штуковины, создавайте приключения, для которых нужны и мозги, и реакция, или просто делайте уровни с приятной музыкой для отдыха (   Читать дальше...   )Тип издания: Пиратка (Куплена)Релиз состоялся: 6 января 2021 г.Разработчик: Butterscotch ShenanigansПоддерживаемая ОС: Android 5.0 и вышеЖанр: ЭкшенЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A253D0DB0A993D837D85C3420A6B3ED6D7E7A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438455   (1040731) от 09.01.2021
-
-Vengeance RPG v1.2.1 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Vengeance RPG – одиночная ролевая игра на андроид, где вы погрузитесь в увлекательную историю, сопровождающуюся красивой музыкой и атмосферой. Возьмите под свой контроль главного героя игры и отправляйтесь в путешествие по мрачным и живописным местам которое будет вознаграждено поиском легендарных и мифических предметов.Тип издания: Пиратка (Мод)Релиз состоялся: 4 января 2021 г.Разработчик: DimasjkTVПоддерживаемая ОС: Android 5.0 и вышеЖанр: Ролевая играЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45250CA518CB6B5301851D4E13018280F374BB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438858   (1040538) от 10.01.2021
 
 Clash of Robots v3.8 [Ru/Multi]
@@ -58,7 +6,7 @@ Clash of Robots v3.8 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040538.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040467.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ AGAMA Car Launcher v2.7.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040452.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ AI Translate v3.1.1 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040290.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ Old Movies v1.13.09 Premium [En] - Oldies but Goldies
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040289.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ ICQ New Мессенджер v9.20.1(824739) [Ru/Multi] - Общение, чат
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040221.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ Tody v1.9.4 Premium [Ru] - уборка по-умному
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040076.jpg" />
 </div>
 
 
@@ -246,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040071.jpg" />
 </div>
 
 
@@ -272,7 +220,7 @@ Weather XL PRO v1.4.7.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040042.jpg" />
 </div>
 
 
@@ -298,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039831.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039779.jpg" />
 </div>
 
 
@@ -352,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039500.jpg" />
 </div>
 
 
@@ -378,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039305.jpg" />
 </div>
 
 
@@ -407,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039267.jpg" />
 </div>
 
 
@@ -436,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039251.jpg" />
 </div>
 
 
@@ -465,7 +413,7 @@ Spread The Signs v2.0.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039114.jpg" />
 </div>
 
 
@@ -491,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039078.jpg" />
 </div>
 
 
@@ -517,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039042.jpg" />
 </div>
 
 
@@ -543,7 +491,7 @@ Firefight v1.1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039022.jpg" />
 </div>
 
 
@@ -569,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039012.jpg" />
 </div>
 
 
@@ -598,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039008.jpg" />
 </div>
 
 
@@ -626,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039006.jpg" />
 </div>
 
 
@@ -653,7 +601,7 @@ Ace Squadron: WW II Air Conflicts v1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039005.jpg" />
 </div>
 
 
@@ -679,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038997.jpg" />
 </div>
 
 
@@ -690,6 +638,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1895669AAB02FD028C1D808B6CCFDA794671E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440170   (1038958) от 16.01.2021
+
+Мой Говорящий Том 2 v2.4.0.544 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мой Говорящий Том 2 - знаменитый кот Том возвращается на экраны мобильных Андроид-устройств с новыми приключениями. Игрокам вновь предстоит развлекать героя и развлекаться самому. Для этого необходимо покупать одежду и аксессуары для персонажа, а также участвовать вместе с ним в различных мини-играх.Тип издания: Пиратка (Мод) Много денег!Релиз состоялся: 3 декабря 2020 г.Разработчик: Outfit7 LimitedПоддерживаемая ОС: Android 4.4 и вышеЖанр: КазуальныеЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F8408E6DB821C040DF7ED3CFC09178467CA0F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278127   (1038934) от 16.01.2021
+
+Скорочтение 1.3.8 [Ru/En] - Техника быстрого чтения
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение - лучшая тренировка памяти и мозга. Техника быстрого чтения позволит узнавать больше и работать быстрее. Бесплатно используй таблицы Шульте, выполняй упражнения для глаз и прокачивай концентрацию. В нашей программе для скорочтения собраны уникальные методики, благодаря которым вы научитесь читать быстро сами и пройдете курс скорочтения для детей вместе (   Читать дальше...   )Тип издания: Пиратка (удалена реклама) + ModРелиз состоялся: 25.01.2020Разработчик: SpeedreadingPROПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F02205198A63C78BD3265A30AC361BB54CD219EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

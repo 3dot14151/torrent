@@ -6,7 +6,7 @@ Ultima 9: Ascension (1999) [En] (1.00) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847941.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gothic / Готика (2001) [Multi] (1.08j/1.08k) License PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847761.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Gothic II: Gold Edition / Готика 2: Золотое издание (2005) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847755.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.2.73c/7dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846696.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Iratus: Lord of the Dead (2020) [Ru/Multi] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845893.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BELOW (2018) [Ru/Multi] (1.1.0.82) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845793.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Rustler (2021) [Ru/Multi] (1.02.01) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845705.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hyper Light Drifter (2016) [En] (1.0) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842493.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Divinity: Original Sin (2015) [Ru/Multi] (2.0.119.430/dlc) Repack =nemos= [Enhan
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842487.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842441.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mana Spark (2018) [Ru/Multi] (1.1.08) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842376.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Vagrus - The Riven Realms (2021) [En] (1.0.00.1004H) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842212.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Atelier Firis: The Alchemist and the Mysterious Journey (2017) [En] (1.0.0.9/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840852.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ The Incredible Adventures of Van Helsing II/2 / Van Helsing 2: Смерти во
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838482.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Torment: Tides of Numenera (2017) [Ru/En] (1.0.1/dlc) Repack R.G. Механик
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837500.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Blood Omen: Legacy of Kain (1996) [En] (1.0hf) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833099.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Shadowrun: Dragonfall (2014) [Ru/En] (2.1.1.8) License GOG [Director's Cut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830968.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Children of Zodiarcs (2017) [Multi] (1.0.3.7-2f11118c226f) License GOG [Collecto
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830762.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Convoy (2015) [Ru/En] (1.1.51) Repack ARMENIAC
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830075.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (1.10/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829056.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Fallout [Ru] (P) 1997
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828340.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Dungeon Encounters (2021) [Multi] (7222979) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826217.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ The Tenth Line (2017) [En] (1.0.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825805.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ DeathSpank Trilogy (2010-2011) [Ru/En] (1.0/dlc) Lossless Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825680.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Wintermoor Tactics Club (2020) [En] (2020-05-04/dlc) License GOG [Wintermost Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823846.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Dex (2015) [Multi] (5.3.0.0/dlc) Repack R.G. Механики [Enhanced Version]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823810.jpg" />
 </div>
 
 

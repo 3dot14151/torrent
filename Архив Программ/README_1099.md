@@ -6,7 +6,7 @@ foobar2000 1.1.15 Beta 2 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487863.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DFX Audio Enhancer 11.017 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487862.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Google Chrome 45.0.2454.93 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487794.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TeamViewer Free 10.0.47484 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487788.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Gilisoft Exe Lock 5.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487786.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VeraCrypt 1.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487781.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Daum PotPlayer 1.7.13963 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487749.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Skype 8.29.0.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487741.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Process Lasso Pro 6.0.1.12 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487708.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Easy CD-DA Extractor 16.0.8.1 Final RePack by elchupacabra [Русский/Ан�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487706.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Easy CD-DA Extractor 16.0.8.1 Final [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487703.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ AMD Radeon Software Crimson Edition 16.9.2 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487680.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Farbar Recovery Scan Tool 20.09.2016 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487676.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Start Menu X 5.60 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487623.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Rufus 2.4 (Build 737) Alpha Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487618.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Cumulative Update KB4034661 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487564.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Boilsoft Utilities 08.09.2012 RePack by elchupacabra [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487551.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Easy CD-DA Extractor 16.0.8.1 Final RePack (& portable) by KpoJIuK [Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487550.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ DFX Audio Enhancer 11.017 Retail [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487542.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Air Explorer Pro 1.16.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487537.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ QtWeb Internet Browser 3.8.5 build 108 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487458.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Benvista PhotoZoom Pro 6.0.6 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487445.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ ICE Book Reader Professional 9.4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487444.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Benvista PhotoZoom Pro 6.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487443.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ StartIsBack++ 1.1.0 RePack by ejay [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487442.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.08.17 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487414.jpg" />
 </div>
 
 

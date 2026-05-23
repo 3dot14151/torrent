@@ -6,7 +6,7 @@ Gyakusatsu Kikan | Genocidal Organ | Орган геноцида [2017, Movie] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265671.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kidou Butouden G Gundam | Mobile Fighter G Gundam | Мобильный воин 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265332.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Twin Angel Break | Ангельский дуэт: Прорыв [2017, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265007.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Kimi no Koe o Todoketai | Я хочу донести твой голос [2017, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265004.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ New Game!! | Новая игра! [ТВ-2] [2017, ТВ, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264966.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Battle Athletess Daiundoukai | Battle Athletes | Боевые атлеты [1997
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264634.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Battle Athletess Daiundoukai | Battle Athletes Victory | Боевые атлет
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264592.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Boku no Kanojo ga Majime Sugiru Shobitch na Ken | My Girlfriend is Shobitch | М
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264051.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Yuru Yuri Ten | Лилии на ветру OVA 2 [2019, OVA, 1 эп.] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264002.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Gunsmith Cats | Оружейницы [1995, OVA, 3 эп.] BDRip 1080 10bit raw+e
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263973.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Ushio to Tora TV | Усио и Тора ТВ (сезон 1 и 2) [2015, TV, 26 +
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263410.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Netojuu no Susume / Recommendation of the Wonderful Virtual Life / Рекоме�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263360.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Ballroom e Youkoso | Welcome to the Ballroom | Добро пожаловать �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262997.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Kanojo to Kanojo no Neko: Everything Flows | Она и её кот: Всё те�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262291.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ UQ Holder! Mahou Sensei Negima! 2 | Хранитель вечности! Вол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261886.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Kakegurui | Compulsive Gambler | Маниакальный игрок [2017, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261859.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Kuttsukiboshi / Сцепленные звёздочки [2010-12, 2 эп. OVA] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259129.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ AWOL Compression Re-MIX | Самоволка [1998, OVA, 4 эп.] LDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256669.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ KanColle 2 | Kantai Collection 2 - Itsuka Ano Umi de | Коллекционна�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255292.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Guilty Crown | Корона греха [2011, TV, 22 эп.] BDRip 1080p 10-bit r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255209.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. 2 / Не л�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255009.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Boku wa Imouto ni Koi o Suru | Я люблю свою сестрёнку [2005, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255003.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Shinseiki Evangelion Gekijouban: The End of Evangelion | Neon Genesis Evangelion
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254939.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Yuusha-Ou GaoGaiGar Final | Король храбрецов Гаогайгар: 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254844.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Kidou Senshi Gundam: Cucuruz Doan no Shima | Mobile Suit Gundam: Cucuruz Doan's 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254718.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Toki no Tabibito / Time Stranger / Путник, странствующий во
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252725.jpg" />
 </div>
 
 

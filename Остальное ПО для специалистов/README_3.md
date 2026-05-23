@@ -1,187 +1,3 @@
-###  Публикация: 1292666   (642553) от 31.03.2019
-
-Ghidra 9.0.1 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ghidra - это среда реверс-инжиниринга программного обеспечения (SRE), разработанная Исследовательским управлением АНБ. Эта структура включает в себя набор полнофункциональных инструментов анализа программного обеспечения высокого класса, которые позволяют пользователям анализировать скомпилированный код на различных платформах, включая Windows, Mac OS и Linux. Возможности (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51BECAEA1D66203D897790F1E4FE026C6DF0C2C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144550   (626923) от 22.06.2017
-
-Novicorp WinToFlash Professional 1.11.0000 Final RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>След.
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Novicorp WinToFlash – знаменитое приложение для создания мультизагрузочных USB флэшек и жестких дисков через удобное меню с неограниченным количеством установок Windows, оффлайн антивирусов, LiveDVD, реаниматоров и других мини-ос или тестов. Программа может самостоятельно скачать из интернета образы выбранных вами дисков и создать кэш этих образов на вашем компьютере, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44B9E4330F16E22CBC2FC2C089B7B2DCFCAA2C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543978   (625178) от 13.04.2022
-
-VMware Workstation 16 Pro 16.2.3 Build 19376536 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-VMware Workstation — популярная программа для создания нескольких виртуальных компьютеров в одной системе. Предназначена в первую очередь для программистов и системных администраторов, которым необходимо протестировать приложения, работающие в различных средах. Собственная технология VMware MultipleWorlds дает возможность изолировать операционные системы и приложения (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2469BE2930B45D392FB9AAFD192A74AF15A0AD71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546327   (607457) от 23.04.2022
-
-Blumentals Rapid CSS 2022 17.3.0.244 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Rapid CSS – программа для изменения существующих и создания новых каскадных таблиц стилей (CSS). Обладает большим количеством специально заготовленных шаблонов, с помощью которых можно быстрее создавать каскадные таблицы стилей. Вы сможете написать код каскадной таблицы стилей вручную, либо предоставить это сделать данной программе. Результат работы можно оценить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4FDEF681C99C3A6921549DB2F9F2F252DAEC32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546328   (607449) от 23.04.2022
-
-Blumentals HTMLPad 2022 17.3.0.244 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-HTMLPad – продвинутый HTML, CSS, javascript и XHTML редактор, которому доверяют тысячи профессиональных разработчиков. Чистый и продуманный интерфейс, быстрый запуск, гибкие и продвинутые функции помогут вам создавать и редактировать код на языках HTML, CSS, javascript и XHTML быстро и легко, чем когда-либо. А интегрированные в HTMLPad инструменты позволят проверять, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B31DA2E202155DA8048D40A64CBDC095CBD7901A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547810   (601975) от 30.04.2022
-
-Nintex Workflow 2016 4.6.2.70 [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Nintex Workflow предназначено для автоматизации как повседневных бизнес-процессов, так и решения сложных задач. Ориентированный на бизнес-пользователей и IТ-профессионалов, Nintex Workflow обеспечивает преобразование бизнес-процессов за счет объединения людей, задач и контента в один рабочий процесс.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70D7E96F86CE22F1242AB31323694EF6A5ACE83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 48210   (580137) от 11.08.2016
-
-Smeta Wizard 35
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Smeta WIZARD предназначена для автоматизации сметных расчетов в проектных, подрядных, генподрядных, монтажных, ремонтных организациях и реставрационных мастерских.
-Smeta WIZARD является стандартным приложением Windows, не требующим для работы никаких дополнительных программ и редакторов, и соответствует всем требованиям Госстроя РФ и Госкомстата РФ.
-Smeta WIZARD (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304877   (559385) от 28.05.2019
 
 Orbitron 3.71 [Multi/Ru]
@@ -190,7 +6,7 @@ Orbitron 3.71 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559385.jpg" />
 </div>
 
 
@@ -216,7 +32,7 @@ CoolUtils Total CAD Converter 3.1.0.113 RePack (& Portable) by TryRooM [Multi/Ru
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554355.jpg" />
 </div>
 
 
@@ -244,7 +60,7 @@ Adobe Dreamweaver CC 2019 19.1.0.11240 (x64) Portable by FC Portables [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550077.jpg" />
 </div>
 
 
@@ -272,7 +88,7 @@ BOOTICE 1.3.4.0 (Test) Portable [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548896.jpg" />
 </div>
 
 
@@ -298,7 +114,7 @@ Heidelberg Prinect Signa Station 2016 16.00.5171.1 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542250.jpg" />
 </div>
 
 
@@ -324,7 +140,7 @@ Microsoft Desktop Optimization Pack 2015 (x86-x64) [Multi/Ru] WZT
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520196.jpg" />
 </div>
 
 
@@ -350,7 +166,7 @@ FireDaemon Pro 3.8 Build 2717 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517203.jpg" />
 </div>
 
 
@@ -376,7 +192,7 @@ Resistor Colour Code Solver 1.3.1 Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517117.jpg" />
 </div>
 
 
@@ -402,7 +218,7 @@ StatSoft STATISTICA 10.0.1011 [Eng]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508099.jpg" />
 </div>
 
 
@@ -430,7 +246,7 @@ ZX Custom RegTweaker 2.1 Portable [Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477847.jpg" />
 </div>
 
 
@@ -456,7 +272,7 @@ ScanMaster ELM 2.1 [multi (русского нет)]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477787.jpg" />
 </div>
 
 
@@ -483,7 +299,7 @@ Hex Workshop Professional 6.8.0.5419 RePack by ErikPshat [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452997.jpg" />
 </div>
 
 
@@ -509,7 +325,7 @@ LDPlayer 4.0.83 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433718.jpg" />
 </div>
 
 
@@ -535,7 +351,7 @@ Red Gate SQL Toolbelt 1.8.2.497 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428642.jpg" />
 </div>
 
 
@@ -561,7 +377,7 @@ WinToUSB Enterprise 7.1 Release 1 Portable by AlexYar [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425402.jpg" />
 </div>
 
 
@@ -587,7 +403,7 @@ XAMPP 7.4.10 + Portable [En/De]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417831.jpg" />
 </div>
 
 
@@ -614,7 +430,7 @@ Tarma InstallMate 9.97.1.7573 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415576.jpg" />
 </div>
 
 
@@ -640,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408905.jpg" />
 </div>
 
 
@@ -666,7 +482,7 @@ WinHex 19.8 SR-8 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408299.jpg" />
 </div>
 
 
@@ -677,6 +493,192 @@ WinHex 19.8 SR-8 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49145601E7A77C59926E4F53728EA38F239E0A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413613   (407978) от 04.10.2020
+
+AmiBroker 6.30.0 Professional Edition + AmiQuote 3.31 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа технического анализа. Позволяет производить ручной анализ графиков, а также создавать и тестировать механические торговые системы.
+
+AmiQuote - это быстрая и эффективная программа загрузки и импорт финансовых данных с общедоступных веб-сайтов в AmiBroker.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46776C866A601E2A8F831C1BB37710AC421ADDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171401   (395457) от 05.10.2017
+
+Parallels Workstation 6.0.13976 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parallels Workstation v.6.0 Build 13976 (от 8 июня 2012) - это последняя версия популярной виртуальной машины для Windows построенной на базе разработок российской компании "Параллели" известной своей программой TwoOStwo.
+
+Parallels Workstation 6.0 позволит запускать - эмулировать несколько операционных систем, таких как Windows, Linux, FreeBSD, IBM OS/2 (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0E26D72EE85E7CDEA6CC90BE5206324030E537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172009   (394597) от 06.10.2017
+
+QuarkXPress 2017 13.1 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощная издательская система QuarkXPress обладает широким набором инструментов для обработки текста, создания web-страниц, управления графическими элементами и цветом, а также имеет интуитивный интерфейс. В настоящее время QuarkXPress очень широко используется в типографиях, журнальных, газетных и книжных издательствах, маркетинговых и рекламных агентствах, дизайнерских (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14EC3A3A6E2D68710745A9B3BF1FC4275DA31D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174962   (382377) от 16.10.2017
+
+Novicorp WinToFlash Professional 1.12.0000  RePack (& Portable) by elchupacabra  [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Novicorp WinToFlash – знаменитое приложение для создания мультизагрузочных USB флэшек и жестких дисков через удобное меню с неограниченным количеством установок Windows, оффлайн антивирусов, LiveDVD, реаниматоров и других мини-ос или тестов. Программа может самостоятельно скачать из интернета образы выбранных вами дисков и создать кэш этих образов на вашем компьютере, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210963C7BB8DDB02776E03E725CA63DE7CC657D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575204   (379215) от 08.09.2022
+
+LDPlayer 3.126 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379215.jpg" />
+</div>
+
+
+###  Подробнее
+
+LDPlayer - Android-эмулятор для запуска мобильных игр на ПК. Имеется поддержка запуска нескольких копий, есть возможность управления с клавиатуры, присутствует запись видео, скриншоты и запись скриптов, а также полноценная поддержка Google Play Market и всех приложений внутри него.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E02B0CF3F5BADB1F65B2295E049322CEF2A088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948291   (371845) от 25.10.2015
+
+UniWinSetup 1.2 Beta2 [Ru]
+
+>>След.
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371845.jpg" />
+</div>
+
+
+###  Подробнее
+
+UniWinSetup - программа для создания универсальных установщиков Windows XP/7/8/10, Server 2003/2008/2012 c поддержкой UEFI, на USB устройстве. А так же, для записи обычной, полноценной установки любых Windows от 7 и выше, как оригинальных образов, так и "сборок". Поддерживается запись образов размером более 4ГБ на устройство с файловой системой FAT32, так (   Читать дальше...   )Разработчик: zxenЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43163F008A76E93FBB4168DCB739B64DF9602931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072624   (351449) от 13.11.2016
+
+QuarkXPress 2016 12.2
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощная издательская система QuarkXPress обладает широким набором инструментов для обработки текста, создания web-страниц, управления графическими элементами и цветом, а также имеет интуитивный интерфейс. В настоящее время QuarkXPress очень широко используется в типографиях, журнальных, газетных и книжных издательствах, маркетинговых и рекламных агентствах, дизайнерских (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C5C46551E45809F699C6809E43C3FBD655293C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ SuperEasy Video Booster 1.1.3056 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569863.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Vivaldi 1.0.233.3 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569860.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Darude - Before The Storm (Special Edition) (2001) [FLAC|tracks+.cue]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569850.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ SuperEasy Registry Cleaner 1.0.65.1949 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569844.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Wise Care 365 Pro 3.75.335 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569838.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569836.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569834.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ SuperEasy Video Converter 3.0.5173 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569819.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Coolmuster PDF Creator Pro 2.1.11 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569796.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569794.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SuperEasy 1-Click Backup 1.15 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569790.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ SuperEasy Live Defrag 1.0.5.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569777.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ SuperEasy Photo Booster 1.1.3056 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569770.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ ProgDVB 7.10.2 Professional Edition + Channels [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569756.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Ashampoo Photo Commander 12.0.13 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569748.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.30.3500 Final RePack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569739.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Google Chrome 44.0.2403.125 Stable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569736.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Debian GNU/Linux 9.0 Stretch (Testing, 27.07.2015) [amd64] 3xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569733.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.30.3500 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569726.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Coolmuster PDF Creator Pro 2.1.11 Portable by Sn!pEr [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569702.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569699.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 5.30.3500 Final Portable [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569674.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Subtitle Edit 3.4.7 build 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569672.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ MakeMKV 1.9.5 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569670.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Illegal Bass Mash Up (2011) [MP3|320 kbps]<Dubstep, Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569667.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569664.jpg" />
 </div>
 
 

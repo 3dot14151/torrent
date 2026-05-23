@@ -6,7 +6,7 @@ Going Medieval (2021) [Ru/Multi] (0.5.29.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006574.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Highrisers (2021) [Ru/Multi] (1.0.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006453.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dead Cells (2017) [Ru/En] (v24) Repack VseTop
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006425.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Flotsam (2019) [Ru/Multi] (0.4.1p2) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006233.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Nemezis: Mysterious Journey III (2021) [Ru/Multi] (1.02/dlc) License GOG [Deluxe
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005867.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Gordian Quest (2020) [Ru/Multi] (107m) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004680.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Black Skylands (2021) [Ru/Multi] (98506d3d01) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004529.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Kingdom Rush (2014) [Ru/Multi] (4.2.33) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003738.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Carrion (2020) [Ru/Multi] (1.0.5) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003247.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Binary Domain (2012) [Ru] (1.0.0.1/upd2/dlc) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002866.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.02) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002496.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Banners of Ruin (2021) [Ru/Multi] (1.0.18) License GOG [Supporter Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002453.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Faraday Protocol (2021) [Ru/Multi] (1.0.1) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001365.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Drake of the 99 Dragons / Дрейк из клана 99 драконов [En] (R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000345.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Knytt Underground [En] (L/1.0) 2012 | POSTMORTEM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000296.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000105.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000093.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Haunt: The Real Slender Game [En] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999495.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999251.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Tomb Raider Series [En] (Steam-Rip) 1996 - 2010 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999232.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Fiona Apple - The Idler Wheel is Wiser ... (2011) [FLAC 2.0 24/96|image (Vinyl-R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998392.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Angry Birds Space (L/1.4.0) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998235.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Primal Fears [Ru/En/Multi2] (Steam-Rip) 2013 | SxSxL
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998205.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Legend of Grimrock [Ru/En] (Repack/1.3.6) 2012 | Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998187.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Minecraft [Ru/Multi56] (L/1.4.7) 2013 [Обновляемая]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998162.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Chaos Field [GameCube] [NTSC] [ENG] (2005)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998016.jpg" />
 </div>
 
 

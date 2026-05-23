@@ -1,29 +1,3 @@
-###  Публикация: 1124327   (785885) от 10.04.2017
-
-Pro Basketball Manager 2017 (2017) [Multi] (1.0.0.9) License SKIDROW
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Pro Basketball Manager 2017 – спортивный симулятор баскетбольных соревнований. Возьмите на себя роль тренера и начните свою карьеру в качестве руководителя. Основная цель ясна – привести свою команду к победе. Помимо усердных тренировок и правильного подбора игроков, на ваши плечи ложится ответственность за управление финансами клуба, чтобы оплачивать аренду стадиона (   Читать дальше...   )Тип издания: LicenseРазработчик: Umix Studios, CyanideЖанр: Sport, SimulatorЯзык озвучки: Английский, Французский и другиеЯзык субтитров: Английский, Французский и другиеЯзык интерфейса: Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D5A45B88A2AC93A1794539B4CDDA13CDB91CB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124307   (785874) от 10.04.2017
 
 The Lion's Song (2016) [Ru/Multi] (1.0) License TiNYiSO [Episode 1-3]
@@ -32,7 +6,7 @@ The Lion's Song (2016) [Ru/Multi] (1.0) License TiNYiSO [Episode 1-3]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785874.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ ZiL Truck RallyCross (2017) [En] (1.0) License TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785851.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Blackwood Crossing (2017) [Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785710.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Sexy Brutale (2017) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785526.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Game Dev Tycoon (2013) [Ru/Multi] (1.5.28) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785512.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Burden (2018) [Ru/En] (1.0/upd14) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785284.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Gravel (2018) [Multi] (1.0/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785244.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.9) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785240.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Winter Sports 2011: Go for Gold (2010) [Multi] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785234.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Winter Sports 2012: Feel the Spirit (2011) [En] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785222.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Vancouver 2010: The Official Video Game of the Olympic Games (2010) [Ru] (1.0) R
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785204.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Wargame Trilogy (2012-2014) [Ru/Multi] (17.08.17.670000744/17.09.18.2100001621/1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785191.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Sonic Forces (2017) [Ru/En] (1.04.79/dlc) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785181.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Kim (2016) [En] (1.4.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785175.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack xatab (обновля�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785056.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Hidden Expedition 18: Neptunes Gift (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784978.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Chimeras 7: New Rebellion / Химеры. Козни зла (2018) [Ru] (1.0) Un
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784954.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Beyond the Invisible 2: Darkness Came / За гранью невидимого 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784872.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Summer Athletics 2009 (2009) [Multi] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784862.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Summer Challenge: Athletics Tournament (2010) [En] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784850.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Unseen Fears 2: Outlive / Невидимые страхи 2: Суметь в
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784830.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ This War of Mine (2014) [Ru/Multi] (4.0.0(a)/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784812.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Outcast - Second Contact (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784792.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Chimeras 10: The Price of Greed / Химеры 10: Расплата за алч�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784763.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Dark Romance 8: Winter Lily / Мрачная история 8: Зимняя ли
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784606.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Dark Romance 8: Winter Lily / Мрачная история 8: Зимняя ли
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CCB57953F89DBD497EAEBB302422E3B3D032F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204662   (784567) от 06.02.2018
+
+9th Company: Roots Of Terror / 9 Рота (2009) [Ru] (1.1) Repack Other s
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784567.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 рота – это не историческая реконструкция. Это не «игра по фильму» в классическом понимании. Это попытка разработчиков показать войну на примере одного из подразделений ограниченного контингента советских войск – 9-й роты отдельного 345-го парашютно-десантного полка – элитного подразделения советского десанта, воевавшего в Афганистане весь период конфликта. При (   Читать дальше...   )Тип издания: RepackРазработчик: Lesta Studios IncЖанр: Strategy (Real-time), 3DЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FC63855BC4863EC1C1B4D16B92013FAA036F7D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

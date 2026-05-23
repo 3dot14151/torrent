@@ -1,55 +1,3 @@
-###  Публикация: 1043016   (576132) от 14.08.2016
-
-Национальная безопасность / National Security (2003) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Стать полицейским — мечта многих мальчишек. Стать офицером — мечта многих курсантов полицейской академии. А быть офицером службы «Национальной безопасности» означает только одно — быть неудачником. Эрл Монтгомери очутился там за систематическое нарушение дисциплины — его сочли недостойным носить звание полицейского. Незадолго до этого он подставил Хэнка Рафферти. (   Читать дальше...   )Производство: США / Columbia Pictures / Sony Pictures EntertainmentЖанр: Боевик, Триллер, Комедия, КриминалРежиссер: Деннис ДуганАктеры: Мартин Лоуренс, Стив Зан, Колм Фиор, Билл Дьюк, Эрик Робертс, Тимоти Басфилд, Робин Ли, Мэтт МакКой, Бретт Каллен, Клио КингПеревод: ДублированныйЯзык субтитров: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7DFE0FFE33DB2A9B1B7494158BC24A2DD989E2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043026   (575969) от 14.08.2016
-
-О мышах и людях / Of Mice and Men (1992) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименной повести Джона Стейнбека о двух приятелях, которые в годы Великой Депрессии бродили по Америке в поисках работы. Неглупый крепкий парень Джордж и слабоумный здоровяк Ленни - удача редко улыбалась им, но Джордж не мог бросить Ленни, который наверняка бы моментально попал в какую-нибудь неприятную ситуацию. И все-таки трагический день в жизни (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: ДрамаРежиссер: Гэри СинизАктеры: Джон Малкович, Гэри Синиз, Рей Уолстон, Кэйси Семашко, Шерилин Фенн, Джон Терри, Ричард Рили, Алексис Аркетт, Джо Мортон, Ноубл Уиллингэм, Джо Д’Анджерио, Так МиллиганПеревод: Двухголосый закадровый, профессиональный (НТВ+)Продолжительность: 01:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D7D0B594ADBB26B3D6D891224CAA3B2060F8B5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042400   (575966) от 14.08.2016
 
 Антон Чехов / Anton Tchekhov 1890 (2015) WEB-DL [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575966.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575837.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575794.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575790.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575740.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575710.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575657.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575636.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575625.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575537.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575515.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575365.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575361.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574977.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574916.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574915.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574914.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574817.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574814.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574305.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574268.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574246.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574237.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574111.jpg" />
 </div>
 
 
@@ -671,6 +619,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4A850F619723073FB818486348BA6B436F308EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043262   (574104) от 15.08.2016
+
+Теккен 2 / Tekken: A Man Called X (2014) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма рассказывает об одном молодом парне, который, после несчастного случая, потерял память. Он совершенно ничего не помнит о себе, и в один прекрасный момент решает сделать все возможное для того, чтобы выяснить — кто же он. Найти ответы на множество интересующих его вопросов оказывается очень сложно, но парень не собирается сдаваться и намерен идти до конца. (   Читать дальше...   )Производство: США / Good Times Production Co.Жанр: БоевикРежиссер: Вич КаосаянандаАктеры: Кейн Косуги, Кэри-Хироюки Тагава, Раде Шербеджия, Гэри Дэниелс, Келли Венхам, Пейдж Линдквист, Шарлотта Кирк, Бильяна Мишич, Сахайак Бунсанакит, Рон Смуренбург, Дэмиэн Мевис, Расселл Джеффри БэнксПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 01:28:41Реклама: отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5004D1A0EF3C740E070A6F2078D5BE55DCF94A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043132   (574098) от 15.08.2016
+
+Моя борьба / Mein Kampf (2009) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноименной пьесы популярного венгерского драматурга Георга Табори. Чернейшая комедия, рассказывающая о молодых годах Адольфа Гитлера-Шикльгрубера.
+Юный Адольф приезжает в Вену, где заводит дружбу с престарелым евреем Шломо Херцлем. Гитлер и не предполагает, что общается с лютым расовым врагом и следует всем советам и пожеланиям нового знакомца.Производство: Австрия, Германия, Швейцария / arte, Dor Film Produktionsgesellschaft GmbH, hugofilm, Scheizer Fernsehen (SF), Schiwago Film, SRG SSR idée suisse, UFA Cinema, ZDFtheaterkanalЖанр: Драма, КомедияРежиссер: Урс ОдерматтАктеры: Гёц Георге, Том Шиллинг, Анна Унтербергер, Бернд Биркхан, Вольф Бахофнер, Элизабет Орт, Карин Нойхаузер, Симон Шварц, Пауль Матич, Хеннинг Пекер, Вольфганг Хюбш, Эрнст Станковски, Михаэль ОстровскийПеревод: Многоголосый закадровый, профессиональный (СВ-Дубль по заказу ГТРК "Культура")Субтитры: Английские (отключаемые)Продолжительность: 01:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952A828CF60EBFC461744B3E7BD4784C4520808A
 ```
 
 https://mybot314.ru/tekegram_catalog/

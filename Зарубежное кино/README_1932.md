@@ -1,55 +1,3 @@
-###  Публикация: 1519876   (144766) от 26.12.2021
-
-Мейер Лански / Lansky (2021) DVD9 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мейер Лански — легенда американской мафии, с которым считались все преступные синдикаты и сам Аль Капоне. Ему, конечно, есть, что рассказать. Тот, кто сумеет разговорить скандально известного главу «корпорации убийств», получит эксклюзив на миллион долларов. Но пойдет ли на это Мейер Лански и чьи головы полетят, если он все-таки заговорит?Производство: США / Universal Pictures, Voltage Pictures, Above the Clouds Media GroupЖанр: Биография, криминал, триллер, драмаРежиссер: Итан РоквейАктеры: Харви Кейтель, Сэм Уортингтон, Джон Магаро, Минка Келли, Дэвид Джеймс Эллиотт, Дэнни А. Абекейзер, Дэвид Кейд, Анна-София Робб, Шэйн МакРей, Джеки КрусПеревод: Дублированный (iTunes), Любительский (двухголосый закадровый)Субтитры: Русские (forced), английскиеПродолжительность: 01:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E232302B3C160DE4983E5CCCB096FCB00680A75A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677653   (144763) от 21.11.2023
-
-Бабник / Spread (2009) BDRip [H.265/1080p] [10-bit] [Dub]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Никки молод, неотразим и пользуется безотказным вниманием представительниц противоположного пола. Его роман с Самантой основан исключительно на взаимном интересе. Никки интересует ее кредитная карточка и шикарный особняк, а успешную, но одинокую Саманту — безудержный дикий секс. Но когда Никки встречает Хизер, у циничного жиголо что-то переключается в голове и в (   Читать дальше...   )Производство: США, Barbarian Films, Katalyst Films, Oceana Media FinanceЖанр: драма, мелодрама, комедияРежиссер: Дэвид МаккензиАктеры: Эштон Кутчер, Энн Хеч, Маргарита Левиева, Себастиан Стэн, Эшли Джонсон, Соня Роквэлл, Рейчел Блэнчард, Шэйн Бролли, Эрик Бальфур, Мария Кончита АлонсоПеревод: Дублированный (Пифагор)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B60FEC97413DC3B3EF9E4D9DDE8C4A198E32B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678499   (144761) от 21.11.2023
 
 Неудержимые 4 / Expend4bles (2023) BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144761.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144749.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144736.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144730.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144726.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144722.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144705.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144701.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144687.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144686.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144674.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144666.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144640.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144607.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144605.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144600.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144583.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144582.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144576.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144569.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144562.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144557.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144541.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144530.jpg" />
 </div>
 
 
@@ -669,6 +617,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9A633A1A8AEE82227EBABCF720491602153D46D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678054   (144514) от 21.11.2023
+
+Первый день моей жизни / Il primo giorno della mia vita / The First Day of My Life (2023) BDRip [H.264/1080p] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дождливой ночью четверо незнакомых друг с другом самоубийц после ухода из жизни встречают загадочного незнакомца. Он отвозит их в пустующий отель, где им предстоит провести 7 дней, переосмысливая свою прежнюю жизнь и наблюдая за миром, в котором их уже нет.Производство: Италия / Lotus Productions, Medusa ProduzioneЖанр: драма, комедияРежиссер: Паоло ДженовезеАктеры: Тони Сервилло, Валерио Мастандреа, Маргерита Буй, Сара Серрайокко, Габриэле Кристини, Виттория Пуччини, Лино Гуанчале, Элена Льетти, Лидия Витале, Томас ТрабаккиПеревод: Дублированный (CPI Films)Язык озвучки: РусскийСубтитры: Русские, Английские, ИтальянскиеПродолжительность: 02:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BC517E901BFBA26C77BD579F0C4490B6C46DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967871   (144503) от 28.12.2015
+
+Перевозчик 2 / Transporter 2 (2005) BDRip [H.264/720p] [UnCut Version]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший сотрудник спецподразделения Фрэнк Мартин, известный также как Перевозчик, уходит от дел и поселяется в Майами, где устраивается шофером в богатую семью. С маленьким сыном этого семейства у него завязываются дружеские отношения.
+
+Когда же мальчика похищают, Мартину приходится использовать свои профессиональные навыки, чтобы вернуть парнишку в целости и сохранности, (   Читать дальше...   )Производство: США, ФранцияЖанр: Боевик, Триллер, КриминалРежиссер: Луи ЛетерьеАктеры: Джейсон Стэйтем, Алессандро Гассман, Эмбер Валлетта, Кейт Наута, Мэттью Модайн, Джейсон Флеминг, Кит Дэвид, Хантер Клэри, Шеннон Бриггс, Франсуа БерлеанПеревод: Профессиональный (полное дублирование) Лицензия, Профессиональный (многоголосый, закадровый)Язык субтитров: Русский, английскийПродолжительность: 01:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA38918F79681276067C292D8F836F3823A9FA82
 ```
 
 https://mybot314.ru/tekegram_catalog/

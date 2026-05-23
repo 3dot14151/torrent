@@ -6,7 +6,7 @@ Little Witch in the Woods (2022) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256742.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rise Eterna (2021) [Multi] (1.0.0 r8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255912.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Wanterlude [Anniversary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255662.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wartales (2021) [Ru/Multi] (1.0.25233) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255177.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hard To Be a God / Трудно Быть Богом (2007) [Ru] (1.1) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255154.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Minecraft Legends (2023) [Ru/Multi] (11023230) Repack DjDI [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254962.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Star Ocean: The Divine Force (2022) [Multi] (01.01/dlc) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254869.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Tiny Tina's Wonderlands (2022) [Ru/Multi] (10922058/dlc) Repack DjDI [Chaotic Gr
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254863.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Venetica (2009) [Multi] (1.0.3) License GOG [Gold Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254797.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wytchwood (2021) [En] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254791.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Vampire's Fall: Origins (2020) [Ru/Multi] (1.6.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254768.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ ArcaniA (2010) [Multi] (1.0.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254651.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack dixen18 [Complet
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254523.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (1.0.49820) Scene Fairlight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254478.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Let'sРlay [Anniversary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254361.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Slayer: The Demon Haunted World (2025) [Ru/Multi] (Build 20761750) Repack Let's�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254199.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Magic Candle Антология [En] (RePack) 1989-1993 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253980.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Diablo III/3 [Multi9] (L) 2012
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252787.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Liuyin's World (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252531.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Battle Suit Aces (2025) [Multi] (Build 20305022) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252483.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Ys vs Trails in the Sky: Alternative Saga (2025) [Multi] (Build 20347223) Scene 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252482.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Ys vs Trails in the Sky: Alternative Saga (2025) [Multi] (1.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252481.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Atelier Resleriana: The Red Alchemist & (and) the White Guardian (2025) [Multi] 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252471.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ HYKE: Northern Light(s) (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252288.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Mortal Sin (2023) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252274.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Sunless Sea (2015) [En] (2.2.11.3212/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252252.jpg" />
 </div>
 
 

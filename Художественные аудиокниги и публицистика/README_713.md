@@ -1,85 +1,3 @@
-###  Публикация: 1512910   (229037) от 26.11.2021
-
-Ирина Успенская | Практическая психология Книга 1. Конт (2020) [MP3, Елена Федорив]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-"Конт" – фантастический роман Ирины Успенской, первая книга цикл «Практическая психология», жанр героическое фэнтези, попаданцы.
-
-Госпожа Вавилова не верила ни в ангелов, ни в чертей. Все пятьдесят лет своей жизни не верила. Зато они в нее верили, а может быть, им просто стало скучно. В итоге душа женщины отправилась в другой мир, где царит позднее Средневековье, (   Читать дальше...   )Жанр: Героическое фэнтези, ПопаданцыПродолжительность: 16:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3778AC882D45678E063FF993A0674B52FC328922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341769   (229036) от 29.11.2019
-
-Василь Быков | Западня (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Один из эпизодов Великой Отечественной войны, о сложной судьбе героя повести.
-"Первая атака сорвалась. Охватив подковой высоту, рота пробовала ворваться в траншею на самой ее вершине, но не дошла даже до середины склона. Шквальный огонь немецких пулеметов заставил автоматчиков залечь на голом, скованном утренним морозом косогоре. Вскоре бойцы поняли, что здесь (   Читать дальше...   )Жанр: ПрозаПродолжительность: 02:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1D2E6AF6F65024B04E2DB23A2411B501098CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267667   (229029) от 09.12.2018
-
-Вадим Панов | Красная угроза (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Тридцать второй роман цикла «Тайный Город».
-Возвращение на вершину власти требует много времени и сил, но и того, и другого у Ярги, первого князя великой Нави, в достатке. Хитростью и подлостью он сокрушил Зеленый Дом, власть в котором захватили его преданные сторонницы, и теперь обратил свой взор на Орден, угрожая оставить Сантьягу без союзников. В Тайном Городе (   Читать дальше...   )Жанр: Городское фэнтези, Русское фэнтезиПродолжительность: 10:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4658455D0BDC1DD5E1B934B1777E00402956DC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341853   (228996) от 29.11.2019
 
 Дэвид Болдаччи | Рождественский экспресс (2019) [MP3, Кирилл Головин]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228996.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228920.jpg" />
 </div>
 
 
@@ -141,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228902.jpg" />
 </div>
 
 
@@ -167,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228901.jpg" />
 </div>
 
 
@@ -193,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228875.jpg" />
 </div>
 
 
@@ -220,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228819.jpg" />
 </div>
 
 
@@ -246,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228697.jpg" />
 </div>
 
 
@@ -272,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228640.jpg" />
 </div>
 
 
@@ -298,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228635.jpg" />
 </div>
 
 
@@ -324,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228620.jpg" />
 </div>
 
 
@@ -350,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228612.jpg" />
 </div>
 
 
@@ -376,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228548.jpg" />
 </div>
 
 
@@ -404,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228547.jpg" />
 </div>
 
 
@@ -432,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228498.jpg" />
 </div>
 
 
@@ -458,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228477.jpg" />
 </div>
 
 
@@ -486,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228452.jpg" />
 </div>
 
 
@@ -512,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228428.jpg" />
 </div>
 
 
@@ -538,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228409.jpg" />
 </div>
 
 
@@ -564,7 +482,7 @@ Zampolit | Неверный ленинец (Книга 3). Пораженец (2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228389.jpg" />
 </div>
 
 
@@ -590,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228388.jpg" />
 </div>
 
 
@@ -616,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228369.jpg" />
 </div>
 
 
@@ -642,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228305.jpg" />
 </div>
 
 
@@ -669,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227976.jpg" />
 </div>
 
 
@@ -680,6 +598,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE27DDE562AB76CF3F6541B0206FC7DC91A86EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583934   (227790) от 16.10.2022
+
+Томас Манн | Иосиф и его братья. Книги 1-4 (2022) [MP3, Георгий Попов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман-тетралогия Томаса Манна, написанный в 1926-1943 годах, детально пересказывает библейский рассказ об Иосифе Прекрасном. По воле автора ветхозаветный сюжет помещён в исторический контекст времён правления XVIII древнеегипетской династии, а история Иосифа в романе развивается в годы правления Аменхотепа III и его сына Аменхотепа IV, известного как Эхнатон. Манн (   Читать дальше...   )Жанр: Зарубежная классикаПеревод: Соломон АптПродолжительность: 80:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B14C03C10AA9C3496336F6D94D21BE9A5F4C8EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583913   (227773) от 16.10.2022
+
+Анна Леденцовская | Мария Спиридоновна (Книга 2). Комендант некромантской общаги (2022) [MP3, Татьяна Борисова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227773.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Комендант некромантской общаги» – фантастический роман Анны Леденцовской, вторая книга цикла «Мария Спиридоновна», жанр юмористическое фэнтези, попаданцы.
+Мария Спиридоновна вернулась в магический мир. Правда, вернулась младенцем, и, несмотря на сохраненный разум и мудрость прожитых лет, ей придётся здесь расти, попадая порой в забавные и неловкие ситуации.
+Тем (   Читать дальше...   )Жанр: Попаданцы, Юмористическое фэнтезиПродолжительность: 12:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93EB19D6CF06B3312968B6247D232021AF7EFEB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963593   (227744) от 13.12.2015
+
+Дмитрий  Быков | Квартал. Прохождение (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дмитрий Быков — пожалуй, самая непредсказуемая фигура в современной литературе, а «Квартал» — самая загадочная его книга. Это увлекательный квест, где главный герой — читатель. Каждый день на протяжении трех месяцев вы должны совершать самые абсурдные действия. Но при ближайшем рассмотрении они ничуть не абсурднее, чем кликанье мышью в компьютерной игре…
+Автор гарантирует: (   Читать дальше...   )Жанр: Cовременная прозаПродолжительность: 14:23:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28C733658144D36FEDC7482B8062191BF95C977
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Wondershare PDFelement 9.1.5.1975 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214416.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wonderfox HD Video Converter Factory Pro 18.4 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214413.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Multi Commander Full Edition 12.6 Build 2915 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214378.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Google Chrome 107.0.5304.88 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214376.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Google Chrome 107.0.5304.88 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214368.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Cent Browser 4.3.9.210 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214353.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MSI Afterburner 4.6.4.16255 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214347.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ AOMEI Partition Assistant Standard Edition 9.12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214335.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Cent Browser 4.3.9.210  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214328.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Multi Commander Full Edition 10.0 Build 2740 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214323.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ DesktopOK 4.51 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214292.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Wondershare Filmora X 10.7.8.12 RePack by PooShock [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214290.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214276.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ FinePrint 10.10 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_214266.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Brave Browser 1.57.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214259.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Macrium Reflect v7.2 .3954 Free Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214246.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ System Ninja 3.2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214234.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ MusicBrainz Picard 2.9.1 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214226.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Q-Dir 7.33 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214221.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214206.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ W10 Digital Activation v1.4.5.3b by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214197.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Total Commander 10.52 Extended 22.10 Full / Lite RePack (& Portable) by BurSoft 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214190.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Adobe Photoshop Lightroom Classic 12.0.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214184.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Attribute Changer 11.20b + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214182.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Wise Disk Cleaner 10.1.4.760 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214176.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Topaz Gigapixel AI 5.3.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214163.jpg" />
 </div>
 
 

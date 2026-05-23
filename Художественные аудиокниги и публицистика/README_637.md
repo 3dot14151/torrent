@@ -1,85 +1,3 @@
-###  Публикация: 1422905   (305901) от 10.11.2020
-
-Алексей Калугин | Резервация (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В середине 21-го века, когда Земля находилась на грани гибели, была создана Сфера – гигантский мегаполис, отделенный от всего остального мира непреодолимым барьером поля стабильности. В процессе своего развития общество Сферы повторило все те ошибки, которые в свое время едва не погубили Землю.
-Власть имущие сражались за власть, а простые люди, отрезанные от мертвой, (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 14:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF089E8DDF4A281EA329372D6E9C916563AA583D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422921   (305785) от 10.11.2020
-
-Владимир Першанин | Русский гигант КВ-1. Легенда 41-го года (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Их было не так и много, этих мощных тяжелых танков, всего две-три сотни машин на весь огромный фронт. Но они сумели стать настоящей легендой.
-
-Лейтенант Ерофеев сражался на КВ-1 весь 1941 год, прикрывая отход наших войск, защищая переправы и железные дороги. Несмотря на огромное численное преимущество противника, он сумел победить и выжить, буквально перемалывая (   Читать дальше...   )Жанр: Историческая литература, Книги о войне, БоевикПродолжительность: 07:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67BC99933671B4A8D115D93A122B5D56EAC6E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 121657   (305712) от 10.11.2020
-
-П.Г.Вудхауз | Не позвать ли нам Дживса? (2009) [MP3, DrLutz]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Lutz Records, как-то раз попытавшись послушать эту книжку в исполнении Герасимова и не оценив этого исполнения, представляют:
-"Не позвать ли нам Дживса?" – роман, в котором находчивый Дживс помогает молодому графу Рочестерскому выпутываться из всевозможных передряг, пока его легкомысленный хозяин Берти Вустер учится самостоятельности в специализированной (   Читать дальше...   )Жанр: классика английского юмораПеревод: Инна БернштейнПродолжительность: 7:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA5251AC474AE39333D8DD86675251C1D2614A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261074   (305644) от 10.11.2018
 
 Моника Фет | Сборщик клубники (2018) [MP3, Михаил Росляков]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305644.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305545.jpg" />
 </div>
 
 
@@ -140,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305544.jpg" />
 </div>
 
 
@@ -167,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305539.jpg" />
 </div>
 
 
@@ -193,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305464.jpg" />
 </div>
 
 
@@ -219,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305414.jpg" />
 </div>
 
 
@@ -245,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305287.jpg" />
 </div>
 
 
@@ -272,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305285.jpg" />
 </div>
 
 
@@ -299,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305284.jpg" />
 </div>
 
 
@@ -325,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305279.jpg" />
 </div>
 
 
@@ -351,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305278.jpg" />
 </div>
 
 
@@ -378,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305272.jpg" />
 </div>
 
 
@@ -405,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305266.jpg" />
 </div>
 
 
@@ -431,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305166.jpg" />
 </div>
 
 
@@ -458,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305164.jpg" />
 </div>
 
 
@@ -484,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305163.jpg" />
 </div>
 
 
@@ -510,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305161.jpg" />
 </div>
 
 
@@ -536,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305107.jpg" />
 </div>
 
 
@@ -562,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305105.jpg" />
 </div>
 
 
@@ -588,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305100.jpg" />
 </div>
 
 
@@ -614,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305098.jpg" />
 </div>
 
 
@@ -640,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305097.jpg" />
 </div>
 
 
@@ -666,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305094.jpg" />
 </div>
 
 
@@ -677,6 +595,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D23675E751EACC252C4995691B808B549061283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077201   (305002) от 29.11.2016
+
+Самуил Алешин | Дипломат (1978) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305002.jpg" />
+</div>
+
+
+###  Подробнее
+
+20-е годы. В России голод, разруха. Молодая республика в экономической блокаде. Ни с одной страной не установлены дипломатические отношения. Максимов направлен в Голландию на переговоры. Цель поездки - договориться об обмене пленными, чтобы русские солдаты могли вернуться на Родину...Жанр: Драма, радиоспектакльПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46AAA80F0552B7C9184EA97A14374E8353BC5E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076430   (304996) от 29.11.2016
+
+Эдвард Эллис | Понтиак, вождь Оттавов (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304996.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Пограничный пост Детруа в течение нескольких месяцев был в осаде. Его осаждал знаменитый Понтиак, вождь Оттавов. Заветной мечтой его было объединить все племена индейцев, старинных владетелей края, восстановить их против белых и начать беспощадную войну, которая должна была окончиться только с исчезновением с границ охотничьих владений краснокожих последнего белолицего.»Жанр: исторические приключенияПродолжительность: 05:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BEA4CEEB6A8EAC4CA35962E11AAB9E7EA145A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333313   (304990) от 24.10.2019
+
+Валентин Пикуль | Звёзды над болотом (2019) [MP3, Eлена Халатова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304990.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Звезды над болотом» — это короткий роман, объемом 6 авторских листов. Основой для написания книги стали письма ссыльных каракозовцев (конец 60-х годов 19 века). Политическая ссылка на заре народовольчества — само по себе явление очень интересное. На подлинных материалах базируется достоверное повествование о жизни северной провинции, о том, как в дикой полярной (   Читать дальше...   )Жанр: Историческая литератураИздательство: Нигде не купишьПродолжительность: 04:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C9CBBD081C6A5993C2074E35C93B7CE398BEA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

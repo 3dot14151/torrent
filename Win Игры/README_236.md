@@ -1,29 +1,3 @@
-###  Публикация: 1212759   (489465) от 28.08.2018
-
-Apocalipsis (2018) [Ru/Multi] (1.0/upd1/dlc) License PLAZA
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Apocalipsis: Harry at the End of the World - традиционная игра в жанре point-and-click adventure, созданная по подобию Samorost и Machinarium, где разгадка каждой загадки - это открытие и достижение. Игра оформлена в уникальном стиле, вдохновленном гравюрами 15 века, который позволяет поведать нам историю о сердечной тоске, искуплении и - буквально - конце света.Тип издания: LicenseРазработчик: Punch Punk GamesЖанр: Adventure (Point-and-click), Logic, CasualЯзык озвучки: Английский, ПольскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1635C6B82CFBDA231789F6620C87AF689EF9F891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242366   (489460) от 28.08.2018
 
 Typical Nightmare (2018) [Ru/Multi] (1.1) License PLAZA
@@ -32,7 +6,7 @@ Typical Nightmare (2018) [Ru/Multi] (1.1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489460.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Ken Follett's The Pillars of the Earth (2017) [Ru/Multi] (1.0.536) Repack Covfef
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489427.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Long Dark (2017) [Ru/Multi] (1.10) SteamRip R.G. Игроманы [Episode 1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489424.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Ever Forward (2020) [Ru/Multi] (0.1.5/dlc) License GOG [Special Launch Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488972.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Streamer Life Simulator (2020) [Ru/Multi] (1.0) License HOODLUM
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488968.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Crash Time III / Crash Time 3: Погоня без правил  [Ru] (RePack) 2
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488571.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Metal Wolf Chaos XD (2019) [Ru/Multi] (1.02.1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488433.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Animus - Stand Alone (2019) [Ru/Multi] (1.1.1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488403.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Tales of Hongyuan (2017) [En/Ch] (1.1.0/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487739.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Virginia (2016) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487695.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Virginia (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487692.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Opus Magnum (2017) [Ru/Multi] (20180817) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487593.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ Donut County (2018) [Ru/Multi] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487592.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487540.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ Pankapu (2016) [Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487481.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Toy Odyssey: The Lost and Found (2016) [En/Ch] (20160920) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487467.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Champions of Anteria (2016) [Ru/En] (1.7.499537.X/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487418.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Sword Coast Legends (2015) [Ru/En] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487416.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Deadpool / Дэдпул (2013) [Ru] (1.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487411.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Starpoint Gemini 2 (2014) [Ru/Multi] (1.9300/dlc) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487406.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Ravenmark: Scourge of Estellion (2015) [En] (1.18) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487196.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ Fatal Evidence 3: Art of Murder (2020) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487032.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9V) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486020.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ Behind These Eyes (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485679.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ PLANET ALPHA (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485592.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ PLANET ALPHA — это прекрасный инопланетный мир, п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F703D43E210D4281C3AFE394C7AA3887B49FB6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159200   (485549) от 19.08.2017
+
+Gas Guzzlers: Extreme (2013) [Ru/Multi] (1.8.0.0/dlc) License PROPHET [Gold Pack]
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gas Guzzlers Extreme – это динамичный, яростный, агрессивный, оснащенный новейшим вооружением гоночный экшен! Окунись в мир экстремальных заездов в этой невероятно захватывающей гонке на выживание, которая заставит кровь закипать в жилах. Тонны машин, оружия, апгрейдов, бонусов и трасс. Gas Guzzlers Extreme – это новый виток эволюции в жанре, благодаря добавлению (   Читать дальше...   )Тип издания: LicenseРазработчик: GamepiresЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E264C24AC05D88BF8FAD7A46628DFB1D1A9C4289
 ```
 
 https://mybot314.ru/tekegram_catalog/

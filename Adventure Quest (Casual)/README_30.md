@@ -6,7 +6,7 @@ Grim Tales 7: Color of Fright / Мрачные истории. Цвет стра
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592229.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Grim Tales 6: The Vengeance / Мрачные истории. Возмездие 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592224.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Grim Tales 3: The Wishes / Мрачные истории. Желания (2012) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592220.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Grim Tales 5: Bloody Mary / Страшные сказки. Кровавая Мэ
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592188.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Phantasmat 4: The Dread of Oakville (2015) [En] Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590391.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Royal Legends 2: Raised in Exile (2022) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588880.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Subliminal Realms: The Masterpiece (2015) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588625.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Nightmare Realm Collector's Edition / Сфера Кошмара. Коллекц�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588056.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The World's Legends: Kashchey the Immortal / Кощей Бессмертный (
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587954.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Far Kingdoms: Hidden Magic / Дальние королевства: Тайн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587885.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Fright Chasers 3: Director's Cut / Ловцы Страхов 3: Виденье �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587083.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Grim Facade Mystery of Venice Collector's Edition / Тайный Орден: С�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586739.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ The Last Dream (2015) [Ru/Multi] (1.0) License [Developer's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586240.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Shadow Wolf Mysteries 5: Tracks of Terror (2015) [En] Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585944.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Natural Threat 2 / Город оживших лиан (2013) [Ru] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585805.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Grim Tales 16: The Nomad / Страшные сказки 16: Четыре спо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584960.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Fear for Sale: Nightmare Cinema / Страх на продажу. Пленник
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584718.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Phantasmat 4: The Dread of Oakville / Фантазмат 4: Ужас Оукви�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583679.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Grim Legends 2: Song of the Dark Swan (2014) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581133.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Shrouded Tales 2: Revenge of Shadows (2015) [En] Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579006.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Magic City Detective: Wings Of Revenge / Волшебный Город: На к�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578793.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Mystery Tales 10: The Reel Horror / Загадочные истории 10: На
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577993.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Ashley Clark 2: The Secrets of the Ancient Temple (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577467.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Paranormal Files 3: Enjoy the Shopping. CE / Паранормальные явл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575986.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Dracula's Legacy / Наследие Дракулы (2015) [Ru] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575285.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Love Chronicles 6. Deaths Embrace / История любви 6. Объятие 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574343.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1450060   (1029277) от 24.02.2021
-
-Mekorama v1.4.6 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Mekorama — головоломка в которой нужно помочь крошечному роботу добраться до дома, помогая прокладывать путь в 50 различных каратах.Тип издания: Пиратка (Мод) Premium версия!Релиз состоялся: 22 февраля 2021 г.Разработчик: Martin MagniПоддерживаемая ОС: Android 4.4 и вышеЖанр: ГоловоломкаЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55264BF9777074E21FE1C35860CD0692E37E59FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467033   (1029208) от 02.04.2023
-
-Enhance it v4.0.9 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Фотография, которую вы сделали в этот особенный момент, получилась размытой? Вы восстановили фотографии своего старого телефона, но они действительно низкого разрешения? Фотографии с вечеринки получились шумными? «Enhance it» может исправить их все! «Enhance it» - это приложение, использующее нейронные сети и методы искусственного интеллекта для автоматического улучшения (   Читать дальше...   )Тип издания: Premium/ModРелиз состоялся: 15.12.2022Разработчик: reAImagineПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский /  Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F15D296227D2F323040F14520ACE2A971F0F70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185048   (1028609) от 28.02.2021
 
 Фильмоскоп v1.4 [Ru] (обновляемая)
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028609.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028327.jpg" />
 </div>
 
 
@@ -113,7 +61,7 @@ ElLi - Расчет проводки v1.3.33  Pro [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028283.jpg" />
 </div>
 
 
@@ -142,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028279.jpg" />
 </div>
 
 
@@ -171,7 +119,7 @@ Calc for Electronics v3.3.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028043.jpg" />
 </div>
 
 
@@ -197,7 +145,7 @@ Vector Full v1.2.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027893.jpg" />
 </div>
 
 
@@ -226,7 +174,7 @@ Plague Inc + Редактор сценариев v1.18.5 b1270 / v1.2.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027855.jpg" />
 </div>
 
 
@@ -252,7 +200,7 @@ Grand Theft Auto: SAMP Mobile v7.2 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027841.jpg" />
 </div>
 
 
@@ -278,7 +226,7 @@ Piano Melody ver.Tokyo Ghoul Fix (200) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027836.jpg" />
 </div>
 
 
@@ -307,7 +255,7 @@ Freezer v0.6.9 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027834.jpg" />
 </div>
 
 
@@ -334,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027714.jpg" />
 </div>
 
 
@@ -360,7 +308,7 @@ Queen Rock Tour v1.1.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027697.jpg" />
 </div>
 
 
@@ -386,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027684.jpg" />
 </div>
 
 
@@ -412,7 +360,7 @@ Hungry Dragon v3.10 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027680.jpg" />
 </div>
 
 
@@ -438,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027676.jpg" />
 </div>
 
 
@@ -464,7 +412,7 @@ Jetpack Joyride + Mod (Unlimited Money) v1.40.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027517.jpg" />
 </div>
 
 
@@ -490,7 +438,7 @@ Slay the Spire v2.2.6 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027475.jpg" />
 </div>
 
 
@@ -516,7 +464,7 @@ SAI (Split APKs Installer) v4.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027463.jpg" />
 </div>
 
 
@@ -542,7 +490,7 @@ AutoTagger - авто и пакетный редактор тегов v3.3.4 [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027391.jpg" />
 </div>
 
 
@@ -569,7 +517,7 @@ Evolution Never Ends / Эволюция никогда не заканчивае
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027329.jpg" />
 </div>
 
 
@@ -595,7 +543,7 @@ Handy GPS 35.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027168.jpg" />
 </div>
 
 
@@ -621,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027141.jpg" />
 </div>
 
 
@@ -650,7 +598,7 @@ WOW Volume Manager v1.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027058.jpg" />
 </div>
 
 
@@ -676,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027011.jpg" />
 </div>
 
 
@@ -687,6 +635,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EB1913242BC4F8B7467D413ADA600C4CA6A487F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453374   (1026908) от 11.03.2021
+
+Луноскоп v12.0 [Ru/Multi] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающая, интерактивная 3D-имитация Луны вплоть до теней на кратерах и земного сияния на темной стороне. Управление с сенсорного экрана изменяет дату и время так, как они видны из места вашего расположения - фаза отслеживает каждое ваше перемещение. Двумя пальцами можно вращать саму Луну (см. дальнюю сторону) и увеличивать масштаб, чтобы вблизи рассмотреть все (   Читать дальше...   )Тип издания: Пиратка (открыт Pro)Релиз состоялся: 18.02.2021Разработчик: Udell Enterprises, IncПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5610B316030183241693597CC41E13D50E3C8C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453867   (1026706) от 12.03.2021
+
+Starman v1.1 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Starman – занимательная головоломка на андроид, где вы будете путешествовать по архитектурным пейзажам с неповторимой атмосферой. В этой игре вы будете помогать главному герою Звездному человеку пройти через все испытания и восстановить освещение.Тип издания: PaidРелиз состоялся: 9 марта 2021 г.Разработчик: nada studioПоддерживаемая ОС: Android 7.0 и вышеЖанр: ГоловоломкаЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F37628DC3110BB056870D28BC2FAF96617FC20EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

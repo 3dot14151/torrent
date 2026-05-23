@@ -6,7 +6,7 @@ AIX 7.2 TL4 SP2 [POWER] 2xDVD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018864.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ FreeNAS 11.3-U5 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018149.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ XigmaNAS 12.2.0.4.8311 [x64] 1xCD+4xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017634.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Calculate Linux 21 [x86_64] 8xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017485.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ FreeBSD 13.0 [i386, amd64] 2xDVD
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014393.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Debian Edu - Skolelinux 10.9.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012356.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ antiX Linux 19.4 Grup Yorum [i386, x86_64] 6xСD + 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011032.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Debian GNU/Linux 10.10.0 + nonfree Buster [i386] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010103.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Debian GNU/Linux 10.10.0 + nonfree Buster [amd64] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010102.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.3 [x86_64, aarch64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008661.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ ArcaOS 5.0 [i386] 1xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008510.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Ctlos Linux Xfce 2.1.0 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008239.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Amiga OS 4.1 [PowerPC] 1xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008223.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Linux Mint 20.2 Uma (XFCE, Mate, Cinnamon) [64bit] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007343.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Kali Linux 2021.2 (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006207.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ EuroLinux 8.3 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005771.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Parted Magic 2019.12.24 [i686/amd64] 1xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003128.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Liberte Linux [анонимный доступ в сети] 2012.3 [x32] (1xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999004.jpg" />
 </div>
 
 
@@ -489,43 +489,13 @@ Tor Browser 2.3.25-2 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997709.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Tor Browser for Linux - удобная и простая модификация Firefox с интегрированной (встроенной) системой TOR, устраняющая проблему установки и сложной первоначальной настройки (для малоопытного пользователя). Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное обеспечение Tor и соответствующим образом настроенный браузер Firefox.Название программы: Tor Browser
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605023   (996008) от 18.01.2013
-
-Pear Linux 6.1 R2 [i386, amd64] (2xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-После нескольких дней, разработчики выпустили новую исправленную версию 6.1 R2, в которой, с их слов,  устранены проблемы первой версии дистрибутива.
-
-Pear OS - французский дистрибутив Linux, основанный на Ubuntu. Разработчики постарались максимально приблизить интерфейс системы к Mac OS. Pear OS использует различные передовые технологии, чтобы сделать Вашу работу на компьютере максимально удобной. На рабочем столе располагается панель быстрого запуска, позволяющая запускать приложения одним кликом. Launchpad - это своеобразный дом, где находятся все установленные программы. Все приложения, которые Вы загрузите, сразу же появятся там. Также в состав Pear OS входит Finder - утилита, позволяющая искать различные файлы не только на этом компьютере, но и на других компьютерах Вашей сети. с помощью программы QuickView Вы можете просмотреть файл, не открывая его, тем самым убедившись в соответствии содержимого названию.
-
-Основные изменения:  Pear PPA Manager, Pear Cleaner.. Также обновлены практически все пакеты и ядро (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -545,7 +515,7 @@ Snowlinux 4.0 Glacier (XFCE, E17 - легкий дистрибутив) [i386 + 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994684.jpg" />
 </div>
 
 
@@ -573,7 +543,7 @@ eComStation OS 2.1  [демо-версия] (1xCD)
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993249.jpg" />
 </div>
 
 
@@ -606,7 +576,7 @@ XigmaNAS-x64-LiveCD-12.1.0.4.7091 1xCD 12.1.0.4.7091 [amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992990.jpg" />
 </div>
 
 
@@ -632,7 +602,7 @@ ESSPEE R3 Live DVD (Анализ безопасности, хакинг) [i386] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990819.jpg" />
 </div>
 
 
@@ -662,7 +632,7 @@ Calculate Linux 15.12 [x86-64] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988321.jpg" />
 </div>
 
 
@@ -690,7 +660,7 @@ Calculate Linux 15.12 [i686] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987319.jpg" />
 </div>
 
 
@@ -703,6 +673,34 @@ Calculate Linux 15.12 [i686] 1xCD, 6xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F157970A9741A4B5B9C1EC4C361BFD4C96CC94E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740905   (985899) от 01.01.2014
+
+Scientific Linux 6.5 Live Beta [i386, x86-64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС *Nix (Alpha, Beta, RC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел тестовый релиз Scientific Linux 6.5 Live – очередной выпуск дистрибутива enterprise-класса, собранного на пакетной базе Red Hat Enterprise Linux для архитектур i386 и x86_64: LiveMiniCD – IceWM; LiveCD – GNOME; LiveDVD – GNOME, KDE, IceWM.. Поддерживается возможность установки на диск (HDD, USB).
+
+Особенности релиза: Linux kernel 2.6.32, Firefox 24.2.0, IceWM 1.2.37, LibreOffice 4.0.4, KDE 4.3.4
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8321E6E6334A2906BDAF04F2077435D2BDDBDDA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

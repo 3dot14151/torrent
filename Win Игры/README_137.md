@@ -1,29 +1,3 @@
-###  Публикация: 1208617   (779876) от 22.02.2018
-
-Lobotomy Corporation (2016) [Ru/Multi] (0.3.1.1b) Repack VseTop
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В игре «Lobotomy Corporation» вам предстоит возглавить необычную компанию, занимающуюся содержанием SCP-объектов, а, проще говоря, монстров. Делается это для извлечения из них специальной энергии. Ваша задача - построить специальные камеры и содержать самых ужасных монстров. Будьте предельно осторожны, ведь SCP-объекты крайне опасны, каждый обладает своими уникальными (   Читать дальше...   )Тип издания: RepackРазработчик: Project MoonЖанр: Инди, СимуляторыЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E8C81C90FF7AE384991D2850C25642C14A3515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208580   (779875) от 22.02.2018
 
 Stationeers (2017) [Ru/Multi] (0.1.1176.5874) Repack VseTop
@@ -32,7 +6,7 @@ Stationeers (2017) [Ru/Multi] (0.1.1176.5874) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779875.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Final Fantasy XII: The Zodiac Age / Final Fantasy 12: The Zodiac Age (2018) [Mul
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779857.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Sherlock Holmes: Crimes and Punishments / Шерлок Холмс - Престу
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779844.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Usurper (2018) [En] (1.000/hf3) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779843.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Far Out (2018) [Ru/En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779841.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/dlc) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779837.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Shadowplay 3. The Forsaken Island / Театр теней 3: Покинутый 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779776.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ RUINER (2017) [Ru/Multi] (1.06) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779731.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Warhammer 40,000: Armageddon - Da Orks (2016) [Ru/Multi] (1.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779725.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Abandon Ship (2018) [En] (0.5.8009) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779722.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Universim (2016) [En] (Alpha 23) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779705.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Injustice: Gods Among Us (2013) [Ru/En] (1.0.2787.0upd5/dlc) Repack R.G. Мех�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779704.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Demon Hunter 4: Riddles of Light / Охотник на демонов 4: Тай�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779604.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Stars in Shadow (2017) [En] (21910/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779553.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Little Nightmares (2017) [Ru/Multi] (1.0.43.1/dlc) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779442.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Deadly Premonition (2013) [Ru/Multi] (1.01b) Repack R.G. Catalyst [Director's Cu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779436.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Spec Ops: The Line (2012) [Ru/En] (1.0.6890.0upd2/dlc) Repack R.G. Механи�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779433.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Sleeping Dogs (2014) [Ru/Multi] (1.0) SteamRip R.G. Origins [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779429.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Little Nightmares (2017) [Ru/Multi] (1.0/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779428.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Past Cure (2018) [Ru/Multi] (1.0/upd1) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779174.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.1) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778779.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Royal Detective 5: The Princess Returns / Королевский детекти�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778650.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Owlboy (2016) [Ru/En/Jp] (1.3.6613.28019) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778588.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ F.E.A.R. 3 / F.3.A.R. (2011) [Ru/En] (16.00.20.0275) Repack R.G. Механик�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778582.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Rad Rodgers (2018) [Ru/Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778581.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Rad Rodgers (2018) [Ru/Multi] (1.5) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD06EE73F41E583312272A011F17FD5A752894C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210769   (778454) от 04.03.2018
+
+Grim Tales 14: The Time Traveler / Страшные сказки 14: Путешественник во времени (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающей серии игр Grim Tales. Направляясь на семейное барбекю Анна Грэй чуть не погибает в автокатастрофе! А вскоре по прибытию она обнаруживает, что кто-то убил ее племянницу и племянника. Преступник намеревается уничтожить всю Семью Грэй! Анна решает срочно переместится назад во времени, чтобы остановить злодея. Но, то что она обнаруживает шокирует (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2634A70BCDE6F5103655676723491C131A218BD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

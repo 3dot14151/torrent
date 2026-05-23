@@ -6,7 +6,7 @@ Chromium 63.0.3236.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392904.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Free Studio 5.7.7.1031 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_392844.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Norton AntiVirus 22.11.0.41 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392831.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ KeePassXC 2.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392827.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Norton Internet Security 22.11.0.41 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392821.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Zemana AntiLogger 1.9.3.222 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_392763.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ NetSetMan 3.5.1 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_392760.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ ImBatch 5.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392754.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ SideFx Houdini FX 16.0.736 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392745.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ SamDrivers 17.10 - LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392741.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Luxion Keyshot Pro 7.1.36 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392664.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ BitTorrent Pro 7.10 Build 44091 RePack (& Portable) by D!akov  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392598.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Registry Repair Wizard 2012 6.80 + Portable by p2000s [Англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_392540.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ jv16 PowerTools 2013 Lite 2.1.0.1200 + Portable by p2000s [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_392480.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_392409.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Win7codecs 3.8.4 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_392186.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ FileZilla 3.6.0 RC1 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_392181.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Win7codecs 3.8.3 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_392123.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ save2pc Ultimate 5.5.2 Build 1572 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392043.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ K-Lite Codec Pack Update 9.4.4 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391927.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Recover Keys Enterprise 10.0.4.198 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391852.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Google Chrome 24.0.1312.2 Dev [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391833.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ The KMPlayer 3.3.0.51 LAV by 7sh3 [Ru/Eng/Ukr]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391742.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Acronis BootCD 7PE x86 by naifle (09.10.2017) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391706.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Password Depot Professional 6.2.0 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391696.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Room Arranger 7.1.2.292 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391613.jpg" />
 </div>
 
 

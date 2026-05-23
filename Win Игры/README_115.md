@@ -1,29 +1,3 @@
-###  Публикация: 1504102   (813682) от 22.10.2021
-
-Evertried (2021) [Ru/Multi] (1.0) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В мире непоколебимого порядка Башня - маяк надежды для заблудших душ, не нашедших ни вечный покой, ни вечные муки. Дальнейший исход здесь зависит от них самих. Единственный выход - вознестись на самую вершину. Вы не помните наверняка, что с Вами приключилось, но знаете одно: Вам не удалось доказать доблесть при жизни. Оказавшись в Башне, Вы встречаете неразумное (   Читать дальше...   )Тип издания: LicenseРазработчик: Lunic Games, Danilo DominguesЖанр: Strategy, Tactical, Roguelite, IsometricЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38780C138E41691FCA71FD0C92BCB2C5408A21FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504104   (813573) от 22.10.2021
 
 Tandem: A Tale of Shadows (2021) [Ru/Multi] (1.0.1.2) License GOG
@@ -32,7 +6,7 @@ Tandem: A Tale of Shadows (2021) [Ru/Multi] (1.0.1.2) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813573.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Okinawa Rush (2021) [Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813571.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Youtubers Life 2 (2021) [Ru/Multi] (1.2.1.3) License DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813534.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ This Land Is My Land (2021) [Ru/Multi] (0.0.9.18436) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813356.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Gorogoa (2017) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813348.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Poppy Playtime (2021) [Multi] (7543327) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813347.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Surge (2017) [Ru/Multi] (Update 11/dlc) SteamRip R.G. Origins [Complete Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813205.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Remember Me (2013) [Ru/Multi] (1.0.2/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813203.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ DmC - Devil May Cry (2013) [Ru/Multi] (1.0r3/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813073.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Outpost 13 (2015) [Ru/Multi] (1.0) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812961.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Survivor Squad: Gauntlets (2015) [En] (1.03) Repack ARMENIAC
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812958.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ LostWinds: The Blossom Edition (2016) [En/Multi] (1.0) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812956.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Goetia (2016) [En/Fr] (1.1) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812945.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ My Friend Pedro (2019) [Ru/Multi] (1.03) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812811.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812688.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Nancy Drew: The Deadly Device / Нэнси Дрю: Смертоносное ус
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812629.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Homefront (2011) [Ru/En] (1.5/dlc) Repack R.G. Механики [Ultimate Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812623.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ A Pixel Story (2015) [En] (1.4) Unofficial FANiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812583.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Witness (2016) [Ru/Multi] (964-Ansel(A)) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812558.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Train Mechanic Simulator 2017 (2017) [Ru/Multi] (1.0.16) License HI2U
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812556.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Fairy Godmother Stories 4: Puss in Boots / Истории Крестной фе�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812097.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Robin Hood 4: Spring of Life / Робин Гуд 4: Источник жизни 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811688.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Steel Rain (2015) [En/De] (1.4.1) Repack ARMENIAC
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811333.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ STEEL STRIDER (2015) [En] (1.0) Repack ARMENIAC
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811318.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Painkiller Антология [Ru/En] (Lossless RePack) 2004-2011 | RG Packers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811087.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Painkiller Антология [Ru/En] (Lossless RePack) 2004-2011 | RG Packers
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3C0B5BB3CFA03C6DDB3B6B77E135F08828C295F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009041   (811062) от 20.04.2016
+
+WolfQuest (2015) [En] (2.7.1p3a) License PLAZA
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811062.jpg" />
+</div>
+
+
+###  Подробнее
+
+WolfQuest — игра-симулятор жизни волка в Зоопарке Миннесоты, разработанная его командой и компанией Eduweb, чтобы вы могли лучше понять поведение серых волков в естественной среде обитания. В частности, игра позволяет вам оказаться в шкуре одного из волков и исследовать знаменитый Йеллоустонский заповедник.Тип издания: LicenseРазработчик: eduwebЖанр: SimulatorЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F38F4A731D511A2B2B935954CFDEF83225EC69F
 ```
 
 https://mybot314.ru/tekegram_catalog/

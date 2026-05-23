@@ -6,7 +6,7 @@ AIMP 5.02 build 2366 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683974.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WebBrowserPassView 1.75 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683916.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Cakewalk SONAR Platinum 22.6.0 Build 26 (2016.06) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683914.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MAGIX Sound Forge Pro 14.0 Build 111 (x64) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683865.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FastStone Capture 9.4 Final RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683864.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Waterfox 56.2.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683856.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.8.5 + portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683852.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ GPU-Z 2.18.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683838.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ StartAllBack 3.3.3.4300 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683834.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Blackmagic Design DaVinci Resolve Studio 17.4.5 Build 7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683829.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ ISO Workshop 3.0 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_683812.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Google Chrome 51.0.2704.106 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683787.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ DSP pack 1.45 (Winamp / Aimp) RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683785.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Blender 2.77a + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683781.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Xilisoft Video Converter Ultimate 7.8.17 Build 20160613 RePack (& Portable) by e
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683775.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Red Giant Effects Suite 11.1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683753.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BELOFF [dp] 2019.3.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683729.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Loaris Trojan Remover 3.0.81.216 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683727.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683718.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Clipdiary 5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683717.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Snooper Professional 3.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683712.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Lpro - Проверка лицензий программ 1.2 + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683683.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Red Giant Trapcode Suite 13.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683676.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Red Giant Shooter Suite 13.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683668.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Office 2013-2019 C2R Install + Lite 6.5.8 Final Portablel by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683595.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Total Commander 9.22 Final LitePack / PowerPack + Portable 2019.3 by SamLab [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683510.jpg" />
 </div>
 
 

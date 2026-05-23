@@ -1,55 +1,3 @@
-###  Публикация: 1231979   (599477) от 24.06.2018
-
-Душа компании / Life of the Party (2018) WEB-DL [H.264/1080p-LQ] [UKR, EN]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После неожиданного развода домохозяйка Диана решает перезапустить собственную жизнь и отправляется в колледж. Она попадает на один поток с родной дочерью, которая совсем не рада подобному повороту событий. Но Диану уже не остановить. С распростёртыми объятиями она принимает безумную студенческую жизнь.Производство: США, Warner Bros. Pictures, New Line CinemaЖанр: КомедияРежиссер: Бен ФэлкоунАктеры: Гиллиан Джейкобс, Мелисса МакКарти, Дебби Райан, Адриа Архона, Джули Боуэн, Люк Бенвард, Молли Гордон, Майя Рудольф, Стивен Рут, Крис ПарнеллПеревод: ОтсутствуетЯзык озвучки: Украинский дубляж (студия Postmodern), английский (оригинал)Субтитры: ОтсутствуютПродолжительность: 01:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7F405428090C089F1FC645E33BFC6865CB3F68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232282   (599475) от 24.06.2018
-
-Телефонная линия / Landline (2018) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действия разворачиваются в 1995 году в Нью-Йорке. Две сестры, Дана и Эли, стали подозревать в измене своего отца. В этот момент они осознали, что их размеренная семейная жизнь начинает рушиться. Впервые старшая сестра Дана, недавно помолвленная и испытывающая угрызения совести из-за собственной неверности, чувствует привязанность к младшей сестре-подростку Эли. Вдвоем (   Читать дальше...   )Производство: США, MWM (MadisonWellsMedia), Route One EntertainmentЖанр: Драма, КомедияРежиссер: Джиллиан РобеспьерАктеры: Дженни Слейт, Джей Дюпласс, Эбби Куинн Джекман, Джон Туртурро, Иди Фалко, Али Ан, Маркиз Родригез, Джордан Карлос, Финн Уиттрок, Индия МенуэзПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D36F9134ACF986C7330B8FAA573341C63CAA078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232359   (599471) от 24.06.2018
 
 Tomb Raider: Лара Крофт / Tomb Raider (2018) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit]
@@ -58,7 +6,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) UHD BDRip [H.265/2160p] [4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599471.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599470.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599397.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599389.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599385.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599376.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599267.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599263.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599255.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_599218.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599208.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599195.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599171.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_599156.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599135.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599131.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599120.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599117.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599114.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599080.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599070.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599069.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599049.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599047.jpg" />
 </div>
 
 
@@ -673,6 +621,62 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A39A58532C6D0733022C2CB2976BD5D7BC300E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526257   (598978) от 23.07.2012
+
+Командный дух / Teen Spirit (2011) DVDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Фэнтези, Драма, КомедияРежиссер: Джил ДжангерАктеры: Крис Зилка, Линдси Шоу, Кэсси Сербо, Рода Гриффис, Елена ВарелаПеревод: Любительский одноголосыйЯзык субтитров: Русские (на песни)Продолжительность: 01:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED922FAE03983914EE61198E1C61260ABE2CD1C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526226   (598977) от 23.07.2012
+
+Багровые реки 2: Ангелы апокалипсиса / Crimson Rivers 2: Angels of the Apocalypse (2004) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитан Пьер Ниман — полицейский. Чертовски хороший полицейский. Один из лучших. Его работа требуется в особенных случаях. Он умный и храбрый, за словом в карман не полезет. Он любит работать один, но зачастую ему требуется напарник, а то и два. Он ненавидит собак, но имеет свою собственную — йоркширского терьера.
+
+Ему доставляет радость воздать по заслугам бандитам и убийцам, тем более, что они верят в свою безнаказанность, пока не перейдут дорогу Пьеру Ниману. Ниман расследует дело о человеке, замурованном в стену с загадочными знаками. В это время Реда, молодой капитан полиции, находит у дверей церкви полумёртвого двойника Иисуса Христа. Реда полагает, что эта история как-то связана с расследованием Нимана, учеником которого он был в полицейской школе.
+
+В округе продолжаются убийства: таинственные монахи, обладающие сверхъестественной силой, убивают случайных встречных и исчезают бесследно. При помощи Мари, специалистки по истории религий, Ниман и Реда пытаются найти ответы на все вопросы…Жанр: Боевик, Триллер, КриминалРежиссер: Оливье ДаанАктеры: Жан Рено, Бенуа Мажимель, Кристофер Ли, Камилль Натта, Джонни Халлидей, Габриель Лазюр, Огустен Легран, Серж Рябукин, Андре Пенверн, Франсис РеноПеревод: Дублированный, авторский одноголосый (А. Гаврилов)Язык субтитров: Русский, АнглийскийПродолжительность: 01:39:09
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

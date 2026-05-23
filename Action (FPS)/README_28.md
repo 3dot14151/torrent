@@ -6,7 +6,7 @@ CyberMage: Darklight Awakening [En] (RePack) 1995 | dimonstrer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380580.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Crysis 2 (2011) [Ru] (1.9/dlc) Repack xatab [Maximum Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380167.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Turok [Ru] (L) 2008
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379700.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ALICE VR (2016) [Ru/Multi] (1.0) Repack Other s [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379558.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Killing Room (2016) [Ru/Multi] (1.37.1/u1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379557.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Red Alliance (2018) [Ru/En/Fr] (1.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378940.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Red Alliance (2018) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378928.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Borderlands: Game of the Year Edition (2009) [Ru/En] (1.5.0.0/dlc) Repack R.G. �
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378709.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376761.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.10373/dlc) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376751.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Vietcong Anthology (2003-2005) [Ru/En] (1.60/1.1/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376403.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Agony UNRATED (2018) [Ru/Multi] (1.0/upd5) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376049.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Shadow Warrior (2013) [Ru/Multi] (1.1.2/1.5.0/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373695.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Call of Juarez Дилогия [Ru] (RePack) 2006-2009 | R.G. ReCoding
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373169.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ In Verbis Virtus (2015) [Ru/Multi] (1.0.2420) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372701.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Viscera Cleanup Detail (2015) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371679.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.11.0/dlc) Repack R.G. Catalyst [Deluxe E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371354.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Call of Juarez / Call of Juarez: Сокровища Ацтеков (2006) [Ru/En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370345.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Deus Ex Anthology (2001-2014) [Ru/Multi] Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370321.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Medal of Honor (2010) [Ru] (1.0.75.0) Rip xatab [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369767.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Medal of Honor Warfighter (2012) [Ru] (1.0.0.3/dlc) Repack xatab [Limited Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369755.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Neptune: Arena FPS (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367155.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Welcome to Hanwell (2017) [En] (1.0/Hotfix) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366954.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Autumn Dream (2016) [Ru/En] (1.6.9.6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365900.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Gods Basement (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365423.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Debris (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364787.jpg" />
 </div>
 
 

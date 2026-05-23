@@ -1,58 +1,3 @@
-###  Публикация: 913230   (604698) от 29.06.2015
-
-Анимированные карточки Домана 1.12 [Ru]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ребёнок постоянно тянется к вашему смартфону или планшету и норовит что-то там понажимать? Что ж, мы знаем, как из этого извлечь пользу. Студия «Cyborg-games» представляем новую развивающую игру, разработанную для мобильных устройств на ОС «Андроид». Методика Домана позволяет обучать детей чтению и произношению. Приложение с анимированными карточками Домана, русским (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 21 мая 2015 г.Разработчик: Cyborg-gamesПоддерживаемая ОС: Android: 2.3+Жанр: ДетскиеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83734DE9DCE5EAFD1BF502FAA89916CF78422824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913540   (604585) от 29.06.2015
-
-AlReader 1.65 150531 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Программа предназначена для комфортного чтения художественной и не только художественной литературы !
-- Форматы fb2, fbz, txt, epub (без DRM), html, doc, docx, odt, rtf, mobi (без DRM), prc (PalmDoc), tcr. Поддержка ZIP и GZ архивов.
-- поддержка TTS (разрешение на доступ к звонкам необходимо для обеспечения остановки TTS во время звонка)
-- поддержка сетевых библиотек (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 31 мая 2015 гРазработчик: Alan.NeverlandПоддерживаемая ОС: Android 1.6+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9876A79851E973281E2BFA774DA7362D43A895A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297423   (604030) от 22.04.2019
 
 Дурак v1.6.2 AdFree + Mod [Ru]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604030.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ Infinite Painter v6.3.21  [Ru/Multi] - редактор растровой гр�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603994.jpg" />
 </div>
 
 
@@ -114,7 +59,7 @@ Garmin: Topo Spain V7 PRO [Es]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602944.jpg" />
 </div>
 
 
@@ -140,7 +85,7 @@ Garmin: City Navigator Thailand NT 2021.20 + 2021.40 (Dual) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602936.jpg" />
 </div>
 
 
@@ -166,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601540.jpg" />
 </div>
 
 
@@ -192,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601130.jpg" />
 </div>
 
 
@@ -218,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601084.jpg" />
 </div>
 
 
@@ -244,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601080.jpg" />
 </div>
 
 
@@ -271,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601078.jpg" />
 </div>
 
 
@@ -298,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601076.jpg" />
 </div>
 
 
@@ -326,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601069.jpg" />
 </div>
 
 
@@ -352,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600997.jpg" />
 </div>
 
 
@@ -378,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600938.jpg" />
 </div>
 
 
@@ -404,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600934.jpg" />
 </div>
 
 
@@ -431,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600073.jpg" />
 </div>
 
 
@@ -459,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599981.jpg" />
 </div>
 
 
@@ -488,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599835.jpg" />
 </div>
 
 
@@ -516,7 +461,7 @@ Garmin: TOPO Andes v.4 (2016.10) [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599079.jpg" />
 </div>
 
 
@@ -542,7 +487,7 @@ Hydro Coach - пейте воду 2.9.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598330.jpg" />
 </div>
 
 
@@ -568,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598163.jpg" />
 </div>
 
 
@@ -596,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598001.jpg" />
 </div>
 
 
@@ -622,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597727.jpg" />
 </div>
 
 
@@ -649,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597540.jpg" />
 </div>
 
 
@@ -678,7 +623,7 @@ Microsoft Office Mobile 15.0.4220.2300 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597436.jpg" />
 </div>
 
 
@@ -689,6 +634,58 @@ Microsoft Office Mobile 15.0.4220.2300 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27F0C020E0EAFAD98A8135C6AC6D41A1BC72FE5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149899   (596424) от 13.07.2017
+
+Мои заметки - Блокнот v1.16.1 Ad-Free [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой блокнот, где можно легко вести записи в дневник или записную книжку.Тип издания: Пиратка (Разблокирована, без рекламы)Релиз состоялся: 12.07.2017Разработчик: LiteWhiteПоддерживаемая ОС: Android 2.3.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5287DA20627DF722A8E63F5002C54059C21C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914930   (596369) от 03.07.2015
+
+Рецепты пиццы Pro 1.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшее приложение для выпечки пиццы дома! С помощью этого приложения вы сможете приготовить пиццу на ваш вкусТип издания: FreeРелиз состоялся: 03.07.15Разработчик: VGDG Advanced TechnologyПоддерживаемая ОС: Android 2.2 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE4667FF768A1DDC6A872EA3D2F7A48EEEA568F
 ```
 
 https://mybot314.ru/tekegram_catalog/

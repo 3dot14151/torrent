@@ -1,91 +1,3 @@
-###  Публикация: 1740780   (47958) от 03.08.2024
-
-Полина Ром, Дмитрий Лим | Новая история (Книга 2). Соединённые Штаты России 2 (2024) [MP3, Андрей Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Команда профессиональных военных, во главе с командиром, попадает в прошлое нашего мира.
-Нет магии.
-Нет кланов.
-Зато есть еще не тронутый конкистадорами материк, ацтеки и их сложные боги. Есть настоящая история, кровавая и дикая, которую стоит изменить.Жанр: Альтернативная история, ПопаданцыИздательство: АРДИС
-Категория: 18+Продолжительность: 09:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4693E7DD40D7718BF2361A6C2B99051EFD34AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740745   (47954) от 03.08.2024
-
-Джеймс Дэшнер | Бегущий в лабиринте (Книга 7). Три ипостаси Божества (2024) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Спустя 70 лет после событий основной трилогии над миром «Лабиринта» и его героями нависла новая угроза…
-Постапокалиптическая Америка – по-прежнему не лучший из миров.
-И Вспышка все так же дает о себе знать. Но даже в этих условиях жизнь постепенно налаживается и вот уже, кажется, что худшие времена позади. Беда приходит, откуда не ждали…
-Богиня Александра устраивает (   Читать дальше...   )Жанр: ФантастикаИздательство: АСТ-АудиокнигаПродолжительность: 11:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DC64155538478DB083A93393CA55398DE1F3C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740668   (47946) от 03.08.2024
-
-Владимир Поселягин | Офицер (Книга 2). Долг чести (2024) [MP3, Алексей Воскобойников]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Шанс. У каждого он свой. Вот и мне достался тот шанс, что я не ожидал получить. Шанс на месть. Иногда это такая малость,
-но в данном случае это стало смыслом жизни. Итак, бывший дворянин, бывший граф, бывший генерал, бывший муж и отец.
-Все бывший, но личность та же. И уж поверьте, виновные еще сильно пожалеют о том, что отдали приказ убить меня.Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыИздательство: АСТ-Аудиокнига
-Категория: 16+Продолжительность: 12:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC647125FEC8650995E1B6414598A3674B7E76C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740815   (47945) от 03.08.2024
 
 Дмитрий Билик | Застенец (Книга 2). (2024) [MP3, Владислав Горбылёв]
@@ -94,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47945.jpg" />
 </div>
 
 
@@ -121,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47938.jpg" />
 </div>
 
 
@@ -147,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47899.jpg" />
 </div>
 
 
@@ -173,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47881.jpg" />
 </div>
 
 
@@ -200,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47868.jpg" />
 </div>
 
 
@@ -226,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47864.jpg" />
 </div>
 
 
@@ -253,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47756.jpg" />
 </div>
 
 
@@ -279,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47755.jpg" />
 </div>
 
 
@@ -305,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47744.jpg" />
 </div>
 
 
@@ -331,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47728.jpg" />
 </div>
 
 
@@ -358,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47693.jpg" />
 </div>
 
 
@@ -384,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47692.jpg" />
 </div>
 
 
@@ -411,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47678.jpg" />
 </div>
 
 
@@ -437,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47672.jpg" />
 </div>
 
 
@@ -463,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47605.jpg" />
 </div>
 
 
@@ -489,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47602.jpg" />
 </div>
 
 
@@ -515,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47600.jpg" />
 </div>
 
 
@@ -542,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47583.jpg" />
 </div>
 
 
@@ -569,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47581.jpg" />
 </div>
 
 
@@ -596,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47575.jpg" />
 </div>
 
 
@@ -624,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47571.jpg" />
 </div>
 
 
@@ -650,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47557.jpg" />
 </div>
 
 
@@ -678,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47551.jpg" />
 </div>
 
 
@@ -691,6 +603,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1EFF9D6DDE40C6628E7F672208DB60DA27CC4B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741567   (47524) от 07.08.2024
+
+Рафаэль Дамиров | Курсант (Книга 12). Назад в СССР (2024). [MP3, Один]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попаданец в СССР Андрей Петров продолжает бороться с неуловимым Литератором, убивающим по мотивам книг известного писателя детективов Светлицкого.
+Погружаясь в расследование, Курсант вскрывает неприглядные секреты Литейска. Оказалось, что город не так прост, а местные власть предержащие рьяно хранят его темные тайны.Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FA5F7FAD71400A63207E3FF4DECAD067406506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432537   (47495) от 08.08.2024
+
+Генрик Ибсен | Пер Гюнт (2013) [MP3, Илья Прудовский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генрик (Хенрик) Ибсен (1828–1906) – норвежский драматург, основатель европейской «новой драмы». Занимался также поэзией и публицистикой. Писал на датском языке (в его норвежском варианте), который в его время был литературным языком Норвегии.
+Драматическая поэма «Пер Гюнт» – одна из вершин творчества Генриха Ибсена. Существование, не наполненное смыслом, лишенное (   Читать дальше...   )Жанр: Зарубежная литература, классика, драма, поэмаПеревод: Анна и Пётр ГанзенИздательство: Нигде не купишьПродолжительность: 07:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EDC5204A2A51A8C3B3C36AD584364BDA56CD51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741865   (47441) от 08.08.2024
+
+Генрик Ибсен | Кукольный дом (2014) (Радиоспектакль) [MP3, Марианна Мокшина, Александр Лыков и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генрик (Хенрик) Ибсен (1828–1906) – норвежский драматург, основатель европейской «новой драмы».
+«Кукольный дом» – пьеса норвежского драматурга Генрика Ибсена, написанная в 1879 году. Центральная тема пьесы – положение женщины в обществе; современники восприняли драму как манифест феминизма. Однако проблематика «Кукольного дома» не исчерпывается «женским вопросом»: (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьесаИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A59566FC4C0E7A5DBE9D3849ECA3859694BAB1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

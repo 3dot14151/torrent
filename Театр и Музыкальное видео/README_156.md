@@ -1,111 +1,3 @@
-###  Публикация: 664583   (39840) от 20.10.2024
-
-Таблетку под язык (1978) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-По одноименной пьесе А. Макаенка в постановке Московского академического театра сатиры.
-Один день из жизни председателя колхоза Каравая. Кто только не приходит к нему со своими заботами и проблемами. Всякого может выслушать и помочь Каравай (к концу дня не обойтись без таблетки валидола). Рядом с ним - деревенский мудрец дед Цибулька, всегда готовый дать добрый совет (   Читать дальше...   )Жанр: Драма, телеспектакльРежиссер: Валентин Плучек, Борис КонуховАктеры: Георгий Менглет, Анатолий Папанов, Александр Ширвиндт, Вера Васильева, Спартак Мишулин, Александр Воеводин, Александр Диденко, Надежда Каратаева, Валентина Шарыкина, Борис Кумаритов, Екатерина Градова, Юлиан КозловскийПродолжительность: 01:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02202692C2DE264C937BF9FDBC32F8AE5EF996C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905500   (39730) от 21.10.2024
-
-Смерть Тарелкина (2002) VHSRip [Театр им. Ленсовета]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сразу трех петербургских актеров, которых прославили отечественные криминальные сериалы, можно увидеть в спектакле Юрия Бутусова «Смерть Тарелкина». В сатирической комедии Сухово-Кобылина чиновник Тарелкин (Андрей Краско), прячась от кредиторов, притворяется умершим. Его уловку быстро распознают его же коллеги-бюрократы и организуют показной процесс над обманщиком. (   Читать дальше...   )Производство: Россия, Театр им. ЛенсоветаЖанр: Спектакль, ДрамаРежиссер: Юрий БутусовАктеры: Константин Хабенский, Андрей Краско, Андрей Зибров, Михаил Пореченков, Артур Ваха, Олег АндреевПродолжительность: 01:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC7B4E37A6E1EDAC2F3D6D3126CDA03FCF03192B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498311   (39150) от 27.10.2024
-
-Юнона и Авось. Новая версия (2004) DVDRemux
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Два парусных корабля «Юнона» и «Авось» под российским флагом прибывают в Калифорнию, где капитан брига «Авось» полюбил местную красавицу с гасиенды, чем вызвал ревность и ненависть влюбленного в нее соперника.Производство: СССР / Гостелерадио СССРЖанр: Мюзикл, Драма, Мелодрама, МузыкаРежиссер: Марк ЗахаровАктеры: Николай Караченцов, Елена Шанина, Александр Абдулов, Павел Смеян, Владимир Белоусов, Александр Садо, Радий Овчинников, Владимир Кузнецов, Сергей Греков, Ирина АлфёроваПродолжительность: 01:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F37905061A7B78FFD83BBBD9ED828F800369E74C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758570   (38369) от 03.11.2024
-
-Квартирник у Маргулиса. Uma2rman — 20 лет! (19.10.2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-История группы началась в Нижнем Новгороде, когда братья Владимир и Сергей Кристовские решили объединиться и создать общий проект. Их дебютная пластинка «В городе N» стала платиновой и возглавила все топы российских чартов. Всего на счету Uma2rman семь альбомов, несколько десятков клипов, саундтреки к российским фильмам и сериалам, множество музыкальных премий и (   Читать дальше...   )00:00:05  В городе лето
-00:05:39  Ты вернешься
-00:11:05  Налей мне
-00:20:47  Не позвонишь(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Поп-рок, альтернативный рок, реггиСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B584B7A2A8FB43BFAB724CDDDA84065918AADAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758579   (38367) от 03.11.2024
 
 Квартирник у Маргулиса. Агитбригады (02.11.2024) WEBRip [H.264/1080p]
@@ -114,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38367.jpg" />
 </div>
 
 
@@ -143,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37662.jpg" />
 </div>
 
 
@@ -172,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37436.jpg" />
 </div>
 
 
@@ -199,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36955.jpg" />
 </div>
 
 
@@ -228,7 +120,7 @@ Paul Van Dyk. Video collection (1994 - 2024) DVDRip, WEBRip [H.264/1080p] [handm
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36784.jpg" />
 </div>
 
 
@@ -254,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36441.jpg" />
 </div>
 
 
@@ -284,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36240.jpg" />
 </div>
 
 
@@ -313,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35178.jpg" />
 </div>
 
 
@@ -344,7 +236,7 @@ Iggy Azalea feat. Charli XCX - Fancy (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35126.jpg" />
 </div>
 
 
@@ -370,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35072.jpg" />
 </div>
 
 
@@ -399,7 +291,7 @@ Skylar Grey feat. Eminem - C'Mon Let Me Ride (2012) WEB-DLRip [H.265/2160p] [4K,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35033.jpg" />
 </div>
 
 
@@ -425,7 +317,7 @@ Ava Max - Kings & Queens (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35027.jpg" />
 </div>
 
 
@@ -451,7 +343,7 @@ Katy Perry - Roar (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35025.jpg" />
 </div>
 
 
@@ -477,7 +369,7 @@ will.i.am feat. Britney Spears - Scream & Shout (2012) WEB-DLRip [H.265/2160p] [
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35020.jpg" />
 </div>
 
 
@@ -503,7 +395,7 @@ Eminem feat. Juicy WRLD - Godzilla (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-b
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35007.jpg" />
 </div>
 
 
@@ -529,7 +421,7 @@ Eminem - Berzerk (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35005.jpg" />
 </div>
 
 
@@ -555,7 +447,7 @@ Taylor Swift - We Are Never Ever Getting Back Together (2012) WEB-DLRip [H.265/2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35002.jpg" />
 </div>
 
 
@@ -581,7 +473,7 @@ Eminem - Rap God (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35001.jpg" />
 </div>
 
 
@@ -607,7 +499,7 @@ Eminem feat. Rihanna - Love The Way You Lie (2010) WEB-DLRip [H.265/2160p] [4K, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34990.jpg" />
 </div>
 
 
@@ -633,7 +525,7 @@ Eminem feat. Rihanna - The Monster (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-b
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34908.jpg" />
 </div>
 
 
@@ -659,7 +551,7 @@ Hurts - Wonderful Life (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand ma
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34907.jpg" />
 </div>
 
 
@@ -685,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34904.jpg" />
 </div>
 
 
@@ -696,6 +588,112 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80490FB8E337BFA2BA8F4CEB6E6BF96691BB1DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764388   (34902) от 07.12.2024
+
+Enrique Iglesias feat. Nicole Scherzinger - Heartbeat (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34902.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Heartbeat» - песня испанского певца и автора песен Энрике Иглесиаса. В среднетемповой балладе звучит вокал американской певицы Николь Шерзингер. Режиссером клипа на песню «Heartbeat» стал Хиро Мураи, премьера состоялась 14 сентября 2010 года.Жанр: Электро-попПродолжительность: 00:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14805A04C9BC51C0BC68F0146641865273794E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764387   (34901) от 07.12.2024
+
+Calvin Harris feat. Katy Perry, Pharrell Williams, Big Sean - Feels (2017) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34901.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Feels» (с англ. — «Чувства») — песня шотландского музыканта и продюсера Кельвина Харриса, записанная при участии американских исполнителей певца Фаррелла Уильямса, певицы Кэти Перри и американского рэпера Big Sean. Видеоклип для «Feels» поставил британский режиссёр Эмиль Нава. Премьера прошла 26 июня 2017 года на канале Vevo на YouTube. В этом клипе (   Читать дальше...   )Жанр: Диско-фанк, скаПродолжительность: 00:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBA4D4505B7C6E3AE39E633E623BDE33050A8E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764384   (34896) от 07.12.2024
+
+The Weeknd feat. Daft Punk - Starboy (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34896.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Starboy» (с англ. — «Старбой») — песня канадского певца The Weeknd, записанная при участии французского электронного дуэта Daft Punk и выпущенная в качестве лид-сингла для его третьего студийного альбома с тем же названием 21 сентября 2016 года. Музыкальное видео на песню было снято постоянным коллаборатором Грантом Сингером, который снял предыдущие (   Читать дальше...   )Жанр: Синти-поп, современный ритм-н-блюзПродолжительность: 00:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE355B27D34209B92B4C20BADC9BEFC5D69F16D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752320   (34895) от 07.12.2024
+
+Marilyn Manson (2024) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34895.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче представлены три видеоклипа: "Raise The Red Flag", "Sacrilegious", "As Sick As The Secrets Within".01 - Sacrilegious
+02 - Raise The Red Flag
+03 - As Sick As The Secrets WithinПроизводство: Nuclear BlastЖанр: Pop-RockПродолжительность: 00:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:634C66AE3752C129E2DA57D6EC3F16ECFDC42674
 ```
 
 https://mybot314.ru/tekegram_catalog/

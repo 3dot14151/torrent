@@ -6,7 +6,7 @@ XnView 2.33 Extended + PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625296.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ EmEditor Professional 15.1.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625286.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Emsisoft Emergency Kit 10.0.0.5488 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625284.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Acronis True Image 2017 New Generation Build 6209 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625253.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SamDrivers 17.6 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625245.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Muse CC 2017.0.3 Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625241.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Wise Disk Cleaner 7.55 Build 504 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_625223.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ DxO Optics Pro 10.4.1 Build 600 Elite (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625201.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Adguard 5.10.2035.6350 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625199.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625193.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Adobe Photoshop CC 2015 (20150529.r.88) Portable by PortableWares (18.06.2015) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625190.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Google Nik Software Complete Collection 1.2.9 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625182.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 6.70.6000 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625172.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625169.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625115.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ USB Safely Remove 6.0.9.1263 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625108.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ DAEMON Tools Lite 10.1.0.74 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625067.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Registry Life 1.4.0 DC 12.07.2012 [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_625033.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Microsoft Office 2013-2016 C2R Install 5.9.5 Full | Lite by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625029.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ USB Safely Remove 6.0.9.1263 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625026.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Acronis True Image 2017 Build 8058 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625011.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Microsoft Windows and Office ISO Download Tool 5.05 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625004.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624946.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Daum PotPlayer 1.5.33573 Stable [x86-x64] [Full & Lite] [Rus] [сборка 7sh3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624933.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ R-Studio 8.3 Build 168003 Network Edition RePack (& portable) by D!akov [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624928.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ SamDrivers 17.6 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624921.jpg" />
 </div>
 
 

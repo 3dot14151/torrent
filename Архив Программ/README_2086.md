@@ -6,7 +6,7 @@ WinISO Standard 6.1.0.4472 Portable by BALISTA [Русский/Английск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98365.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mozilla SeaMonkey 2.9 Beta 2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98047.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla Thunderbird 11.0.1 Final + Portable 11.0.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_97983.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mozilla Firefox 12.0  Beta 3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_97957.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mozilla SeaMonkey 2.9 Beta 1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_97771.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ LibreOffice 3.5.2 RC1 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_97722.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kaspersky Offline Update 12.0.0.374 (h) [Русский] / (12.0.0.374 h)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_97624.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AIDA64 Extreme Edition 2.20.1856 Beta Portable by BALISTA [Мульти, Рус�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_97618.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mozilla Thunderbird 12.0 Beta 2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_97563.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BurnAware Free 4.8 Beta 2 [Rus/Eng/Ukr]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_97455.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Kaido Player 7.1.36.35 [theme glass]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_97151.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Mozilla Thunderbird 12.0 Beta 1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96882.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ SIV (System Information Viewer) 4.27 + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96707.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Mozilla Thunderbird 10.0.3 Final (Extended Support Release) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96698.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Freemake Video Converter 3.0.1.25 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96612.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Abrosoft FantaMorph Deluxe 5.3.1 Portable [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96566.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Sumatra PDF 2.0.5876 (x86/x64) + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96497.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Google Chrome 18.0.1025.54 Beta [Русский/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96357.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Kaspersky TDSSKiller 2.7.19.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96352.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Visual Assist X 10.6.1862 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96285.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ MKVToolnix 5.3.0.418 + Portable [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_95990.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Save2pc Ultimate 5.11 Build 1376 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_95533.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ LS · 2-НДФЛ_АДВ-6-2_РСВ-1 2.00 от 10.02.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_95487.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Visual Studio 11 Beta + Team Fundation Server + .NET Framework 4.5 Beta + Extens
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_95338.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Glary Utilities Pro 2.43.0.1419 Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_95231.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Comodo Dragon + Portable 17.4.1.0 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_94596.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1140455   (655488) от 06.06.2017
-
-Т2 Трейнспоттинг (На игле 2) / T2 Trainspotting (2017) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Прошло двадцать лет. Рентон возвращается в единственное место, которое может считать своим домом. Они все ждут его: Кочерыжка, Кайфолом и Бегби. А вместе с ними другие старые знакомые: месть и страх, ненависть и любовь, дружба, сожаление и надежда. Все они выстроились в шеренгу, приветствуя Рентона, и он, кажется, готов к ним присоединиться.Производство: Великобритания / Cloud Eight Films, Creative ScotlandЖанр: драмаРежиссер: Дэнни БойлАктеры: Эван МакГрегор, Юэн Бремнер, Джонни Ли Миллер, Роберт Карлайл, Кевин МакКидд, Кайл Фицпатрик, Келли Макдоналд, Анжела Недялкова, Полин Линч, Джеймс КосмоПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (полные + форс.), английские (Forced + Full)Продолжительность: 01:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A554DC8C199B8A6BCB815FF7BE0821245833A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226513   (655438) от 20.05.2018
-
-Скайлайн / Skyline (2010) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После вечеринки компания друзей просыпается от того, что в окно ударяет яркий свет. Они видят, как людей на улице затягивает в столп света, и они поднимаются куда-то вверх. Вскоре после этого на планете начинается зачистка оставшихся людей. Выжившим предстоит бороться за жизнь с инопланетными тварями.Производство: СШАЖанр: Фантастика, Боевик, ТриллерРежиссер: Колин Штраус, Грег ШтраусАктеры: Эрик Бальфур, Скотти Томпсон, Дэвид Зайас, Дональд Фэйсон, Бриттани Дэниэл, Кристал Рид, Нил Хопкинс, Дж. Пол Бомер, Таня Ньюболд, Пэм ЛевинПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57ADDE4FFE9D21BA76A719A8C2C3FBAE3F6362DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226058   (655374) от 20.05.2018
 
 Книга Генри / The Book of Henry (2017) WEB-DLRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655374.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655364.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655360.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_655218.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655197.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655159.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655101.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655080.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655078.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654915.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654835.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654673.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654671.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654666.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654572.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654569.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654565.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654560.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654558.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654557.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654491.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654487.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654422.jpg" />
 </div>
 
 
@@ -659,13 +607,66 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_654311.jpg" />
 </div>
 
 
 ###  Подробнее
 
 В центре событий герой, идущий по следу негодяев, убивших его дочь. Главный герой «слетает с катушек», прыгает за руль своего автомобиля и начинает мстить, оставляя по обочинам дороги трупы похитителей.Жанр: фэнтези, боевик, триллерАктеры: Николас Кейдж, Эмбер Хёрд, Уильям Фихтнер, Билли Бёрк, Дэвид Морс, Тодд Фармер, Криста Кэмпбелл, Шарлотта Росс, Том Аткинс, Джек МакГиПеревод: Любительский (одноголосый)Продолжительность: 01:44:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515820   (654288) от 27.06.2012
+
+Форсаж / The Fast and the Furious (2001) [H.264/720p-LQ] BDRip (Rus, Ukr, Eng)
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брайан - полицейский агент, внедряющийся в банду грабителей грузовиков. Несмотря на кажущуюся простоту дела, постепенно выявляются новые и новые факты, указывающие, что местный гонщик-сорвиголова Доминик, поначалу являющийся основным подозреваемым, может быть, и не имеет отношения к преступлениям. Ограбления продолжаются, положение запутывается с каждым днем, а главный (   Читать дальше...   )Производство: Universal Pictures / Original Film / Mediastream Film GmbH & Co. Productions KGЖанр: Боевик, триллер, криминалРежиссер: Роб КоэнАктеры: Пол Уокер, Вин Дизель, Мишель Родригес, Джордана Брюстер, Рик Юн, Чэд Линдберг, Джонни Стронг, Мэтт Шульце, Тед Левайн, Джа РулПеревод: Дублированный (Русский) / Многоголосый (Русский; Украинский) / Авторский (Гланц и Королева; Джокер; Визгунов; Живов)Субтитры: Вшитые, отключаемыеЯзык субтитров: Русский (полные, Джокер, на надписи, комментарии), английский (полные)Продолжительность: 01:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5902F5211332C927D36CA480AA6AE28F414148B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 437232   (654158) от 27.06.2012
+
+Малхолланд Драйв / Mulholland Drive (2001) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_654158.jpg" />
+</div>
+
+
+###  Подробнее
+
+После чудовищной катастрофы на извилистой дороге Малхолланд-драйв в живых остается только прекрасная темноволосая незнакомка. Пережив глубокий шок и потеряв память, она прячется в пустой квартире, где ее находит Дайан Сэлвин, приехавшая посмотреть на роскошный и манящий Лос-Анджелес.
+Искренне сочувствуя своей новой подруге, которая назвалась Ритой, Дайан готова помочь ей вспомнить, кто она и что с ней произошло. Твердо намереваясь найти ответы на все свои вопросы, девушки выходятиз дома, устремляясь навстречу мрачным, пугающим тайнам ослепительного Города Ангелов...Жанр: Детективный Мистический ТриллерРежиссер: Дэвид ЛинчАктеры: Наоми Уоттс, Лаура Хэрринг, Энн Миллер, Дэн Хедайя, Джастин Теруа, Брент Бриско, Роберт Форстер, Кэтрин Таун, Ли ГрантПеревод: ДублированныйПродолжительность: 02:26:27
 
 ## Скачать торент
 ```bash

@@ -1,58 +1,3 @@
-###  Публикация: 1841526   (1048177) от 11.12.2025
-
-Электробезопасность. Тесты v3.1.2 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Все сборники соответствуют сборникам Ростехнадзора. Приложение позволяет пройти тестирование по актуальным на данный момент категориям:
-- II группа по электробезопасности до и выше 1000 В
-- III группа по электробезопасности до и выше 1000 В
-- IV группа по электробезопасности до и выше 1000 В(   Читать дальше...   )Тип издания: Paid (antisplit)Релиз состоялся: 10.12.2025Разработчик: Понасенков ВиталийПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7044DA36B7B4D7227D0300DAAD6AA52A8EA3AB4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841527   (1048176) от 11.12.2025
-
-AIDA64 v2.16 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Утилита информации об оборудовании и программном обеспечении для устройств на базе Android. Основываясь на обширных знаниях об оборудовании приложения AIDA64 для Windows, AIDA64 для Android может отображать различную диагностическую информацию для телефонов, планшетов, смарт-часов и телевизоров, в том числе:Тип издания: PremiumРелиз состоялся: 11.12.2025Разработчик: FinalWire LtdПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9DFA1B53BDA71B9AFCC6A66D0159A5FE23ACB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841365   (1047921) от 10.12.2025
 
 Taskito v1.1.6 Mod by Alex.Strannik [Ru/Multi]
@@ -61,7 +6,7 @@ Taskito v1.1.6 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047921.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047917.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ Grok - ИИ ассистент v1.0.85-release.02 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047916.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047737.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ Grok - ИИ ассистент v1.0.83-release.02 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047629.jpg" />
 </div>
 
 
@@ -191,7 +136,7 @@ Smart AudioBook Player Pro v11.6.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047628.jpg" />
 </div>
 
 
@@ -217,7 +162,7 @@ Magic Eraser / Магический ластик v2.25.0 Mod by Maximoff⁠ [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047565.jpg" />
 </div>
 
 
@@ -243,7 +188,7 @@ SD Card Test Pro v2.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047564.jpg" />
 </div>
 
 
@@ -270,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047549.jpg" />
 </div>
 
 
@@ -299,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047548.jpg" />
 </div>
 
 
@@ -326,7 +271,7 @@ Solid Explorer File Manager v3.2.6 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047545.jpg" />
 </div>
 
 
@@ -355,7 +300,7 @@ Seven / 7 Минут Упражнение v9.24.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047541.jpg" />
 </div>
 
 
@@ -381,7 +326,7 @@ FolderSync Pro v4.8.2 Mod by Number one' [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047536.jpg" />
 </div>
 
 
@@ -407,7 +352,7 @@ Vanced Tube v5.5.80.195 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047530.jpg" />
 </div>
 
 
@@ -433,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047508.jpg" />
 </div>
 
 
@@ -460,7 +405,7 @@ PhotoDirector v20.8.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047507.jpg" />
 </div>
 
 
@@ -486,7 +431,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) v5.12.8 Mod by Balatan  [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047503.jpg" />
 </div>
 
 
@@ -512,7 +457,7 @@ DNS Changer Pro v1.4.2 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047502.jpg" />
 </div>
 
 
@@ -539,7 +484,7 @@ Night clock / Ночные часы v2.11.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047485.jpg" />
 </div>
 
 
@@ -565,7 +510,7 @@ Moon+ Reader Pro v10.3 (b1003000) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047483.jpg" />
 </div>
 
 
@@ -591,7 +536,7 @@ Relax Rain: sleeping sounds v9.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047482.jpg" />
 </div>
 
 
@@ -617,7 +562,7 @@ AI Photo Editor Pro - Polish v1.694.240 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047372.jpg" />
 </div>
 
 
@@ -643,7 +588,7 @@ Daff Moon Phase (Фазы Луны) v3.51 Mod by shv7net [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047363.jpg" />
 </div>
 
 
@@ -670,7 +615,7 @@ Auto Reply: автоответчик v6.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047352.jpg" />
 </div>
 
 
@@ -681,6 +626,59 @@ Auto Reply: автоответчик v6.2 Mod by Alex.Strannik [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ECE0DBDB9B39D053F413B57824815A47F672527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840588   (1047351) от 06.12.2025
+
+Pencil Photo Sketch : Drawing v2.2.61 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pencil Photo Sketch - профессиональное приложение для редактирования фотографий. Вы станете настоящим мастером по созданию карандашных набросков из ваших фото. Pencil Photo Sketch - профессиональное приложение для обработки изображений, превращающее ваши фотографии в черно-белые или цветные карандашные рисунки. Выберите фото из галереи или сделайте снимок и сгенерируйте (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 04.12.2025Разработчик: Minerva Studios Private LimitedПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7981327F9F4713558C2C3292191BBB093FC4B4EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840601   (1047346) от 06.12.2025
+
+Revo Uninstaller Mobile v3.4.480G Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Revo Uninstaller Mobile всегда старается предоставить своим поклонникам наилучший пользовательский опыт и функциональность. В этой новой версии приложения вы можете работать между несколькими вариантами управления уже установленными приложениями.
+Выбрав Pro-версию, вы теперь можете легко избавиться от всей рекламы во время использования приложения.Тип издания: ProРелиз состоялся: 05.12.2025Разработчик: VS Revo Group Ltd.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4588C3E232CC47C271EFAF535C23BC3029A083
 ```
 
 https://mybot314.ru/tekegram_catalog/

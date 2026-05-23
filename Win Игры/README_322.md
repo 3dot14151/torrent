@@ -1,29 +1,3 @@
-###  Публикация: 1343358   (217973) от 06.12.2019
-
-Darkness and Flame 4: Enemy in Reflection / Тьма пламени 4: Враг в отражении (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Сила Пламени восстановлена, Алиса и ее друзья сбежали из Темной Армии. В поисках места для отдыха они останавливаются на странной поляне и позволяют себе расслабиться ... Однако, в этом новом враждебном мире нельзя терять бдительность ни на минуту. И расплата за небрежность не займет много времени ... Алиса оказывается втянутой в битву со злом, которое старше самой (   Читать дальше...   )Тип издания: UnofficialРазработчик: Five-BN GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDD2ACDC70DB0CB53E001A360CA25B4EDB815D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084964   (217958) от 19.12.2016
 
 Cabela's Hunting Expeditions (2012) [En] (1.00 Hotfix) License SKIDROW
@@ -32,7 +6,7 @@ Cabela's Hunting Expeditions (2012) [En] (1.00 Hotfix) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217958.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Big Pharma (2015) [Multi] (1.07.10/dlc) Repack Others [The Healthy Profits Bundl
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217829.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Christmas Wonderland 12 (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217660.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Pale Beyond (2023) [En] (1.5.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217515.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217481.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Twin Mind 2: Power of Love / Близнецы-детективы 2: Сила л�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217301.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Mystery Case Files 23: Incident at Pendle Tower / За семью печатям
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217246.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Bridge Constructor: The Walking Dead (2020) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217152.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Sanctum 2 (2013) [Ru/Multi] (1.4.35442) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217119.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Escapists: The Walking Dead (2015) [Ru/Multi] (Build 263) SteamRip Let'sРla
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217105.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Evoland 2 (2015) [En/Multi] (1.0.9135) SteamRip Let'sРlay [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217065.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Project Pulsation (2015) [Ru/En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217046.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Republique Remastered: Fall Edition (2015) [Ru/Multi] (1.0) Repack R.G. Меха
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216942.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Blue Fire (2021) [Ru/Multi] (5.0.5/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216897.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Stronghold: Warlords (2021) [Ru/Multi] (1.9.23494.D/dlc) License PLAZA [Complete
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216802.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Cyjin: The Cyborg Ninja (2021) [Multi] (1.0.0.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216726.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Armored Xpress (2021) [En] (1.0.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216712.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ CyberTaxi (2020) [En] (10.24xyz) License TiNYiSO
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216672.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Christmas Wonderland 10 (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216669.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Dynasty Warriors 7: Xtreme Legends (2018) [En/Ja/Ch] (1.0) License CODEX [Defini
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216642.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Project CARS 2 (2017) [Ru/Multi] (1.7.1.0.1/dlc) Repack R.G. Механики [D
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216636.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216612.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Bleak Sword DX (2023) [Ru/Multi] (0.3072001) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216573.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Griftlands (2021) [Ru/Multi] (484799) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216513.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.0.11/dlc) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216453.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.0.11/dlc) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5937EE4ED5F070F3C331ACA099B8E8FF4DD42B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586336   (216435) от 26.10.2022
+
+Dark City 7: International Intrigue (2022) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение детективно-интригующей серии игр Dark City. В этот раз детектива Агату пригласили в Нью-Йорк для расследования загадочных взрывов и пожаров в городе. Все жители считают, что они связаны с мифологическим Фениксом. Но у полиции и пожарных есть свое мнение на этот счет. По найденным уликам есть предположение, что за всем этим стоят определенные люди, которые (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly Fox GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BE0B6811501DCDBFAFD511CC3CCB8BD046FFEC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

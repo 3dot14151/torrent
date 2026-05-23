@@ -6,7 +6,7 @@ IObit Driver Booster Pro 8.2.0.305 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162755.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Vivaldi 5.0.2497.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162751.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ant Download Manager Pro 2.5.0 Build 80357 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162740.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CrystalDiskInfo 8.9.0a + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162739.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.18 + Portable (unofficial) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162723.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ GOM Player Plus 2.3.60.5324 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162719.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ KiCad 5.1.12 RePack by NikZayatS2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162691.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ KiCad 5.1.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162687.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Sidify Music Converter 2.4.3 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162685.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Spotify 1.1.74.631 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162677.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Celemony - Melodyne Studio 5 v5.1.1 STANDALONE, VST, VST3, AAX (x64) Repack by V
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162673.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ EaseUS Data Recovery Wizard Technician 17.0.0.0 RePack (& Portable) by Dodakaedr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162651.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Microsoft .NET 6.0.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162641.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Sandboxie 5.61.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162623.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ FreeCAD 0.19.3 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162600.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Sandboxie plus 1.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162593.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162557.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ NIUBI Partition Editor 9.2.2 Technician Edition RePack (& Portable) by TryRooM [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162518.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ One Commander Pro 3.27.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162514.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ PrivaZer (Donors) 4.0.60 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162512.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ PeaZip 9.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162507.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ High-Logic FontCreator Professional 15.0.0.2949 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162492.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5254.1001 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162473.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ WonderFox HD Video Converter Factory Pro 25.7 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162471.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ WinUtilities Professional Edition 15.83 RePack (& Portable) by Dodakaedr [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162470.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ NetLimiter 5.1.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162455.jpg" />
 </div>
 
 

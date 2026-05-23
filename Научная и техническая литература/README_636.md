@@ -1,134 +1,3 @@
-###  Публикация: 1771471   (31811) от 06.01.2025
-
-Б.М. Завадовский | О брожении (1925) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Чем глубже мы изучим работу бродильных микробов, тем глубже мы разгадаем тайну жизни и живых существ. Учению о брожении и энзимах принадлежит огромное значение, и оно сыграло  большую роль в деле уточнения наших знаний о природе и сущности многих сложных жизненных явлений.Жанр: учебная литератураИздательство: Северный печатникФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE3DAD8A8493BDEB50F41D526168C2A543D074B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771462   (31783) от 06.01.2025
-
-Виктор Каган | Смыслы психотерапии (2018) [DOC, EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Книга построена как свободное обсуждение автором сути психотерапии и своего опыта долгой работы в ней. Она посвящена вопросам, встающим перед каждым психотерапевтом: что такое психотерапия, как она меняется со временем, как взаимодействует с культурой, религией, искусством, как представлена в сознании терапевта, как он видит ее место в жизни отдельного человека и (   Читать дальше...   )Жанр: психотерапия, практическая психологияИздательство: СмыслФормат: DOC, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C771CBBF3BD3DF73127C863301C2A88C8E8D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771333   (31777) от 06.01.2025
-
-Bluetana | In Love We Dive (2025) [PDF] [EN]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Описание причин раковых заболеваний, что с ними делать, почему человек умирает и многое другое, связанное с энергетическими процессами в организме во время Смерти.Жанр: Forbidden KnowledgeПеревод: Oksana KhudoleevaЯзык: EnglishИздательство: ILWDФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B009A0658ADA6ABC0DFC98E5CEB00F465751D1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771518   (31696) от 07.01.2025
-
-Б.А. Колчин | Техника обработки металла в древней Руси (1953) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрена история металлургии и кузнечного ремесла в древней Руси
-Настоящая работа составлена главным образом на основании данных, полученных археологическими экспедициями, участником которых был автор. Многочисленные находки остатков печей, инструментария, всевозможных изделий домашнего и производственного обихода показывают высокий уровень мастерства (   Читать дальше...   )Жанр: история ремеселИздательство: МашгизФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF8B9C07BDD5ED38A687F4003529ED431CFAD5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771957   (31626) от 08.01.2025
-
-Кристина Бьорн | Как говорить по-английски бегло вместе с English Spot (2025) [PDF, DJVU]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Достигли небывалых высот в изучении английского языка, но до носителя все равно не дотягиваете? В таком случае эта книга очень удачно попала вам в руки. С ней вы успешно преодолеете последнюю ступеньку, улучшите разговорные навыки и сможете сойти за "своего", где бы вы ни оказались. Все, о чем вы боялись спросить или вообще не знали, все хитрости и приемы, (   Читать дальше...   )Жанр: Изучение иностранных языковИздательство: АСТФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B88A606016670FE449A43997F3751BAEC3B23B70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771880   (31609) от 08.01.2025
 
 Ю.Б. Байрамуков, В.С. Янович, Е.А. Драбатулин и др. | Тактическая подготовка курсантов учебных военных центров (2014) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31609.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31597.jpg" />
 </div>
 
 
@@ -191,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31536.jpg" />
 </div>
 
 
@@ -217,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31534.jpg" />
 </div>
 
 
@@ -243,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31533.jpg" />
 </div>
 
 
@@ -269,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31505.jpg" />
 </div>
 
 
@@ -295,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31401.jpg" />
 </div>
 
 
@@ -321,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31197.jpg" />
 </div>
 
 
@@ -349,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31177.jpg" />
 </div>
 
 
@@ -375,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31159.jpg" />
 </div>
 
 
@@ -401,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31156.jpg" />
 </div>
 
 
@@ -427,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31105.jpg" />
 </div>
 
 
@@ -453,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31096.jpg" />
 </div>
 
 
@@ -479,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31065.jpg" />
 </div>
 
 
@@ -506,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31061.jpg" />
 </div>
 
 
@@ -532,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31012.jpg" />
 </div>
 
 
@@ -559,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30989.jpg" />
 </div>
 
 
@@ -585,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30984.jpg" />
 </div>
 
 
@@ -612,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30900.jpg" />
 </div>
 
 
@@ -641,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30886.jpg" />
 </div>
 
 
@@ -667,7 +536,7 @@ Issa Batarseh, Ahmad Harb | Power Electronics: Circuit Analysis and Design (2017
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30885.jpg" />
 </div>
 
 
@@ -678,6 +547,139 @@ Issa Batarseh, Ahmad Harb | Power Electronics: Circuit Analysis and Design (2017
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A44618C5D5C1C380AF9C5CAC4EC6AFF0A58AEABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767098   (30879) от 15.01.2025
+
+Г.А. Крестов | Теоретические основы неорганической химии (1982) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит обобщение закономерностей химии на основе общих методов исследования - структурного, термодинамического и кинетического. Дается необходимый теоретический фундамент для изучения химии элементов и их соединений. Проводится системное обсуждение современных представлений о химической структуре, химической динамике, динамике процессов в растворе и химических (   Читать дальше...   )Жанр: ХимияИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAB1439534B86CD2E8BF5014D184809340B005F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773285   (30878) от 15.01.2025
+
+Библиотека ЖАФИК, Vol. 4: Уличная культура (Граффити, Стрит-арт, Стиль) [68 книг] (1983-2024) [PDF] [ENG]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотека: Библиотека ЖАФИК, Vol. 4: Уличная культура (Граффити, Стрит-арт, Стиль)
+
+Технические и выходные данные книг
+(   Читать дальше...   )Жанр: Живопись, фотоальбомЯзык: АнглийскийИздательство: РазличныеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F42BF75B37BFA52D54905DD4D52A8BA057157C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773385   (30869) от 15.01.2025
+
+Е.Е. Бизянов | Системное программирование [2 книги] (2018, 2024) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведены теоретические положения и представлены практические примеры системного программирования. Рассмотрены системные ресурсы компьютера. Изложены основы языков системного программирования низкого уровня - Си и Ассемблера. Приведены необходимые справочные сведения и примеры для программирования аппаратных средств компьютера, реализации функций ввода-вывода, а (   Читать дальше...   )Жанр: учебное пособие, программированиеИздательство: Донбасский ГТУ, нфра-ИнженерияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF18EB3AB2859687E5C7DEDC85FDA0D2D6FEB6A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773303   (30865) от 15.01.2025
+
+И.М. Кольтгоф, Дж.Дж. Лингейн | Полярография (1948) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководство по полярографии от профессора университета Миннесоты.Жанр: ХимияИздательство: ГосхимиздатФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29382C9B451683EDFC8346C0A3A13062977382C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773372   (30855) от 15.01.2025
+
+Н.А. Александрова (сост.) | Пути русского импрессионизма (2003) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга издана к 100-летию Союза русских художников и посвящена истории одного из важнейших направлений московской школы живописи. В альбоме воспроизведены более 100 произведений живописи из собраний Государственной Третьяковской галереи и Музея Русского Искусства (г. Миннеаполис, США).Жанр: живописьИздательство: СканрусФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68ECD93B975F961009BBC534C973BA552CD2AD3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

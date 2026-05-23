@@ -1,55 +1,3 @@
-###  Публикация: 487179   (90310) от 23.04.2012
-
-Клятва / The Vow (2012) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Во время медового месяца Пейдж и Лео попадают в автокатастрофу. Пока жена находится в коме, Лео не отходит от ее кровати ни на час, но возвращение девушки к жизни омрачено потерей памяти — она не узнает любимого и не помнит об их романе. И тогда Лео решает заново завоевать сердце Пейдж.Жанр: Драма, МелодрамаРежиссер: Майкл СаксиАктеры: Рэйчел МакАдамс, Ченнинг Татум, Сэм Нил, Скотт Спидман, Джессика Лэнг, Джессика МакНэми, Венди Крюсон, Татьяна Маслани, Лукас Брайант, Джои КлейнПеревод: ДублированныйСубтитры: Русские, Английские - (UTF-8)Язык субтитров: Русские, АнглийскиеПродолжительность: 01:43:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486905   (90304) от 23.04.2012
-
-Дж. Эдгар / J. Edgar (2011) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В течение всей жизни Джон Эдгар Гувер поднимался к вершинам власти, чтобы стать самым могущественным человеком в Америке. Будучи главой Федерального бюро расследований, он ни перед чем не останавливался, чтобы защитить свою страну. Пережив восемь президентов и три войны, Гувер вел сражения с угрозами как реальными, так и надуманными, зачастую нарушая правила, чтобы уберечь сограждан от опасности. Он был безжалостен и был героем, причем одновременно; мир восхищался им, что было для него самой желанной, пусть и не материальной, наградой. «Дж. Эдгар» глазами самого Гувера показывает нам его частную и общественную жизнь и отношения с окружающими человека, который мог с тем же успехом исказить правду, с каким он защищал ее в течение всей своей жизни, посвященной воплощению его собственной идеи справедливости, на которую часто влияла темная сторона власти.Жанр: Драма, криминал, биография, историяРежиссер: Клинт ИствудАктеры: Леонардо ДиКаприо, Арми Хаммер, Наоми Уоттс, Джуди Денч, Джош Хэмилтон, Джеффри Пирсон, Шерил Лоусон, Кейтлин Девер, Брэйди Мэтьюз, Ганнер РайтПеревод: Дублированный, Авторский одноголосыйПродолжительность: 02:16:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486515   (90276) от 23.04.2012
 
 Путь воина / The Warrior's Way (2010) [1080p] BDRemux
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90276.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90272.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89948.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89938.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89898.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89891.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89890.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89879.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89865.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89846.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89532.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89528.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89493.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89478.jpg" />
 </div>
 
 
@@ -430,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89121.jpg" />
 </div>
 
 
@@ -457,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89088.jpg" />
 </div>
 
 
@@ -483,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89072.jpg" />
 </div>
 
 
@@ -510,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89047.jpg" />
 </div>
 
 
@@ -536,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88905.jpg" />
 </div>
 
 
@@ -562,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88834.jpg" />
 </div>
 
 
@@ -588,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88711.jpg" />
 </div>
 
 
@@ -616,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88701.jpg" />
 </div>
 
 
@@ -642,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88700.jpg" />
 </div>
 
 
@@ -668,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88683.jpg" />
 </div>
 
 
@@ -676,6 +624,59 @@ https://mybot314.ru/tekegram_catalog/
 
 Марк Уолберг в главной роли в стремительном триллере "Контрабанда", повествующем о человеке, который пытается бросить прежний, преступный образ жизни, и о семье, ради защиты которой он готов на всё. В естественных декорациях Нового Орлеана фильм раскроет нам жестокий мир международной контрабанды - полный отчаянных головорезов и корумпированных чиновников, больших ставок и крупных откатов. Мир, где верности нет места, а смерть настигает при одном неверном шаге.
      Крис Фаррадэй (Уолберг) давно оставил преступную деятельность. Но когда его шурин Энди (Калеб Лэндри Джонс), работающий на безжалостного мафиози Тима Бриггса (Джованни Рибизи), "заваливает" сделку с наркотиками, Крис вынужден вернуться к тому, что у него получалось лучше всех. Он должен закрыть долг Энди. Крис быстро сколачивает команду и отправляется в Панаму, чтобы провернуть крупную аферу. В заложниках его жена Кейт (Кейт Бэкинсейл) и дети, и чтобы их спасти, Крис должен успешно справиться с сетью наркобаронов, полицейских и наёмных (   Читать дальше...   )Жанр: Боевик, Триллер, Драма, КриминалРежиссер: Бальтасар КормакурАктеры: Кейт Бекинсейл, Марк Уолберг, Бен Фостер, Джованни Рибизи, Лукас Хаас, Дж.К. Симмонс Диего, Луна Жаклин, Флеминг Роберт, Уолберг Калеб, Лэндри ДжонсПеревод: ДублированныйЯзык субтитров: Английский (SDH)Продолжительность: 01:49:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483345   (88681) от 15.04.2012
+
+Особое мнение / Minority Report (2002) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88681.jpg" />
+</div>
+
+
+###  Подробнее
+
+2054 год. Уже шесть лет существует особый предпреступный отдел. На основе психических технологий разработана экспериментальная программа, с помощью которой работники отдела могут узнать о еще не совершенном убийстве и арестовать подозреваемого еще до совершения им преступления.
+Такая система осуждения преступников и предотвращения преступлений получает все большее (   Читать дальше...   )Жанр: Фантастика, Боевик, Триллер, ДетективРежиссер: Стивен СпилбергАктеры: Том Круз, Колин Фаррелл, Макс фон Сюдов, Саманта Мортон, Кэтрин Моррис, Тим Блейк, Нельсон, Петер Стормаре, Лоис Смит, Пэтрик Килпэтрик, Стив ХаррисПеревод: Дублированный, Многоголосый закадровыйСубтитры: Русские - (UTF-8)Язык субтитров: РусскиеПродолжительность: 02:25:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482879   (88666) от 15.04.2012
+
+Опасный метод / A Dangerous Method (2011) [1080p] Blu-Ray
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет закручен вокруг персон основателей психоанализа Карла Густава Юнга и Зигмунда Фрейда и их сложных взаимоотношений с умной и красивой пациенткой Сабиной Шпильрейн.Жанр: Триллер, ДрамаРежиссер: Дэвид КроненбергАктеры: Кира Найтли, Вигго Мортенсен, Майкл Фассбендер, Венсан Кассель, Сара Гэйдон, Андре Хеннике, Арндт Шверинг-Сонри, Миньон Реме, Мареике Карьер, Франциска АрндтПеревод: ДублированныйПродолжительность: 01:39:14
 
 ## Скачать торент
 ```bash

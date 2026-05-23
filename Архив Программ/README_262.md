@@ -6,7 +6,7 @@ Slimjet 7.0.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930723.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SlimBrowser 7.00 Build 138 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930719.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NetSetMan 4.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930615.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ oCam 361.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930603.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CCleaner 5.26.5937 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930591.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kaspersky Virus Removal Tool 15.0.19.0 (14.02.2016) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930573.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Zoner Photo Studio X 19.2003.2.225 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930559.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Visual Studio 2019 Community 16.4.5 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930558.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Microsoft Windows Nashville build 999 ВРЕМЕННАЯ РАЗДАЧА!!!
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930543.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Telegram Desktop 1.0 Stable + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930461.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ AIMP 4.00 Build 1694 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930445.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ SAM CoDeC & DeCoDeR Pack 2017 6.10 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930443.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ ICE Book Reader Professional 9.5.5 + Lang Pack + Skin Pack [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930436.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Microsoft Visual Studio 2019 Professional 16.4.5 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930421.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Files Inspector 1.40 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930401.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Daum PotPlayer 1.6.58613 Stable RePack (& Portable) (x86/x64) by D!akov [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930398.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ CoolUtils Total Audio Converter 5.2.0.138 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930395.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ SIV (System Information Viewer) 5.07 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930304.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ CCleaner 5.26.5937 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930300.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Adobe Prelude CC 2015 (v4.2.0) RUS/ENG Update 2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930298.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Registry Trash Keys Finder 3.9.4.0 Full [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930296.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Unreal Commander 3.57 Build 1454 +Portable +GraphXPackv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930288.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Bat! Professional 7.1.14 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930267.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Notepad++ 7.3.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930263.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ CCleaner 5.26.5937 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930259.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ VeraCrypt 1.17 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930246.jpg" />
 </div>
 
 

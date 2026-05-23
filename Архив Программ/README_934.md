@@ -6,7 +6,7 @@ Microsoft Visual C++ 2015 Redistributable Package 14.0.23026 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578607.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reallusion iClone 6.1.1728.1 PRO Repack by Buhta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578606.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Office 2007 Standard SP3 12.0.6721.5000 RePack by KpoJIuK (20.07.2015)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578605.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7153.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578597.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ KMSAuto Net 2015 TEST Portable (23/07/2015) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578588.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Avant Browser 2011 build 27 11.9.0.27 [Многоязычный (Русский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578587.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Windows 10 Language Pack + Lip 10.0.10240 RTM (x86-x64) WZT [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578586.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Total Commander 7.56a Vi7Pack 1.82 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578577.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Microsoft Office 2010 Standard 7153.5000 SP2 (x86) RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578567.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ CCleaner 5.08.5308 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578566.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ UltraISO Premium Edition 9.6.5.3237 DC 22.07.2015 RePack (& Portable) by KpoJIuK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578553.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Microsoft Visual Studio 2015 (14.0.23107.0) - Оригинальные обра�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578546.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ UXTheme Multi-Patcher 8.0[En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578540.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Mirillis Splash PRO 1.9.0 Portable [2011,ML\RUS,x86\x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578535.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ HWMonitor PRO v1.12 + Portable HWMonitor PRO v1.12 [2011, ENG,x86/x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578493.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ RansomHide 0.6.24 [rusian]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578428.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ XMedia Recode 3.3.3.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578387.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Stop SMS Uni Boot v.2.7.24 [Русский и английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578370.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Intel Chipset Software Installation Utility 9.3.0.1021 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578369.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Soft Organizer 5.12 RePacK by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578306.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ WinKit (Windows 7 Toolkit) Portable 1.4.0.44 by loginvovchyk [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578267.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ ABBYY Lingvo x5 «20 языков» Professional 15.0.592.18 [MULTi / Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578254.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Mirillis Action! 3.9.3 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578119.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Avira System Speedup 2.5.6.2633 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577985.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ AMD Radeon Software Crimson Edition 16.8.2 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577980.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Hotspot Shield Elite 5.20.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577974.jpg" />
 </div>
 
 

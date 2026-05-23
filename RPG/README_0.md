@@ -6,7 +6,7 @@ Escape from Ever After (2026) [Ru/Multi] (2.7.4) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060790.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Weird RPG 2 (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060289.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kingdom Come: Deliverance Dilogy (2018-2025) [Ru/Multi] (1.9.6-404-504czj3/1.5.4
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060137.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Avowed (2025) [Ru/Multi] (2.0.0.0/dlc) Repack HardwareMining [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060123.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.06) Repack HardwareMining
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059984.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kingdoms And Slaves (2025) [Multi] (1.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059872.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Machine Tower 2984 (2026) [Ru/Multi] (1.0.0) Repack FitGirl [Supporter Pack]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059849.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Machine Tower 2984 (2026) [Ru/Multi] (1.0.2) Repack Let'sРlay [Supporter Pack]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059784.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.03.2/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059751.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ys X (10): Proud Nordics (2025) [Multi] (1.0.3r10/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059539.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Final Fantasy IV (4) (2014) [Ru/En] (1.0) License GOG [3D Remake]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058891.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Final Fantasy IX (9) (2016) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058890.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Final Fantasy VIII (8) - Remastered (2019) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058889.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Final Fantasy III (3) (2014) [Multi] (1.0) License GOG [3D Remake]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058861.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7/dlc) Repack dixen18 [Royal Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058663.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (1.2/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057970.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Tails of Iron (2021) [Ru/Multi] (1.52/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057862.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack Other s [Inf
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057573.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack FitGirl [Inf
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057555.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack seleZen [Inf
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057554.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Diablo II: Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Scene Rune [Infernal Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057181.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Decision: Red Daze (2022) [Ru/Multi] (1.3.4(1)) Repack Let'sРlay [Supporter Bun
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057179.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7.404.504czj3/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057016.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack Other s [Collectors Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057014.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack FitGirl [Collectors Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057013.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ The Elder Scrolls V: Skyrim - Enderal: Forgotten Stories (2019) [Ru/En] (2.1.4.2
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056654.jpg" />
 </div>
 
 

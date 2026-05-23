@@ -1,134 +1,3 @@
-###  Публикация: 1521824   (763227) от 04.01.2022
-
-А.Д. Григорьев и др. | Микроволновая электроника 3-е изд. (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В учебнике с единых позиций рассматриваются физические основы вакуумной и твердотельной микроволновой электроники. Подробно изложены механизмы взаимодействия электромагнитного поля с заряженными частицами, законы их движения в различных средах. Рассматриваются основные типы и разновидности микроволновых приборов, их принцип действия, теория, характеристики и параметры, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F5B23102C6281BF3B06F56F5EACD4E19D6222A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016809   (762644) от 16.05.2016
-
-Л.Э. Семенова и др. | Правила оформления графической и текстовой документации (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассматриваются вопросы, необходимые на начальных этапах обучения специалистов инженерных и строительных специальностей по дисциплинам - «Начертательная геометрия», «Инженерная графика», «Инженерная компьютерная графика». Учебное пособие содержит информацию справочного характера (ГОСТы ЕСКД со всеми последними официальными изменениями); методические (   Читать дальше...   )Жанр: Инженерная графикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0924172D2232E20BB11FC025E8CE336BC684F37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280285   (762235) от 02.02.2019
-
-В.В. Боброва и др. | Государственное регулирование внешнеторговой деятельности (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассматриваются основы государственного регулирования внешнеторговой деятельности в части реализации запретов и ограничений в условиях функционирования Евразийского экономического союза.
-Материал, изложенный в учебном пособии, позволяет обучающимся самостоятельно закрепить теоретические знания с помощью контрольных вопросов и тестовых заданий.Жанр: Экономика, торговляФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE9664E65576ED1FF7C9F338960860C824DB35A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280255   (762233) от 02.02.2019
-
-Н.Д. Стеба | Налогообложение природопользования (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В практикуме приведены основные положения содержания дисциплины, вопросы для дискуссионного обсуждения, задания для индивидуальной работы, условия задач по всем видам платежей, взимаемых в процессе природопользования. Практические задания предназначены для глубокого овладения теоретическим материалом дисциплины. Приведены примеры решения задач по каждому платежу, (   Читать дальше...   )Жанр: ЭкономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D6A23AFEBDF0AB241993ECFA1D8AA398CF814E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280249   (762225) от 02.02.2019
-
-Е.О. Орлова | Налогообложение участников внешнеэкономической деятельности и движения капитала (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для преподавания дисциплины «Налогообложение участников внешнеэкономической деятельности и движения капитала» для студентов магистратуры очной форм обучения по направлению подготовки 38.04.01 Экономика, магистерская программа «Налогообложение субъектов предпринимательской деятельности»Жанр: ЭкономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F72E363E42C9F16EB1C16A196A80140E0F546A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280269   (762140) от 02.02.2019
 
 В.В. Боброва, Т.Л. Баженова | Мировая экономика и международные экономические отношения (2017) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762140.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762126.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762122.jpg" />
 </div>
 
 
@@ -215,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761993.jpg" />
 </div>
 
 
@@ -241,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761903.jpg" />
 </div>
 
 
@@ -267,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761901.jpg" />
 </div>
 
 
@@ -293,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761776.jpg" />
 </div>
 
 
@@ -319,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761774.jpg" />
 </div>
 
 
@@ -345,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761765.jpg" />
 </div>
 
 
@@ -372,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761276.jpg" />
 </div>
 
 
@@ -399,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760055.jpg" />
 </div>
 
 
@@ -426,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760042.jpg" />
 </div>
 
 
@@ -452,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759928.jpg" />
 </div>
 
 
@@ -478,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759623.jpg" />
 </div>
 
 
@@ -504,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759306.jpg" />
 </div>
 
 
@@ -531,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_758377.jpg" />
 </div>
 
 
@@ -557,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758368.jpg" />
 </div>
 
 
@@ -583,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758240.jpg" />
 </div>
 
 
@@ -610,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756518.jpg" />
 </div>
 
 
@@ -637,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756343.jpg" />
 </div>
 
 
@@ -664,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756226.jpg" />
 </div>
 
 
@@ -676,6 +545,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66AD1AAAEBC8CA26A59DF2B048E6A6B3D282051A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215582   (756219) от 27.03.2018
+
+Франсишку Руиз Вассалло | Курсы электроники и микроэелектроники [3 книги] (2001) [PDF, DJVU] [PT]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756219.jpg" />
+</div>
+
+
+###  Подробнее
+
+С проведением курса «Электроника и микроэлектроника» вы приобретете набор навыков, которые позволят выполнять автономно задачи, связанные с проектом. Приобретать, устанавливать, использовать, проводить обслуживание и ремонт в оборудовании, а именно - читать и интерпретировать схемы и спецификации элементарных электронных систем, проводить проектирование и ремонт (   Читать дальше...   )Жанр: Электроника и микроэлектроникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B2D4DEAB6637B20BEE0B7666F05BEF79E26CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215960   (754607) от 28.03.2018
+
+М.М. Мирошников | Теоретические основы оптико-электронных приборов (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главной целью учебного пособия является последовательное изложение теоретических основ пассивных оптико-электронных приборов, т. е. приборов, воспринимающих либо собственное излучение объектов и фонов, либо отраженное ими излучение естественных источников.
+Основными разделами книги являются сканирование, растровая модуляция излучения, выделение оптического сигнала (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C13F834E3D99E0B8194F4EF7CCEF764D034EB43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523036   (753283) от 10.01.2022
+
+Брычков Ю.А. | Специальные функции. Производные, интегралы, ряды и другие формулы (2006) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753283.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приведены производные, неопределенные и определенные интегралы, конечные суммы, ряды и другие формулы. Она включает в основном новые результаты и является ценным дополнением к существующим справочным руководствам.
+Некоторые известные формулы добавлены для полноты изложения. Особое внимание уделено формулам дифференцирования элементарных и специальных функций (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95FD39B7D36630C39B27B4B8959DC9C9E33BDB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523037   (753277) от 10.01.2022
+
+Прудников А.П. и др. | Таблицы неопределенных интегралов (1986) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит таблицы неопределенных интегралов от элементарных функций.
+
+Предназначен для студентов высших учебных заведений, инженеров, научных работников.
+Примеры страницЖанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:728B099D742F8CA0835EF167A22D7F91137191F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523032   (753158) от 10.01.2022
+
+Прудников А.П. и др. | Интегралы и ряды [3 книги] (2002 - 2003) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второе издание трёхтомного справочника по функциям.Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8254667BCB7EEEFDD4958580BABA239C56822957
 ```
 
 https://mybot314.ru/tekegram_catalog/

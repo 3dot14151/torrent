@@ -1,29 +1,3 @@
-###  Публикация: 1776464   (29065) от 01.02.2025
-
-The Other Me (2025) [Ru/Multi] (build 16992762) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Эта игра ориентирована на исследование и тайны. Чтобы предоставить более значимый опыт истории, напряжение постепенно нарастает. История раскрывается через сюрреалистические образы и детали окружения, которые могут быть не сразу заметны. Учтите, что в игре используется нестандартная система сложности. Предупреждение: Эта игра может вызвать приступы у людей с фоточувствительной (   Читать дальше...   )Тип издания: SceneРазработчик: Anomalybyte StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Турецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Турецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7733CFB9CADAE71E3B3E290C34131EFEEC982DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776453   (29064) от 01.02.2025
 
 Rock Star Life Simulator (2024) [Ru/Multi] (1.0) RePack FitGirl
@@ -32,7 +6,7 @@ Rock Star Life Simulator (2024) [Ru/Multi] (1.0) RePack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29064.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Eternal Strands (2025) [Multi] (1.0.12.8195) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29063.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Princess&Blade (2021) [Multi] (0.95.6) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29059.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Final Fantasy VII (7) Rebirth (2025) [Multi] (build 17035252) Scene FAiRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29050.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Somnus (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29031.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Stone of Madness (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29015.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Deliver Us Mars (2023) [Ru/Multi] (build 17157569) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29013.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28994.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Foundation (2019) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28989.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ NEEDY STREAMER OVERLOAD / NEEDY GIRL OVERDOSE: Internet Angel Pack (2022) [Ru/Mu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28983.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Poppy Playtime (2021) [Ru/Multi] (build 17177248/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28976.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Cryptical Path (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28967.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.5.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28943.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Eternal Strands (2025) [Multi] (1.0.12.8195) Scene FAiRLiGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28941.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Battle Realms: Zen Edition (2001) [Ru/Multi] (1.59.1 HF5) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28939.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.5.0) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28926.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Mika and The Witch's Mountain (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28925.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Deliver Us Mars (2023) [Ru/Multi] (2.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28917.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Foundation (2019) [Ru/Multi] (1.10.2.0/dlc) Repack FitGirl [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28916.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Code Alkonost: Awakening of Evil (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28914.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Metal Savior Black (2025) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28913.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.130.1.0/dlc) Repack DjDI [Digital Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28909.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17162178/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28897.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (Build 17103742/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28893.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ From The Past (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28892.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ From The Past (2025) [Ru/Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCC192ACE82E78F5C5782071CB4F2F2B6D32E538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776650   (28864) от 02.02.2025
+
+Retro City Rampage DX (2014) [Multi] (2.10) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот 8-битный ностальгический реликт-«песочница» с угоном автомобилей занесет вас назад в... восьмидесятые. Выполните более чем 60 связанных в единую историю заданий, а также более 40 аркадных испытаний. «Позаимствуйте» транспортное средство, чтобы удрать от стражей закона, попутно наворачивая горожан на колеса! Запрыгните на пешеходов для получения монеток или сделайте (   Читать дальше...   )Тип издания: LicenseРазработчик: Vblank Entertainment, Inc.Жанр: Экшены, Приключенческие игры, Инди, ГонкиЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB6F6261BB3BE0FB688CC2C4BB3F3E32F097CDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,85 +1,3 @@
-###  Публикация: 1308507   (551209) от 19.06.2019
-
-Иван Шамякин | Брачная ночь (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Иван Шамякин - народный писатель Белоруссии, мастер художественного слова. Повесть"Брачная ночь" посвящена мужеству, самоотверженной борьбе белорусских подпольщиков и партизан в годы Великой Отечественной войны. ...Летом 42-го года Валя увиделась со Степаном в первый раз с начала войны. Он оказался тем самым человеком из городского подполья, к которому (   Читать дальше...   )Жанр: ПрозаПродолжительность: 05:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB5E94F2CFF14EC8CD990315EE035400B983B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046621   (551100) от 28.08.2016
-
-Джуди Кэролайн | Мэгги и Джастина (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роман из цикла "Поющие в терновнике".
-
-...Холодный ветер и освежающая влажность осеннего утра, пропавшая, как будто убежавшая прочь, напряженность тела, сковывавшая ее со вчерашнего вечера, — все это с легкостью волшебника вдруг вернуло ее в спокойное состояние, вырвав из страшного ночного ада волнений и кошмаров.
-Осеннее солнце неожиданно пробилось сквозь (   Читать дальше...   )Жанр: РоманПродолжительность: 21:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2F571CF72EDF43EF8385172D3E26E89FB17AE11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046426   (551093) от 28.08.2016
-
-Дик Френсис | Перелом (2007) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Остросюжетное произведение известного мастера детективного жанра Дика Френсиса.
-Все началось с того, что неизвестные гангстеры под угрозой смерти заставили Нейла Гриффона, тренера одной из скаковых конюшен, участвовать в их махинациях. Однако Нейл вовсе не собирается покорно наблюдать за происходящим. Он начинает тайную борьбу со своими новыми хозяевами.Жанр: ДетективПродолжительность: 06:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:921F2A70179AEB4DF3975FF902BAA7E6C69A087B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046560   (551091) от 28.08.2016
 
 Кристина Ульсон | Стеклянный дом (2016) [MP3]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551091.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551020.jpg" />
 </div>
 
 
@@ -141,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551018.jpg" />
 </div>
 
 
@@ -167,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551017.jpg" />
 </div>
 
 
@@ -193,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551012.jpg" />
 </div>
 
 
@@ -219,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550973.jpg" />
 </div>
 
 
@@ -245,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550929.jpg" />
 </div>
 
 
@@ -271,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550901.jpg" />
 </div>
 
 
@@ -297,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550883.jpg" />
 </div>
 
 
@@ -323,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550812.jpg" />
 </div>
 
 
@@ -349,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550811.jpg" />
 </div>
 
 
@@ -375,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550794.jpg" />
 </div>
 
 
@@ -402,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550743.jpg" />
 </div>
 
 
@@ -428,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550731.jpg" />
 </div>
 
 
@@ -454,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550478.jpg" />
 </div>
 
 
@@ -480,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550442.jpg" />
 </div>
 
 
@@ -508,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550391.jpg" />
 </div>
 
 
@@ -536,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550376.jpg" />
 </div>
 
 
@@ -563,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550278.jpg" />
 </div>
 
 
@@ -590,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550247.jpg" />
 </div>
 
 
@@ -616,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550245.jpg" />
 </div>
 
 
@@ -642,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550169.jpg" />
 </div>
 
 
@@ -668,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550095.jpg" />
 </div>
 
 
@@ -679,6 +597,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D43D5FBBEC24FB0EEFC3CEF22B28AB709BA412B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047005   (549821) от 29.08.2016
+
+Андрей Васильев | Дороги судеб (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля всегда недолго бывает без хозяина. И вот, когда обретено свое место под солнцем, появляются две проблемы: как его защитить и как его расширить? Обе проблемы решаемы, вот только для этого нужны новые люди и оружие для них. А значит — надо отправляться туда, где есть и то и другое, в нелегкий путь по новому миру. За спиной — верные соратники, впереди — километры (   Читать дальше...   )Жанр: Попаданцы, Боевое фэнтезиПродолжительность: 15:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDEF497B740507AECEB40D66C7B1FD275F9B266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237899   (549694) от 26.07.2018
+
+Дот Хатчисон | Коллекционная трилогия (Книга 1). Сад бабочек (2018) [MP3, Дмитрий Филимонов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Сад бабочек», вышедший в США в 2016 году, буквально взорвал рейтинги «Амазона», уверенно и надолго став бестселлером № 1 этого крупнейшего книжного рынка. Читателям стало ясно: на небосклон остросюжетной литературы взошла новая звезда, по своему таланту сравнимая с такими мастерами жанра, как Томас Харрис, Джон Фаулз и Дэвид Болдаччи…
+Эти девушки знают его (   Читать дальше...   )Жанр: ТриллерИздательство: Aудиокнига своими рукамиПродолжительность: 09:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EADEE44569E41304E21468BDACB36E2D8B08AB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309449   (549607) от 21.06.2019
+
+Ариадна Делианич | Отель на Турахских высотах (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец 1945 года. Опалённая войной, вспаханная бомбами, орошённая кровью Европа возвращается к мирной жизни... Отель на Турахских высотах в Австрии превращён в следственную тюрьму НКВД/МВД.
+Здесь жизнь столкнула трёх людей, ранее не знавших друг друга – женщину и двух мужчин. На короткое время их судьбы завязались в Гордиев узел, который не могла разрубить даже смерть. (   Читать дальше...   )Жанр: ПовестьПродолжительность: 02:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B04FDE9A095F5EC4F247155A6399DB0310FFE36
 ```
 
 https://mybot314.ru/tekegram_catalog/

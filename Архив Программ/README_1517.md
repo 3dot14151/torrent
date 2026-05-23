@@ -6,7 +6,7 @@ Complete Internet Repair 5.0.1.3812 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263031.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263029.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ashampoo UnInstaller 7.00.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263021.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe components: Flash Player 28.0.0.126 + AIR 28.0.0.127 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263019.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Office 2007 Enterprise SP3 12.0.6777.5000 RePack by D!akov (2017.12) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263005.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6777.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262988.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Office 2010 Professional Plus + Visio Premium + Project Pro 14.0.7190.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262976.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Office 2010 Standard 14.0.7190.5000 SP2 RePack by KpoJIuK  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262974.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows 10 Enterprise LTSB 10.0.14393 Version 1607 (x86/x64) [Updates 4.0] by Ye
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262960.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4591.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262959.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Microsoft Office 2007 Standard SP3 12.0.6777.5000 RePack by KpoJIuK  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262957.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AAct 3.8.3 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262956.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ XYplorer 20.60.0100 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262920.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ FileZilla 3.46.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262900.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ AnyBurn 4.6+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262896.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ TechSmith Camtasia 2019 0.8 Build 17484 RePack by KpoJIuK  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262872.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ AIMP 4.60 Build 2160 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262865.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ AIDA64 Extreme/Engineer/Business Edition/Network Audit 6.20.5300 Final RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262856.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Movavi Video Converter 20.0.1 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262852.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Nvidia DriverPack v.441.41 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262819.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Rainmeter 4.3.1 Build 3321 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262817.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Advanced IP Scanner 2.5.3850 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262782.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Adobe Photoshop 2020 21.0.1.47 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262771.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Exoside QuadRemesher 1.0 for 3Ds Max [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262769.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ CorelDRAW Technical Suite 2019 21.3.0.755 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262767.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Stellarium 0.90.0.15609 TEST [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262753.jpg" />
 </div>
 
 

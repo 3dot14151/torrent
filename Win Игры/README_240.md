@@ -1,29 +1,3 @@
-###  Публикация: 385796   (475712) от 09.09.2011
-
-[Русификатор: Текст | Звук] Остров мёртвых / Dead Island [Ru] (L) 2011 | Акелла
-
->>Win Игры
->>Языковые пакеты для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Русификатор звука и текста для Dead IslandТип издания: Лицензия / Профессиональный
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDAD5395EBAA1213CF5168386176C93B1C8214B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160291   (475612) от 24.08.2017
 
 Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License CODEX [Episode 1-2]
@@ -32,7 +6,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License CODEX [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475612.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Witch Blood (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475542.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Witch Hunt (2018) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475532.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.3.9087) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475513.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Train Sim World (2018) [Ru/Multi] (1.0/dlc) License CODEX [Digital Deluxe Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475444.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Witch Blood (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475442.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Last DeadEnd (2018) [Ru/Multi] (1.1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475436.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Dungeon Souls (2015) [En] (2.0 HotFix.1) Repack Let'sРlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475046.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Sister's Secrecy: Arcanum Bloodlines / Секреты Белль: Культ Т�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474957.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Haunted Legends 15: The Scars of Lamia (2019) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474952.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Masterplan (2015) [En/De] (1.1.1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474917.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Insanely Twisted Shadow Planet (2012) [Ru/En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474915.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ DARQ (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474792.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ bit Dungeon II (2014) [En] (2.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474754.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ LASTFIGHT (2016) [Ru/Multi] (1.02) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474493.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Margrave 4: The Blacksmiths Daughter. Collectors Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474289.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Nevertales 6: Forgotten Pages Collectors Edition / Несказки 6: Забы�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473903.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Mystic Diary 3: Missing Pages / Таинственный дневник 3. Пр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473731.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Dark Tales 14: Edgar Allan Poe's. The Oval Portrait  / Тёмные Истори
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473666.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Train Sim World (2018) [Ru/Multi] (1.0/dlc) Repack xatab [Digital Deluxe Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473662.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Demon Hunter 3: Revelation / Охотник на демонов 3: Разобл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473649.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Paradise Quest [Ru] (P) 2009
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473599.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ TRON: Evolution: The Video Game / ТРОН: Эволюция [Ru/En] (RePack) 20
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473350.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Reflections of Life 8: Dream Box (2019) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473254.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Catacomb Kids (2015) [En] (Early Access 0.0.11b) Repack Let'sРlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472788.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Catacomb Kids - ЖЕСТОКИЙ рогалик о юном пареньке, н
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:889D6001D911DC23912AA7DB102F6C3D8315116F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057850   (472371) от 29.09.2016
+
+Edge of Twilight (2016) [Ru/Multi] (1.0) License CODEX [Episode 1]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472371.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Edge of Twilight - Return to Glory" - приключенческая игра от 3 лица в постапокалитическом стимпанковом фэнтэзи сеттинге, которая поведает о мире, разделённом на два измерения: дневное и ночное. Игрокам предстоит взять на себя роль Лекса, отщепенца и охотника за головами, который оказывается втянут в противостояние двух враждующих цивилизаций, индустриальных (   Читать дальше...   )Тип издания: LicenseРазработчик: FuzzyEyes StudioЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40265534E77AABFBA95D0AEFAC6139ED91296B2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Adobe Audition 24.0.3.3 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153862.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Perfectly Clear WorkBench 4.2.0.2382 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153858.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Ashampoo Burning Studio 18.0.1.11 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153854.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Movavi Picverse 1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153841.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Athentech Perfectly Clear Complete 3.9.0.1711 Repack by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153838.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Internet Download Manager 6.32 Build 3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153837.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Opera 65.0.3467.78 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153832.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ GIMP 2.10.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153818.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ RadioBOSS Advanced 6.1.0.5 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153811.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ NVIDIA GeForce Desktop 376.48 Hotfix driver + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153800.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ EZ CD Audio Converter 11.3.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153794.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ V-ray 5.00.42 for Cinema 4D R20-R23 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153791.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.3 Build 19 (x64) Portable by 7997 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153787.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v1.3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153753.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ K-Lite Codec Pack Update 17.3.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153750.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ JetBrains Rider 2019.3.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153748.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ PDF-XChange Editor Plus 8.0.335.0 + Portable RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153741.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Microsoft .NET 6.0.12 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153733.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Adobe Premiere Pro 24.0.3.2 (x64) Lite Portable by 7997 [MultiRu]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153724.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153722.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Wondershare PDFelement 9.3.3.2053 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153707.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Webcam Surveyor 3.8.7 Build 1183 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153703.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ MAGIX Vegas Pro 19.0.0.458 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153689.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Total Commander 11.02 Final - Titan v31 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153686.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Microsoft Windows 10 Insider Preview Build 10.0.14986 - Оригинальные
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153681.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Adobe Photoshop 2024 25.1.0.120 (x64) Lite Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153663.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Big Johnny Blue - Big Johnny Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429844.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Woody Shaw - The Complete CBS Studio Recordings Of Woody Shaw (1977, 1979, 1981)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429843.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mino Lionetti & The Shuffle's Brothers - Behind the First (2022) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429767.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Soft City - Settle for the Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429764.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Coco O'Connor - Big Reveal (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429763.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Legends of Acid Jazz Hammond Heroes (1998) [MP3|320 Kbps] <Acid Jazz, Jazzy
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429518.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Peabo Bryson - 4 альбома (1983-2007) [FLAC|Lossless]<Soul, Ballad>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_429438.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ John Coltrane - Interstellar Space (1967) /2015, Universal/[FLAC|tracks+.cue]<Av
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429412.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Snowy White And The White Flames - Little Wing (1997) /2006, Remastered/ [FLAC|i
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429403.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ The Four Freshmen with Stan Kenton And His Orchestra - Live At Butler University
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429380.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ The Four Freshmen - More 4 Freshmen and 5 Trombones & In Person, Vol. 2 (1963, 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429372.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Ruby Braff - Linger Awhile (1953 - 1955) 1999, Vanguard Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429353.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ The Four Freshmen - Voices in Love & Love Lost (1958, 1959) 1998, Collectors' Ch
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429271.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Chris Farlowe - Hotel Eingang (2008) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429137.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Melvin Taylor - 8 Albums (1982 - 2013) 9CD [FLAC|Lossless|image + .cue] <Electri
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428934.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Miles Davis Quintet - Winter in Europe 1967 (2006) Gambit Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428657.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Eva Cortes - El Mar De Mi Vida (2010) Universal [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428509.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Peggy Lee - Rendezvous With Peggy Lee (1946-1949) 2000, Vocalion[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428388.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Gary Burton & Friends - Departure (1997) [WavPack|Lossless|image + .cue] <Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428378.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Peggy Lee - Black Coffee: Best Of The Decca Years (1952-1956) 1997, Half Moon[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428371.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Eric Clapton - Slowhand (1977) [Hybrid SACD 2004] [FLAC (image+.cue)|Lossless]<B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428155.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Peter Parcek - Mississippi Suitcase (2020) [FLAC|Lossless|tracks + .cue] <Electr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427627.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Oliver Nelson - The Argo, Verve And Impulse Big Band Studio Sessions (1963 - 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427621.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Arni Egilsson, Ray Brown, Pete Jolly - Basses Loaded (1996) Cambria [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427523.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ Diana Krall - This Dream Of You (2020) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Vo
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427279.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ VA - 100 Hits The Blues (2019) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427268.jpg" />
 </div>
 
 

@@ -1,83 +1,3 @@
-###  Публикация: 1791618   (21430) от 14.04.2025
-
-Ховард Уолдроп | Гадкие цыплята (2021) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Молодой ученый орнитолог получает наводку, которая может стать сенсацией — птица дронт, вымершая по вине людей в начале 18 века, оказывается, может случайно сохраниться в американской глубинке. Проводя свое расследование, главный герой погружает нас в печальную историю вымирания «птицы Додо» и завершает свой путь, по иронии судьбы, на острове Маврикий, там, откуда (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507FF7EBAD4F7931AE203E1DD1474E923A4C6464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791755   (21340) от 15.04.2025
-
-Жан Рэй | Рассказы (2025) [MP3, Конюх Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов бельгийского писателя Жана Рея (Рэ) в жанре хоррора, мистики, детектива, приключений, драмы. "Странные истории" писателя выделяются оригинальными и непредсказуемыми сюжетами и зачастую изрядной долей юмора по отношению к своим героям и происходящему.Жанр: хоррор, мистика, странные истории, детективИздательство: Аудиокнига своими рукамиПродолжительность: 14:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AA5AC9CB8545666612F885C763DB1C1CB12A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791899   (21274) от 16.04.2025
-
-Василий Лазарев | S-T-I-K-S. Чужая (Книги 1-3) (2024) [MP3, Данила Максимов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Чужая. Книга 1
-Время звучания:13:03:26
-Студентка четвёртого курса МГУ во время дискотеки неожиданно перемещается в Улей (S-T-I-K-S). В результате кровавого финала безмятежного отдыха она теряет друзей и попадает в лапы вооружённых людей. Насильственный эксперимент, проведённый над ней открывает редкий дар управления заражёнными. Невероятный калейдоскоп последующих (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ИДДКПродолжительность: 38:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E55692FAB6B7542BDFCBF6A1370DC118587C71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792006   (21235) от 16.04.2025
 
 Чарльз Де Линт | Пиксельные Пикси (2025) [MP3, Puffin Сafe]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21235.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21231.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21192.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21149.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21144.jpg" />
 </div>
 
 
@@ -219,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21143.jpg" />
 </div>
 
 
@@ -248,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21135.jpg" />
 </div>
 
 
@@ -274,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21133.jpg" />
 </div>
 
 
@@ -301,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21128.jpg" />
 </div>
 
 
@@ -327,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21118.jpg" />
 </div>
 
 
@@ -354,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21097.jpg" />
 </div>
 
 
@@ -380,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21051.jpg" />
 </div>
 
 
@@ -406,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21047.jpg" />
 </div>
 
 
@@ -432,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21032.jpg" />
 </div>
 
 
@@ -458,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21014.jpg" />
 </div>
 
 
@@ -487,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21010.jpg" />
 </div>
 
 
@@ -515,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21008.jpg" />
 </div>
 
 
@@ -543,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21002.jpg" />
 </div>
 
 
@@ -571,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21001.jpg" />
 </div>
 
 
@@ -597,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20995.jpg" />
 </div>
 
 
@@ -624,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20943.jpg" />
 </div>
 
 
@@ -653,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20890.jpg" />
 </div>
 
 
@@ -680,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20822.jpg" />
 </div>
 
 
@@ -691,6 +611,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12A865605EB9A2782D66ADD206DD94E314EFF555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792626   (20800) от 20.04.2025
+
+Эрих Мария Ремарк | Триумфальная арка (2013) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман "Триумфальная арка" написан известным немецким писателем Э.М. Ремарком (1898-1970). Автор рассказывает о трагической судьбе талантливого немецкого хирурга, бежавшего из фашистской Германии от преследований нацистов. Ремарк с большим искусством анализирует сложный духовный мир героя. В этом романе с огромной силой звучит тема борьбы с фашизмом, но (   Читать дальше...   )Жанр: Зарубежная классикаИздательство: Нигде не купишьПродолжительность: 21:21:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C171DDF1BB4E435C1A8240A8C888F22CEC831929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792705   (20799) от 20.04.2025
+
+Валерий Шарапов | Тревожная весна 45-го (2020) [MP3, Александр Серов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20799.jpg" />
+</div>
+
+
+###  Подробнее
+
+1945 год. После демобилизации в Москву возвращается бывший командир разведроты майор Александр Васильков. Здесь он встречает своего заместителя капитана Старцева. Комиссованный после ранения, тот уже два года работает старшим следователем в МУРе. Старцев зовет командира на службу в Уголовный розыск. Людей не хватает, а криминальная обстановка в столице – сродни фронтовой. (   Читать дальше...   )Жанр: Криминальные боевикиИздательство: Литрес Паблишинг, ЭксмоПродолжительность: 07:09:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A787D1F84DEC5D60F9CB62C58356A8EC7493661B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792784   (20794) от 20.04.2025
+
+Лев Овалов | Январские ночи. Повесть о Розалии Землячке (2022) [MP3, Александр Харитонов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лев Овалов известен читателям как автор многих увлекательных романов и повестей. Им написано свыше тридцати книг, первые его произведения были отмечены еще А.М. Горьким и А.С. Серафимовичем. Автора всегда интересовала современная партийная проблематика. За последнее время вышли его романы «Партийное поручение», «История одной судьбы» и повесть «Помни обо мне». К (   Читать дальше...   )Жанр: Биография, историческая прозаИздательство: Аудиокнига своими рукамиПродолжительность: 08:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71E53016E703ADF2A91EF72A30E91D4A8F5B5EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Google Chrome 74.0.3729.131 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599431.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Arturia - V Collection 7 7.0.0 STANDALONE, VSTi, VSTi3, AAX (x64) RePack by R2R 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599416.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Replay Media Catcher 6.0.1.36 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599408.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Torch Browser 47.0.0.11536 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599405.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ AOL Shield 51.0.2706.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599402.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Auvisoft Audio Converter 2.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_599340.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Actual Multiple Monitors 8.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599287.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Mozilla Firefox ESR 45.2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599282.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Adobe InDesign CC 2015.0 11.0.0.72 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599265.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Adobe InDesign CC 2015.0 11.0.0.72 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599253.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Microsoft Windows 10 Insider Preview 10.0.10159 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599245.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Microsoft Windows 10 Insider Preview 10.0.10158 (esd) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599242.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Advanced System Optimizer 3.5.1000.13999 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_599216.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Stardock Start10 1.7 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599207.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ uTorrent 3.5.5 Build 45225 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599203.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Nero Burning ROM 2019 20.0.2012 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599193.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Ad-Aware Free Antivirus+ 11.12.945.9202 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599183.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Kaspersky Lab Products Remover 1.0.1128 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599180.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ GridinSoft Anti-Malware 3.0.46 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599178.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ TeamViewer 11.0.63017 Free | Corporate | Premium RePack (& Portable) by D!akov [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599172.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Photodex ProShow Producer 8.0.3645 RePack by PooShock [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599077.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Nokia Suite 3.5.21 Beta [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_599058.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Bitcoin Core 0.13.0rc1 with Blockchain [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598998.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ WinTuning 7 2.05.1 RePack by D!akov [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598965.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Ieshua's Live-DVD/USB 2.07[Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598885.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Autodesk AutoCAD Map 3D 2013 [Ru] [x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598721.jpg" />
 </div>
 
 

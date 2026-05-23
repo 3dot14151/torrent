@@ -1,29 +1,3 @@
-###  Публикация: 1566679   (244694) от 30.07.2022
-
-In The Space - Escape Room (2022) [Ru/Multi] (1.0) License DARKSiDERS
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Вы проникли на космический корабль, где проводят различные эксперименты. Сможете ли вы открыть это и спасти человечество? In the Space - это научно-фантастический квест, где вам нужно будет проверить свои навыки, вам придется решать различные головоломки и наблюдать за подсказками, которые можно найти по всему космическому кораблю.Тип издания: LicenseРазработчик: Adrian SystemsЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFFE75CDBF14597BC8502879555B484D25F9297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540946   (244676) от 01.04.2022
 
 Catie in MeowmeowLand (2022) [Ru/Multi] (0.1.0.2_65f17ebd) License GOG
@@ -32,7 +6,7 @@ Catie in MeowmeowLand (2022) [Ru/Multi] (0.1.0.2_65f17ebd) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244676.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Noctem (2022) [Multi] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244581.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Dare to Stay (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244443.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Chronicle (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244343.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Kamikaze Veggies (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243332.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Mists of Aiden (2020) [Ru/Multi] (1.0 Build 8798754) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237664.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ South of the Circle (2022) [Ru/Multi] (23) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237353.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Dracula Origin (2008) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236481.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Ecstatica: A State of Mind (1997) [En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236275.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Chinatown Detective Agency (2022) [Multi] (1.0.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235338.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Whateverland (2022) [Ru/Multi] (0.9.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234577.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Recursive Ruin (2022) [Ru/Multi] (22.05.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233780.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Goetia 2 (2022) [Multi] (1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233614.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ JANITOR BLEEDS (2022) [Ru/Multi] (1.0.41) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232591.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) Repack Decepticon [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232168.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ A Golden Wake (2014) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231934.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Don't Starve Together (2016) [Ru] (Build 696980/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230562.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ LOST EMBER (2019) [Ru/Multi] (1.0.0.11965) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229470.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Life after Death (2022) [Ru/En] (10.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228323.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Scorn (2022) [Ru/Multi] (Build 9713371) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228191.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.1.35) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226363.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Heavy Rain (2019) [Ru/Multi] (Build 362) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226331.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225338.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Husk (2017) [Ru/Multi] (1.0/upd5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225318.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Loco Parentis (2019) [Ru/En] (1.2.0.4856) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223230.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Loco Parentis — сюрреалистичный survival-horror, где вам 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7435522E5E8D43D729CB2DADB105E7A9FCC35914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342725   (222295) от 03.12.2019
+
+Waxworks (1992) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кошмар начался, когда вам было восемь лет, и ваш брат-близнец Алекс без вести пропал в черном лабиринте под кузницей Виста, где ваш дядя Борис хранил свои одержимые демонами восковые фигуры. Прошло 20 лет... Дядя Борис умер, а вы получили в наследство его адскую коллекцию и жуткое известие о том, что Алекс жив. Одержимый древним семейным проклятием, он намеревается (   Читать дальше...   )Тип издания: LicenseРазработчик: HorrorsoftЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: Английский, Немецкий, Испанский, ФранцузскийЯзык субтитров: Английский, Немецкий, Испанский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF2B4DE245A2D6C057BB2AE73E8502069904997E
 ```
 
 https://mybot314.ru/tekegram_catalog/

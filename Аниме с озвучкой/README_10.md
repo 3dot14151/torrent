@@ -6,7 +6,7 @@ Owari no Seraph | Seraph of the End: Vampire Reign | Последний Сера
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939074.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hai to Gensou no Grimgar | Grimgar of Fantasy and Ash | Гримгал Мир И
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939073.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938631.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из Завтра�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935633.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во Т
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935632.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Akame ga Kill! | Убийца Акамэ! [2014, TV, 24 ep + 24 sp] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935631.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Shingeki no Bahamut: Genesis / Rage of Bahamut: Genesis / Ярость Баха�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935598.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Charlotte | Шарлотта [2015, TV, 13 ep + 1 sp] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934325.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Bokusatsu Tenshi Dokuro-chan / Убойный ангел Докуро-тян (20
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934208.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Shinmai Maou no Testament Departures | The Testament of Sister New Devil Departu
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932868.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Shinmai Maou no Testament Burst | The Testament of Sister New Devil Burst | Но
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932867.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Shinmai Maou no Testament | The Testament of Sister New Devil | Новый За�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932866.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Hanasaku Iroha: Home Sweet Home | Hanasaku Iroha the Movie: Home Sweet Home | А
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931385.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Hanasaku Iroha | Hanasaku Iroha: Blossoms for Tomorrow | Азбука Цвето
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931384.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ To Love-Ru: Trouble - Darkness 2nd | To Loveru: Darkness 2 | Любовные Н
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931380.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Motto To Love-Ru: Trouble | Motto To Loveru | Любовные Неприятн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931379.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ To Love-Ru: Trouble - Darkness | To Loveru: Darkness | Любовные Непр
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931378.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Hataraku Maou-sama! | The Devil is a Part-Timer! | Повелитель Тьмы
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931377.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Kappa no Coo to Natsuyasumi | Summer Days with Coo | Волшебное лето
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929852.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ To Love-Ru: Trouble | To Loveru | Любовные Неприятности [TV-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928562.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Toki wo Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, Пок
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926606.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ No Game No Life / Игра на выживание [2014, TV, 12 ep] BDRip Hi10p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926510.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Saenai Heroine no Sodatekata | Saekano: How to Raise a Boring Girlfriend | Ка�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924948.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из Другого М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923245.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Kokoro ga Sakebitagatterunda | The Anthem of the Heart | Сердцу Хочет
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923240.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923235.jpg" />
 </div>
 
 

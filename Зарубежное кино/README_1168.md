@@ -1,55 +1,3 @@
-###  Публикация: 548488   (466904) от 18.09.2012
-
-Последняя надежда / Black (2005) BDRip
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мишель МакНелли — дочь, родившейся в англо-индийской семье в возрасте восемнадцати месяцев после болезни становится слепой и глухонемой. Она яркая, толковая девушка, которая живет в мире черной тишины без умения общаться с внешним миром. Это расстраивает молодую девушку, которая очень хочет общаться. Отчаяние принуждает ее быть вредной, сильной и буйной. Но судьба имеет иные планы для нее…Жанр: ДрамаРежиссер: Санджай Лила БхансалиАктеры: Амитабх Баччан, Рани Мухерджи, Шерназ Патель, Аеша Капур, Дхритиман Чаттерджи, Sillo Mahava, Chippy Gangjee, Mahabanoo Mody-Kotwal, Нандана Сен, Кенни ДесаиПеревод: Многоголосый закадровый (профессиональный)Продолжительность: 02:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED1B4A78B57F523EF81BAA58BC4383050C0C12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161377   (466889) от 28.08.2017
-
-Очень плохие девчонки / Rough Night (2017) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Что может омрачить развеселый и безбашенный девичник в Майами? Наверное, только нелепая смерть стриптизера. Теперь подружкам предстоит выпутаться из дурацкой истории и как-то замести следы, пока они не попали в руки к копам.Производство: США / Sony Pictures Entertainment (SPE)Жанр: комедияРежиссер: Люсия АньеллоАктеры: Скарлетт Йоханссон, Джиллиан Белл, Зои Кравиц, Илана Глейзер, Кейт МакКиннон, Пол В. Даунс, Райан Купер, Тай Буррелл, Деми Мур, Энрике МурсианоПеревод: Дублированный (iTunes)Субтитры: Русские (форсированные, полные), английские (полные)Продолжительность: 01:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E72A7D9F969BF50C5946FCCE996B170A6B7DE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161209   (466879) от 28.08.2017
 
 Ад / Die Holle (2017) HDRip [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466879.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466877.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466815.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466802.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466766.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466765.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466756.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466755.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466747.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466728.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466613.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466606.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466576.jpg" />
 </div>
 
 
@@ -406,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466571.jpg" />
 </div>
 
 
@@ -432,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466535.jpg" />
 </div>
 
 
@@ -458,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466518.jpg" />
 </div>
 
 
@@ -486,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466468.jpg" />
 </div>
 
 
@@ -514,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466463.jpg" />
 </div>
 
 
@@ -540,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466460.jpg" />
 </div>
 
 
@@ -567,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466459.jpg" />
 </div>
 
 
@@ -593,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466458.jpg" />
 </div>
 
 
@@ -619,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466456.jpg" />
 </div>
 
 
@@ -646,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466452.jpg" />
 </div>
 
 
@@ -673,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466427.jpg" />
 </div>
 
 
@@ -684,6 +632,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58EE761A9F92A87DBE5E07F162CAD22D3424F097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940588   (466426) от 25.09.2015
+
+Погоня за красотой / Bad Hair Day (2015) WEBRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моника собирается на выпускной вечер. С самого утра у девушки все идет наперекосяк, но последней каплей становится её кошмарная прическа. Бедняжка думает, что хуже уже ничего быть не может, но тут в ее дверь стучится полицейский, разыскивающий пропавшие драгоценности. Это становится началом грандиозного приключения...Производство: КанадаЖанр: Комедия, приключенияРежиссер: Эрик КануэльАктеры: Лора Марано, Ли-Эллин Бейкер, Кристиан Кэмпбелл, Ален Голем, Кристиан Пол, Киана Мадейра, Джейк Мэнли, Зои Де Гранд Мезон, Майк Патерсон, Полин ЛиттлПеревод: Дублированный (Disney)Продолжительность: 01:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A513559ED750E61E992BDC134269941031F6105E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940589   (466422) от 25.09.2015
+
+Крутые стволы / Mean Guns (1997) BDRip [H.264] [Director's Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466422.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новенькой отстроенной тюрьме некто по прозвищу Мун собирает самых лучших бойцов синдиката. Он говорит им о том, что теперь они являются участниками новой игры, отказаться от которой ни кто не может. Выслушав суровые правила, не подлежащие изменению, бойцы начинают сражение, по завершению которого трое выживших заберут главный приз в размере десяти миллионов долларов. (   Читать дальше...   )Производство: США / FilmwerksЖанр: боевик, триллер, криминалРежиссер: Альберт ПьюнАктеры: Кристофер Ламберт, Айс-Ти, Майкл Халсли, Дебора Ван Валкенберг, Тина Коте, Юдзи Окумото, Том Мэтьюз, Кимберли Уоррен, Хантер Дугти, Джерри РекторПеревод: Профессиональный (многоголосый закадровый), профессиональный (двухголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: русский, английскийПродолжительность: 01:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308CFC2A827517C738B49FF1F68A71A1B498EABE
 ```
 
 https://mybot314.ru/tekegram_catalog/

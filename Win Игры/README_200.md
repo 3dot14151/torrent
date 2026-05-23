@@ -1,29 +1,3 @@
-###  Публикация: 1148261   (604179) от 05.07.2017
-
-Sudeki (2005) [Multi] (1.0) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Sudeki – это мир, разделенный на свет, тень и тьму. Расколотая в результате обмана и предательства земля взывает о мире, который могут принести лишь четыре объединившихся героя. За надежными стенами замка Иллюмина раскинулась на многие мили холмистая сельская местность, но войска Аклории превратили некогда безмятежный пейзаж в выжженное поле боя. Даже просто пересекать (   Читать дальше...   )Тип издания: LicenseРазработчик: Climax GroupЖанр: RPG (Japanese-style), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D5CAC3462D338D4B1E764A61D7CD61D377D067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148191   (604176) от 05.07.2017
 
 Unravel (2016) [Multi] (1.0.0) License STEAMPUNKS
@@ -32,7 +6,7 @@ Unravel (2016) [Multi] (1.0.0) License STEAMPUNKS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604176.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Westboro (2017) [Ru/Multi] (1.00) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604171.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Remember Me (2013) [Ru/Multi] (1.0.2056.0/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604170.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Clocker (2019) [Ru/Multi] (1.1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604039.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Clocker (2019) [Ru/Multi] (1.1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604018.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Cuphead (2017) [Ru/Multi] (1.2) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604010.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Assassin's Creed (2008) [Ru/Multi] (1.02v2) License GOG [Director's Cut Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603997.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ PuppetShow 9: Her Cruel Collection / Шоу марионеток 9: Ее ужа�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603870.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Dragon Ball: Xenoverse 2 (2016) [Ru/En] (1.07.00/dlc) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603790.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603747.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Railway Empire (2018) [Ru/Multi] (1.4.0.20902/dlc) Repack =nemos=
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603655.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603641.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Haimrik (2018) [Ru/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603637.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Haimrik (2018) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603631.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Pinstripe (2017) [Ru/Multi] (2.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603617.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Mystery of the Ancients: Lockwood Manor / Тайны древних: Помес�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603564.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ orbit.industries (2022) [Ru/Multi] (1.1.9537.0) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603212.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Bridge to Another World 3: Alice in Shadowland / Мост в иной мир 3: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603070.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Grimshade (2019) [Ru/En] (1.1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603027.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ For The King (2018) [Ru/Multi] (1.0.10.9949) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603024.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Prince of Persia / Принц Персии (2008) [Ru/En] (1.0v2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603023.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Northgard (2018) [Ru/Multi] (1.7.12920/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603020.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dark Parables 13: Requiem for the Forgotten Shadow / Темные Притчи 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602884.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Mitsurugi Kamui Hikae (2014) [En/Jap] (1.1.4.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602810.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Ben The Exorcist (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602801.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Ben The Exorcist (2017) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:453FA3EB7ED253C549CADDF62463570EB92B74D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000761   (602799) от 08.07.2017
+
+Paws: Pitter (2016) [Ru/Multi] (1.2/dlc) License GOG [Patter Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Might and Delight приглашает вас переступить порог сказочного мира Shelter. Представляем Paws! Тьма сгущается упруго, лес сбивает вас с пути, но гораздо легче с другом.. к дому вместе добрести... Paws – это история о том, как двое симпатичных и необычных героев пробиваются к дому через всевозможные трудности и опасности, которые таит в себе дикая природа. Игра сочетает (   Читать дальше...   )Тип издания: LicenseРазработчик: Might and DelightЖанр: AdventureЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11968B67DC16BE407EDC09C54FD6823A7134F2F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

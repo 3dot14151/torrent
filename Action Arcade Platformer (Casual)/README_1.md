@@ -6,7 +6,7 @@
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031517.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Have a Nice Death (2023) [Ru/Multi] (1.0.0.53022) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031306.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Vernal Edge (2023) [Multi] (1.4.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030172.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FEIST (2015) [Ru/Multi] (1.4.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028610.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kaze and the Wild Masks (2021) [Ru/Multi] (2.0.2) Repack SpaceX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024113.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Crash Bandicoot 4: It’s About Time (2021) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023540.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Crash Bandicoot 4: It’s About Time (2021) [Ru/Multi] (1.0) Repack SpaceX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022861.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Crash Bandicoot 4: It’s About Time (2021) [Ru/Multi] (1.0.03202023) Repack Oth
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022320.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Terraria (2011) [Ru/Multi] (1.4.2.1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021976.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Supraland (2019) [Ru/Multi] (1.21.17/dlc) Repack Other s [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021232.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Narita Boy (2021) [Ru/Multi] (1.0.1.61) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013787.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Jump King (2019) [En] (g1.06) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013772.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013283.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sockventure (2021) [Multi] (1.0.0a) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012839.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Hollow Knight (2017) [Ru/Multi] (1.5.68.11808/dlc) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012035.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ World of One (2017) [Ru/Multi] (1.5.0 B22) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010381.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Ender Lilies: Quietus of the Knights (2021) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009606.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Vesper (2021) [Multi] (1.0.i0b) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004830.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Phoenotopia: Awakening (2021) [Ru/Multi] (1.2.9) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004826.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Symphonia (2021) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004294.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Vesper (2021) [Multi] (1.0.i0b) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004251.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Grime (2021) [Ru/Multi] (1.0.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004039.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Iron Marines (2019) [Ru/Multi] (1.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003706.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Closure [En] (Repack) 2012 | R.G. Origami
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000332.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Ricochet Infinity (2007) [Ru/En] (3.0.62) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998476.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Closure [En] (RePack) 2012 | R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997358.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1521851   (761424) от 05.01.2022
-
-Глоток воздуха / A Mouthful of Air (2021) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1995 год. Джули Дэвис сочиняет и рисует сказки для детей — они оживают на экране радужными мультфильмами. Такой же славной может показаться и жизнь Джули, счастливой в браке и материнстве; свет пронизывает её уютный дом, вокруг — добрые заботливые люди. Можно радоваться каждому новому дню, но что-то гложет женщину изнутри…Производство: США / Carte Blanche, Farcaster Films, Maven Pictures, Studio Mao, Templeheart Films, Trio Entertainment (II), Winsome EntertainmentЖанр: ДрамаРежиссер: Эми КоппельманАктеры: Дженнифер Карпентер, Аманда Сайфред, Бритт Робертсон, Пол Джаматти, Адам Гарсия, Финн Уиттрок, Эми Ирвинг, Алисия Райнер, Джош Хэмилтон, Майкл ГэстонПеревод: Многоголосый профессиональный (Кинопоиск HD)Язык озвучки: РусскийСубтитры: Русские (forced, full) - отдельноПродолжительность: 01:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1181EACC7046F70EDCD4D1897BBC64B6B38AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521952   (761410) от 05.01.2022
-
-Суперзвезда / France (2021) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Смелая и циничная тележурналистка Франс де Мер лезет во все горячие точки планеты, хамит президенту на пресс-конференциях и блистает на светских вечеринках. Внезапно одна ошибка меняет её бурную жизнь: она больше не хочет быть в центре внимания и тяготится славой. Но когда акула шоу-бизнеса прекращает охоту, она сама становится лакомой добычей. (   Читать дальше...   )Производство: Германия, Франция, Италия, Бельгия / 3B Productions, Red Balloon Film, Tea Time FilmЖанр: Комедия, ДрамаРежиссер: Брюно ДюмонАктеры: Леа Сейду, Бланш Гарден, Бенжамин Биолэй, Эмануэле Ариоли, Юлиана Кёлер, Гаэтан Амиэль, Джавадмар, Марко Беттини, Марк Беттинелли, Люсиль Рош, Нура Бенбалули, Абделла Шауа, Альфред де Монтескью, Кристим, Набильсон ФейгианПеревод: Дублированный (Lucky Production)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15777F3D9A607D77EA78D1E730CE7CFE066D4421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522084   (761405) от 05.01.2022
 
 Охотники за привидениями: Наследники / Ghostbusters: Afterlife (2021) WEB-DLRip [H.265]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761405.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761357.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761351.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761348.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761247.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761151.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761147.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761138.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761069.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761063.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761030.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761028.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761026.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761022.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761020.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760942.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760932.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760883.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760866.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760799.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760793.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760736.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760735.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760733.jpg" />
 </div>
 
 
@@ -670,6 +618,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:631C18D0765E8FDB9F1D171F8E670ECC2B5CC5D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 887022   (760726) от 11.04.2015
+
+Разоблачение / Disclosure (1994) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его карьера. Его брак. Его будущее. Все это оказалось под угрозой для сотрудника компании «DigiCom» Тома Сандерса. Он устоял перед напором страсти со стороны начальницы. Но в отместку она обвинила его в сексуальных домогательствах.
+И Том, проработавший в этой компании много лет, вынужден защищаться, чтобы не потерять место. Благодаря этой борьбе он попадает в головокружительный (   Читать дальше...   )Производство: США / Baltimore Pictures, Constant c Productions, Warner Bros. PicturesЖанр: Триллер, ДрамаРежиссер: Барри ЛевинсонАктеры: Майкл Дуглас, Деми Мур, Дональд Сазерленд, Кэролайн Гудолл, Рома Маффиа, Дилан Бейкер, Розмари Форсайт, Деннис Миллер, Сьюзи Плэксон, Николас СэдлерПеревод: Дублированный, авторскийЯзык субтитров: РусскийПродолжительность: 02:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E60C84B46BFAED6C06AAE8C3AB3CFBB7952DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017330   (760686) от 17.05.2016
+
+Эйс Вентура 2: Когда зовет природа / Ace Ventura: When Nature Calls (1995) HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Место действия — Африка. Знаменитый детектив Эйс Вентура, единственный в мире специалист по розыску пропавших домашних любимцев, снова в деле. На этот раз Эйс должен найти Шикаку — священное животное племени Вачати. Без Шикаки не может состояться свадьба дочери вождя племени Вачати и сына вождя воинственного племени Вачуту.
+
+Если Эйс провалит задание, начнется межплеменная (   Читать дальше...   )Производство: США / Morgan Creek Productions, O EntertainmentЖанр: комедия, детектив, приключенияРежиссер: Стив ОдекеркАктеры: Джим Керри, Иэн МакНис, Саймон Кэллоу, Боб Гантон, Софи Оконедо, Брюс Спенс, Мейнард Эзиаши, Адевале Акинойе-Агбаже, Томми Дэвидсон, Дэймон СтандиферПеревод: Профессиональный (полное дублирование), Профессиональный (многоголосый закадровый) HTBСубтитры: ОтсутствуютПродолжительность: 01:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B82888DD73AF0761AA5508F58735215C1ED71DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

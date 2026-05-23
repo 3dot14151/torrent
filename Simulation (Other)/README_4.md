@@ -6,7 +6,7 @@ Take On Mars (2017) [En] (1.0) License RELOADED
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888506.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bus Simulator 16 (2016) [Ru/Multi] (1.0.0.754.6956) Repack Valdeni
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885617.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SimAirport (2020) [Ru/Multi] (1.0/upd1/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879620.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Farming Simulator 15 (2014) [Ru/Multi] (1.4.2/dlc) License SKIDROW [Gold Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878533.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Farming Simulator 15 (2014) [Ru/Multi] (1.4.2.0/dlc) Repack R.G. Механик�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878430.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Farming Simulator 17 (2016) [Ru] (1.4.2/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877534.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Farming Simulator 15 (2015) [Ru/Multi] (1.4.2/dlc) Repack xatab [Gold Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876565.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Emergency Room: Code Red  / Скорая Помощь 3 [Ru] (L) 2001/2005
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870647.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Professional Farmer 2017 (2016) [En/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860411.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860107.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Forestry 2017 - The Simulation (2016) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858623.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Judgment: Apocalypse Survival Simulation (2018) [Ru/Multi] (1.1.4215/dlc) Repack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858123.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Radio Commander (2019) [Ru/Multi] (1.122/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858117.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Accident (2021) [Ru/Multi] (1.63) License DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857422.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ SnowRunner (2020) [Ru/Multi] (15.0/dlc) Repack R.G. Механики [Premium Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857409.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Orwell (2016) [En] (1.1.6254.19879) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849791.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Spintires: The Original Game (2014) [Ru/Multi] (1.4.5) Repack =nemos=
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847802.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Tank Mechanic Simulator (2020) [Ru/En] (1.1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844266.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Bus Driver Simulator 2019 (2019) [Ru/Multi] (5.9/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842284.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Serin Fate (2021) [En] (1.0.22) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833206.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Euro Fishing (2015) [En/Multi] (1.0/upd2) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828207.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Virtual Rides 3  (2017) [Multi] (1.0.1) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827616.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Emergency 2017 (2016) [Ru] (3.0.2) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825821.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.1.1.4/dlc) SteamRip Let'sPlay [
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823963.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Bus Simulator 16 (2016) [Ru/Multi] (1.0.0.768.7023/dlc) Repack R.G. Механи
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816849.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Youtubers Life 2 (2021) [Ru/Multi] (1.2.1.3) License DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813534.jpg" />
 </div>
 
 

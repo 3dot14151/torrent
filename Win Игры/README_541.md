@@ -1,29 +1,3 @@
-###  Публикация: 1793078   (20610) от 22.04.2025
-
-FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack FitGirl [Special Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Всеми любимая серия Fatal Fury от SNK впервые вышла на рынок в 1991 году, породив волну файтингов, захлестнувшую индустрию в девяностых. GAROU: MARK OF THE WOLVES (выпущена в 1999 году) долгое время оставалась самой последней игрой франшизы, но вскоре это изменится. Спустя 26 лет на файтинг-арену готова выйти совершенно новая игра - FATAL FURY: City of the Wolves!Тип издания: RepackРазработчик: SNK CORPORATIONЖанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED394577781F225BEAD14E28F75257C71F1B14C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793128   (20608) от 22.04.2025
 
 Synergy (2024) [Ru/Multi] (1.0.2504161516/dlc) Repack FitGirl [Supporter Edition]
@@ -32,7 +6,7 @@ Synergy (2024) [Ru/Multi] (1.0.2504161516/dlc) Repack FitGirl [Supporter Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20608.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Citadelum (2024) [Ru/Multi] (2.0.0.10) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20573.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Multi] (0.411.140.0/dlc) S
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20570.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Forever Winter (2024) [Ru/Multi] (0.1.45959.0) Repack Pioneer [Early Access 
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20555.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (1.4.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20544.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17717270/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20543.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20542.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack FitGirl [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20527.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20523.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Post Trauma (2025) [Multi] (1.04) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20522.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Lushfoil Photography Sim (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20515.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Pecker (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20511.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Sacre Bleu (2025) [Ru/Multi] (1.0.10) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20510.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Brassheart (2025) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20495.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20493.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20478.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Hyperviolent (2023) [En] (0.9.0.6) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20468.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Fort Solis (2023) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20454.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20440.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ The Shivah (2013) [En] (3.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20435.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.3/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20416.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Sunset Motel (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20412.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20408.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Onimusha: Warlords (2019) [Ru/Multi] (Build 17777991) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20389.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ It Happened Here 4: If Walls Could Talk / Это случилось здесь 4
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20365.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ It Happened Here 4: If Walls Could Talk / Это случилось здесь 4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0278008E9BC2A245E021F325D501A0FA00A2977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637482   (20351) от 25.04.2025
+
+Everdream Valley (2023) [Multi] (5.0423.1455/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умиротворяющий симулятор фермы с элементами песочницы, где вы будете управлять своим хозяйством и незабываемо проведете лето наедине с природой. Создайте собственного персонажа и отправляйтесь в увлекательное путешествие в долину Евердрим, где обитает настоящая магия. Днем занимайтесь хозяйством, а с наступлением ночи вам предстоит раскрыть темную сторону очаровательного (   Читать дальше...   )Тип издания: LicenseРазработчик: MooneatersЖанр: Приключение, Строительство, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Польский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Польский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75111A58333DA219AFFDEE2812B57D87AF3D2AA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

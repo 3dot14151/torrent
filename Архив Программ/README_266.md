@@ -6,7 +6,7 @@ Adobe Acrobat Pro DC 2015.023.20056 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927347.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Acrobat Reader DC 2015.010.20059 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927335.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ICE Book Reader Professional 9.4.6 + Lang Pack + Skin Pack [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927332.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NVIDIA GeForce Desktop 361.91 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927330.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PrivaZer 3.0.94 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927257.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ USB Disk Security 6.5.0.0 RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927212.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Windows 8.1 Update Release By StartSoft 04-2017 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927210.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Adobe Acrobat Pro DC 2015.010.20059 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927178.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MAGIX Sound Forge Pro 14.0 Build 31 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927134.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ apulSoft - apQualizr2 2.2.4 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927108.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Cent Browser 4.2.7.112 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927024.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ FurMark 1.27.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927018.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wondershare UniConverter 11.7.2.6 Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927011.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ SpeedCommander 13.40.6300 (feSS Edition v1.05) (x86 и x64 версии)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926920.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Wise Memory Optimizer 3.6.7.111 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926903.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Machete 5.0 Build 55 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926899.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ O&O Defrag Professional 23.0 Build 3579 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926883.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Beyond Compare Pro 4.4.0.25886 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926813.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Auslogics Disk Defrag Ultimate 4.11.0.6 Repack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926775.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Sprint-Layout 6.0 DC 02.08.2021 RePack by NikZayatS2018 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926753.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ IObit Driver Booster Pro 7.3.0.675 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926731.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.9926 (x86, x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926486.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Mozilla Firefox 45.0 beta 6 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926229.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Total Commander 7.50a Grey Pack (Mini Version) 1.1 [русский + англи�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926217.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Total Commander 7.50a Grey Pack (Lite Version) 1.5 [русский + англи�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926157.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Argent Client 10.0.1.13 Light Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926120.jpg" />
 </div>
 
 

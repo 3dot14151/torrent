@@ -6,7 +6,7 @@ FinePrint 8.35 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920547.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 10 Manager 3.5.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920543.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ naps2 5.3.3.20851 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920542.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Infix PDF Editor Pro 7.6.3 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920534.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Run-Command 2.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920524.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ YTD Video Downloader PRO 5.9.15.11 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920445.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ GPU-Z 2.30.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920443.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Balabolka 2.15.0.735 + Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920436.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Adguard 6.0.194.1008 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920430.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ WinTools.net Premium 21.8.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920408.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Universal USB Installer 2.0.0.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920395.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920384.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Waterfox Current 2020.03 / Classic 2020.03.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920307.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Blackmagic Design DaVinci Resolve Studio 16.2.0.054 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920304.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ ISO Workshop Free Edition 9.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920300.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Hard Disk Sentinel Pro 5.61 Build 11463 Final RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920295.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ BELOFF [dp] 2020.03.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920290.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Ashampoo Music Studio 6.1.00.11 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920286.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Infix PDF Editor Pro 7.6.3 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920284.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Geek Uninstaller 1.4.8 Build 145 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920279.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Windows 10 Manager 3.5.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920273.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920260.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ TeamViewer 11.0.55321 Free | Enterprise | Premium RePack (& Portable) by D!akov 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920251.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Simple Internet Meter 2.2.9 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920246.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Process Explorer 16.43 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920233.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Smarty Uninstaller 4.4.0 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920231.jpg" />
 </div>
 
 

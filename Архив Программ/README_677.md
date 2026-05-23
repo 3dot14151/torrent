@@ -6,7 +6,7 @@ Wise Folder Hider Free 3.34.143 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708032.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ K-Lite Codec Pack Update 12.1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708030.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Norton 360 22.14.0.54 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708002.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VidCoder 2.30 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707943.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ XYplorer 16.90.0200 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707941.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Glarysoft Malware Hunter PRO 1.11.0.23 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707936.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AsceticSoft : BitmapCreator v.C Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707898.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Norton Internet Security 22.14.0.54 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707798.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Reg Organizer 8.11 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707797.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Adobe Media Encoder CC 2018 12.1.0.171 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707788.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ iZotope - Neutron Advanced 2.01.3071 VST, VST3, RTAS, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707786.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ AOMEI Backupper Technician Plus 4.1.0 (16.04.2018) RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707784.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Tipard Video Converter Ultimate 9.0.22 Portable by portable-rus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707759.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ YouTube Video Downloader PRO 5.7 (20160511) Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707729.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Chromium 84.0.4147.105 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707683.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Reg Organizer 8.11 Final RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707674.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Microsoft Windows 7 (x86-5in1 x64-4in1 DVD5) update 15.04.2018 by 1Pawel [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707673.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Boris FX Sapphire Plug-ins 11.0.2 x64 fo Adobe CC RePack by pooshock [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707662.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Radiocent 3.5.0.88 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707630.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ UC Browser 5.6.13108.1008 Portable by Sitego [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707618.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Microsoft Edge 84.0.522.58 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707582.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Autorun Organizer 4.42 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707575.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ PassMark PerformanceTest 10.0 Build 1008 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707526.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Reg Organizer 8.51 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707519.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ RarmaRadio Pro 2.70.3 Portable by portable-rus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707512.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6743.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707490.jpg" />
 </div>
 
 

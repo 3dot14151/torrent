@@ -6,7 +6,7 @@ Zoom Player MAX 13.7 Build 1370 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577874.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Waterfox 56.2.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577864.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ashampoo Photo Commander 16.0.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577860.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Emsisoft Emergency Kit 11.9.0.6508 DC 13.08.2016 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577848.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Dr.Web CureIt! 11.1.2 (11.08.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577843.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AdwCleaner 6.000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577834.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Sonible - smart:comp 1.2.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577783.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Sonible - smart:reverb 1.1.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577773.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ PrivaZer 4.0.44 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577772.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Master PDF Editor 5.4.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577709.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577702.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ MEmu 2.8.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577700.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Windows 7 Enterprise X86&x64 Summer Sunset Multiload v.10.08.01 Activated by~put
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_577664.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Opera GX 86.0.4363.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577632.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Glary Utilities Pro 5.189.0.218 RePack (& portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577631.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Sogou Explorer 6.0.5.17541 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577624.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Firefox Browser ESR 91.10.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577623.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ OCCT 11.0.0 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577607.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Bandicam 3.4.3.1262 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577572.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Adobe components: Flash Player 26.0.0.137 + AIR 26.0.0.127 + Shockwave 12.2.9.19
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577557.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ MAGIX Samplitude Pro X4 Suite 15.1.1.236 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577541.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Firefox Browser 101.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577502.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Sumatra PDF 3.4.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577499.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Mp3tag 3.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577495.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Mozilla Firefox 40.0 beta 7 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577451.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Auslogics BoostSpeed 9.1.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577435.jpg" />
 </div>
 
 

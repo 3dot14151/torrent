@@ -6,7 +6,7 @@ Afterfall: Insanity Extended Edition / Afterfall: Тень прошлого Ра
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498793.jpg" />
 </div>
 
 
@@ -40,7 +40,7 @@ Binary Domain + 2 DLC [Ru] (RePack/u2) 2012 l Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498789.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Transformers: Fall Of Cybertron / Трансформеры: Падение Ки�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496862.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Heavy Metal : F.A.K.K. 2 [Ru] (L) 2000
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496531.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Cross of the Dutchman (2015) [Ru/Multi] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495403.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Resident Evil: Revelations / Biohazard Revelations UE (2013) [Ru/En] (1.4/dlc) R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495345.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Red Number: Prologue (2017) [Ru/En] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495141.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Death to Spies / Смерть шпионам Дилогия  [Ru] (RePack) 2007-
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494942.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Binary Domain [Ru/En] (RePack/u2) 2012 l R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494878.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ GEARGUNS - Tank offensive (2016) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491778.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Peter Jackson's King Kong (2005) [Ru/Multi] (1.0.0.1) Repack R.G. Механик
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491507.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Fragmented (2017) [Ru/Multi] (17.8.1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491269.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Killer is Dead - Nightmare Edition (2014) [Ru/Multi] (1.0) Repack R.G. Games [Ni
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491228.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Metal Wolf Chaos XD (2019) [Ru/Multi] (1.02.1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488433.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (4851) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487572.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Deadpool / Дэдпул (2013) [Ru] (1.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487411.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Grand Theft Auto V (2015) [Ru/Multi] (1.0.678.1/upd1.33) SteamRip Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487178.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Pirates of the Caribbean: At World's End / Пираты Карибского м�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485399.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Way of the Samurai 4 (2015) [En] (1.06/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485141.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Volume (2015) [Ru/Multi] (1.1.04) Repack Let'sРlay [Triptych Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485134.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Swordbreaker: Back to The Castle (2020) [Ru/En] (1.23) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484676.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Medal Of Honor: Airborne (2007) [Ru] (1.3) Rip =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483172.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Transformers: Fall of Cybertron / Трансформеры: Падение Ки�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482017.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Conan Exiles (2018) [Ru/Multi] (1.0.104617) Repack R.G. Механики [Barbar
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481520.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/dlc/upd2) Repack R.G. Мех�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480830.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ THE UNCLEARNESS (2019) [En] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480590.jpg" />
 </div>
 
 

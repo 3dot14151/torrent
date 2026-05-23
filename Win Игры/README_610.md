@@ -1,29 +1,3 @@
-###  Публикация: 1820425   (631) от 27.09.2025
-
-Platypus Reclayed (2025) [Ru/Multi] (1.0.20) Repack FitGirl
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-22 года спустя после своего первого появления культовый инди-шутер Platypus возвращается - ещё лучше, чем когда-либо! Под руководством оригинального создателя Энтони Флэка вместе с талантливой командой Claymatic мы отправляемся в путешествие, чтобы перенести полюбившуюся классику в настоящее. Platypus Reclayed - это не просто обычный ремастер: это полная переработка.Тип издания: RepackРазработчик: Claymatic GamesЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:126AA1AE7F2949B34FC7AAC013C0513178E5278C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820400   (626) от 27.09.2025
 
 Mai: Child of Ages (2025) [Ru/Multi] (1.0) Repack FitGirl
@@ -32,7 +6,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_626.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Mystery Of Woolley Mountain (2019) [Multi] (14.3/dlc) License GOG [Complete 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_625.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.4/dlc) Repack Decepti
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_622.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Arctic Awakening (2025) [Ru/Multi] (Build 20032483) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_612.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Arctic Awakening (2025) [Ru/Multi] (Build 20032483) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_599.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack seleZen [Rei
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_587.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Arctic Awakening (2025) [Ru/Multi] (1.0.5) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_562.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Other s [Ultimate Bundle]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_523.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Kingdom Rush 5: Alliance TD (2024) [Ru/Multi] (6.00.114/dlc) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_455.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Worshippers of Cthulhu (2024) [Ru/Multi] (1.0.0.3) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_454.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Katanaut (2025) [Ru/Multi] (1.014) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_452.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_444.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Kingdom Rush 5: Alliance TD (2024) [Ru/Multi] (6.00.114/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_429.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Monolith (2023) [Ru/Multi] (1.1.7.001) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_426.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ One Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19955863
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_425.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Soundt
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_421.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Greedland (2025) [Ru/Multi] (1.0.36c) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_419.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Hades II (2024) [Ru/Multi] (1.131346) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_411.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.11564 HF2)/dlc) Repack Let'sРlay 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_405.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Circus of Pain (2025) [Ru/Multi] (1.02) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_393.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Platypus Reclayed (2025) [Ru/Multi] (1.1.7) Repack Let'sPlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_377.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ SOMA (2015) [Ru/Multi] (Build 20049349) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_361.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250923_1314-326654/dlc) Repack Decepti
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_358.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_353.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_298.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Deluxe Editio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:424D8C126DAA3E2C02E74432A4DE17952BAD4456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820620   (238) от 28.09.2025
+
+Icebound Secrets 2: Soul Hunter (2025) [En] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистического приключения Icebound Secrets. Какое зло скрывается в извращенном таинственном мире темных фей? Погрузитесь в мир, полный спрятанных предметов и тайн, где каждая подсказка приближает вас к истине. Сможет ли детeктив, рискуя столкнуться с опасностями и коварными испытаниями, освободить заточенные души и восстановить равновесие в этом мистическом (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6E14C7CD469435CFCD5F6744385350DC22F9A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

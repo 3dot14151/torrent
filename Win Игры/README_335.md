@@ -1,29 +1,3 @@
-###  Публикация: 1621732   (200733) от 26.03.2023
-
-Monster Energy Supercross - The Official Videogame 6 (2023) [Multi] (1.0) License TENOKE
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Грязь, пот, адреналин и веселье - раскройте в себе гонщика с Monster Energy Supercross 6! Ощутите незабываемые эмоции чемпионата Monster Energy Supercross 2022 с официальными мотоциклами, гонщиками и трассами. Настройте игру под себя и сделайте ее максимально реалистичной. В этом году Supercross 6 станет по-настоящему вашим!Тип издания: LicenseРазработчик: Milestone S.r.l.Жанр: Гонки, Спортивные игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B7CE6AB73DCABC91CE960FE275D6821DD02B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621752   (200724) от 26.03.2023
 
 Drone Swarm (2020) [Ru/Multi] (7377621) Scene SKIDROW
@@ -32,7 +6,7 @@ Drone Swarm (2020) [Ru/Multi] (7377621) Scene SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200724.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Have a Nice Death (2023) [Ru/Multi] (1.0.0.53022) Scene DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200703.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Plebby Quest: The Crusades (2020) [Multi] (1.61/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200625.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ SuccuSeka: Resist Succubus Temptation (2023) [Multi] (1.0a/dlc) License GOG [18+
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200613.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Total War: Three Kingdoms (2019) [Ru/Multi] (1.7.1/dlc) Repack FitGirl [Collecti
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_200583.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Arcane Path (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_200581.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Trials Rising (2019) [Ru/Multi] (Build 10831717/dlc) Repack FitGirl [Gold Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_200578.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.2/dlc) Repack FitGirl [20 Year 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_200575.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Terra Nil (2023) [Ru/Multi] (1.0.1) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200565.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Godstrike (2021) [Ru/Multi] (2023.02.13) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200536.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Boom Blaster (2020) [Ru/Multi] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200508.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Midnight Fight Express (2022) [Ru/Multi] (1.021) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200416.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Oxide Room 104 (2022) [Ru/Multi] (1.0.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200193.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Scene Rune [Digital Deluxe Editi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_200002.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199991.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Wanterlude [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199940.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0/dlc) Repack Let'sРlay [Premium Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199853.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0/dlc) Repack Wanterlude [Premium Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199746.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Necros [Digital Deluxe Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199744.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Kits (2023) [En] (1.0) Scene Tenoke
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199613.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Moviehouse (2023) [Ru/Multi] (1.4) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199567.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Switchball HD (2021) [Ru/Multi] (370) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199506.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Zodiacats (2022) [Ru/Multi] (1.0006) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199477.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Pets Hotel (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199449.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Rendezvous (2023) [En] (1.1.0.2) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199214.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Rendezvous - это уникальная адвенчура, действие к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C393684315B19C7FD66FAD39EA9944A7042886DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631642   (198871) от 06.05.2023
+
+Before I Forget (2020) [Multi] (1.0.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Before I Forget - детективная история, рассказывающая про женщину, которая находится одна в доме. Узнайте ее историю любви. Изучайте помещения в настоящем времени, чтобы она вспомнила свое прошлое. Воспоминания девушки постепенно тускнеют или смешиваются воедино. Геймплей Before I Forget можно описать как симулятор ходьбы, который содержит огромное количество пространственных (   Читать дальше...   )Тип издания: LicenseРазработчик: 3-Fold GamesЖанр: Приключение, СимуляторЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA4DFA39163AA291234950E32ED15EDA2A54FAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

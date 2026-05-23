@@ -1,29 +1,3 @@
-###  Публикация: 1339969   (264194) от 22.11.2019
-
-Brukel (2019) [Ru/Multi] (1.0.2) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Вы проникли в заброшенный дом детства вашей 92-летней бабушки. Вы были очарованы историями о ее юношеских годах на протяжении большей части своей жизни, но прошлым летом вы наконец решили записать ее воспоминания, чтобы поделиться этими историями с миром онлайн. Теперь все что вам нужно, это несколько фотографий дома и, возможно, некоторые предметы, которые все еще (   Читать дальше...   )Тип издания: RepackРазработчик: Bob De SchutterЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4964430258A36757A98474DB7CB65DD0B0DCBC44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241162   (264160) от 22.11.2019
 
 We Happy Few (2018) [Ru/Multi] (1.9.88874/dlc) Repack xatab
@@ -32,7 +6,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88874/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264160.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Sherlock Holmes: Nemesis / Шерлок Холмс против Арсена Л�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_264053.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Pandora: First Contact (2013) [Multi] (1.6.7/dlc) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264046.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Emily Wants to Play Too (2017) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264038.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dreadful Tales 2: The Fire Within / Жуткие истории 2: Огонь в
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263911.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Lost Grimoires 3: The Forgotten Well / Утерянные гримуары 3: З
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263731.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Phoning Home (2017) [Ru/Multi] (1.3) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263691.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Drift Zone (2017) [Multi] (1.0) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263649.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Tacoma (2017) [Ru/Multi] (121417) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263646.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Beat Cop (2017) [Ru/Multi] (1.1.744) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263639.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Masters of Anima (2018) [Ru/Multi] (1.0.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263475.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Sniper: Ghost Warrior (2010) [Multi] (1.2/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263461.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Sniper: Ghost Warrior 2 (2013) [Multi] (3.4.4/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263428.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Lost Grimoires 3: The Forgotten Well / Утерянные Гримуары 3: З
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263334.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Renowned Explorers: International Society (2015) [En] (1.0.483/dlc) License GOG 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263327.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ X Rebirth: Home of Light (2016) [Ru/Multi] (4.30/dlc) License GOG [Complete Edit
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263324.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Dark Tales 16: Edgar Allan Poe's. Ligeia / Тёмные истории 16: Эд�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263233.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Fictorum (2017) [En] (2.0.4) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263184.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Lift (2018) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263181.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Trine Anthology (2009-2015) [Ru/Multi] (1.09/2.12/2.01/1.11) Repack R.G. Мех�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262971.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Mystery Case Files 20: Black Crown (2019) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262892.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Dark City: London / Мрачный Город: Лондон (2017) [Ru] (1.0) Un
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262702.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Wonder Boy: The Dragon's Trap (2017) [Multi] (1.02.22) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262646.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dawn of Man (2019) [Ru/Multi] (1.3.3) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262569.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Vaporum (2017) [Ru/Multi] (Build 236) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262369.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Vaporum — однопользовательская ролевая игра о�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6672A8722F57839CEE9F7B004DC64FBB57FB23D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192985   (262368) от 19.12.2017
+
+IL-2 Sturmovik: Cliffs of Dover / Ил-2 Штурмовик: Битва за Британию (2017) [Ru/Multi] (4.50.0) License CODEX [Blitz Edition]
+
+>>Win Игры
+>>Simulation (Flight/Space)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262368.jpg" />
+</div>
+
+
+###  Подробнее
+
+1C Game Studios вместе с Team Fusion Simulations с гордостью объявляет о выпуске улучшенной и обновлённой BLITZ версии Ил-2 Штурмовик: Битва за Британию! Присоединитесь к одной из величайших воздушных битв XX века - Битве за Британию. Пронеситесь над скалами Дувра в истребителе "Спитфайр" или "Харрикейн" Королевских ВВС или же сядьте за штурвал (   Читать дальше...   )Тип издания: LicenseРазработчик: Team Fusion Simulations, 1C: Maddox GamesЖанр: Simulator (Flight Combat), 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD9BEDF92963419A1AE81CFBA41009230F7B3C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

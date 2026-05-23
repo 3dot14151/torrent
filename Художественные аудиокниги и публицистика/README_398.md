@@ -1,82 +1,3 @@
-###  Публикация: 1136926   (670634) от 24.05.2017
-
-Ларс Кеплер | Йона Линна (Книга 1). Гипнотизер (2017) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Литературный дебют супружеской пары, пишущей под псевдонимом Ларс Кеплер, произвел ошеломляющее впечатление на читателей и слушателей, критиков и издателей. Это первый шведский роман, с колоссальным успехом проданный за рубеж еще до публикации в Швеции.
-Роман «Гипнотизер» – только начало захватывающей детективной серии. В пригороде Стокгольма в раздевалке спортивного (   Читать дальше...   )Жанр: криминальный детектив, триллерИздательство: АудиокнигаПродолжительность: 17:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B6BBC386C3275D83CE1FB41ADECBE5292CA1F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136720   (670631) от 24.05.2017
-
-Виктор Суворов | Аквариум (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эта книга впервые приоткрыла секреты самой таинственной разведки мира – ГРУ. Книга выдержала более 70 изданий на 27 языках. «Аквариум» послужил основой для создания кинофильма, телесериала и многочисленных литературных подражаний. Старший лейтенант, командир танковой роты Виктор Суворов попадает в разведывательный отдел штаба 13-й армии, на подполковничье место. (   Читать дальше...   )Жанр: Исторический детективПродолжительность: 13:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B7897B990F54707B819D29E9B92F41E9E20F6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537023   (670592) от 14.03.2022
-
-Вадим Панов | Герметикон (Книга 9). Трио неизвестности (2022) [MP3, Александр Аравушкин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Хитрость против подлости, доблесть против ярости. Противники сошлись в прямом бою, исход которого непредсказуем. Загадочная Мартина позади, гибель Тринадцатой Астрологической экспедиции раскрыта, впереди – таинственная Близняшка, неизвестная Урия и тщательно охраняемые секреты Консула: несомненно – гения, несомненно – злодея. Помпилио Чезаре Фаха дер Даген Тур оказался (   Читать дальше...   )Жанр: Героическая фантастика, СтимпанкПродолжительность: 12:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F951A696F457AA3A4B9D72D8F67F101E418DCF21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536894   (670583) от 14.03.2022
 
 Николай Ярыгин | «Третий сын» Книга 1. Выжить вопреки всему (2021) [MP3, Макс Радман]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670583.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670242.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669873.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669860.jpg" />
 </div>
 
 
@@ -192,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669608.jpg" />
 </div>
 
 
@@ -218,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669560.jpg" />
 </div>
 
 
@@ -244,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669527.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669474.jpg" />
 </div>
 
 
@@ -296,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669291.jpg" />
 </div>
 
 
@@ -322,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669251.jpg" />
 </div>
 
 
@@ -350,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669244.jpg" />
 </div>
 
 
@@ -376,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669219.jpg" />
 </div>
 
 
@@ -402,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669214.jpg" />
 </div>
 
 
@@ -428,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669213.jpg" />
 </div>
 
 
@@ -454,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669209.jpg" />
 </div>
 
 
@@ -481,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669190.jpg" />
 </div>
 
 
@@ -508,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669170.jpg" />
 </div>
 
 
@@ -535,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669147.jpg" />
 </div>
 
 
@@ -561,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669146.jpg" />
 </div>
 
 
@@ -587,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669129.jpg" />
 </div>
 
 
@@ -613,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669053.jpg" />
 </div>
 
 
@@ -640,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668945.jpg" />
 </div>
 
 
@@ -666,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668536.jpg" />
 </div>
 
 
@@ -677,6 +598,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5277B7F51FAF6488616D50BFE080CA9A6D4CF05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030504   (668426) от 03.07.2016
+
+Стивен Кинг, Питер Страуб | Талисман (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчик по имени Джек Сойер и его мать, разорившаяся актриса, вынуждены переезжать с места на место, спасаясь от долгов и гонений. Джек как никогда остро ощущает, что его мать вскоре умрет, и не знает, как помочь ей. Но вскоре он узнает, что на него возложена миссия — открыть проход между мирами и найти загадочный Талисман. Только так он сможет спасти свою мать от (   Читать дальше...   )Жанр: фантастика, фентезиПродолжительность: 31:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBCE322FFDDF86E85C2EA0BA379D0380480B768C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224048   (668180) от 08.05.2018
+
+Кэтрин Уэбб | Незримое, или Тайная жизнь Кэт Морли (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кэтрин Уэбб – английская писательница, популярная во всем мире. Ее произведения переведены на двадцать четыре языка. Дебютный роман Уэбб «Наследие» (2010) стал номинантом национальной литературной премии «Писатель года», имел огромный успех и открыл для нее двери лучших издательств. Прежде чем серьезно заняться литературой, Кэтрин работала официанткой, помощницей (   Читать дальше...   )Жанр: Остросюжетный любовный романПродолжительность: 12:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AAD66DE7CA8C4F9FC3CF495C1BB957C52FB3BC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224085   (668109) от 08.05.2018
+
+Агата Кристи | Большая четверка (2018) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бессмертная классика мирового детектива! Королева Агата!
+В дом Эркюля Пуаро вламывается изможденный человек в выпачканном костюме. Он едва живой. Несколько капель коньяка приводят его в чувство. Человек пытается что-то объяснить, но сил его хватает лишь на то, чтобы несколько раз написать на листе бумаги большую цифру «4»…Жанр: ДетективИздательство: АудиокнигаПродолжительность: 06:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3165289D427CD23D2586EDBE2E1787E827DBEF07
 ```
 
 https://mybot314.ru/tekegram_catalog/

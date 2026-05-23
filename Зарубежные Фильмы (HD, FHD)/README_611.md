@@ -1,55 +1,3 @@
-###  Публикация: 945514   (432819) от 10.10.2015
-
-128 ударов сердца в минуту / We Are Your Friends (2015) WEB-DL [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лос-Анджелес, Калифорния — это мир бесконечных возможностей днем и нереальных голливудских вечеринок ночью. Оба этих мира стремится покорить молодой DJ по имени Коул, неустанно работающий над своим пробивным треком, который должен взорвать весь мир. Его замечает и берет под крыло опытный продюсер Джеймс, но все становится крайне запутанным, когда Коул влюбляется (   Читать дальше...   )Производство: Великобритания, Франция, СШАЖанр: Драма, мелодрама, музыкаРежиссер: Макс ДжозефАктеры: Зак Эфрон, Уэс Бентли, Эмили Ратаковски, Джонни Уэстон, Шайло Фернандес, Алекс Шеффер, Джон Бернтал, Алисия Коппола, Уайли М. Пикетт, Джон АбрахамсПеревод: Дублированный (iTunes)Продолжительность: 01:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A504507B92F17F9035BF38F5A647334909432679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944939   (432801) от 10.10.2015
-
-128 ударов сердца в минуту / We Are Your Friends (2015) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лос-Анджелес, Калифорния - это мир бесконечных возможностей днем и нереальных голливудских вечеринок ночью. Оба этих мира стремится покорить молодой DJ по имени Коул, неустанно работающий над своим пробивным треком, который должен взорвать весь мир. Его замечает и берет под крыло опытный продюсер Джеймс, но все становится крайне запутанным, когда Коул влюбляется (   Читать дальше...   )Производство: Великобритания, Франция, СШАЖанр: драма, мелодрама, музыкаРежиссер: Макс ДжозефАктеры: Зак Эфрон, Уэс Бентли, Эмили Ратаковски, Джонни Уэстон, Шайло Фернандес, Алекс Шеффер, Джон Бернтал, Алисия Коппола, Уайли М. Пикетт, Джон АбрахамсПеревод: Дубляж (iTunes)Субтитры: отсутствуютПродолжительность: 01:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A9833E4C962C2497DCB1A7F9A9F40CA28A0BE65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945492   (432793) от 10.10.2015
 
 Сквозь снег / Snowpiercer (2013) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432793.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432581.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432576.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432404.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432351.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432288.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432267.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432247.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432234.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432190.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432176.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432058.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432015.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431964.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431905.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431904.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431817.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431680.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431554.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431548.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431462.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431435.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431421.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431309.jpg" />
 </div>
 
 
@@ -670,6 +618,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D66E7E6BDD0BCCA9CA80E2787401BD86A0EABCDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571515   (431291) от 22.08.2022
+
+От рассвета до заката (Американская резня) / American Carnage (2022) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правительство отбирает молодых людей для участия в эксперименте на выживание в стенах специального учреждения. Только выполнив странные желания пациентов учреждения, они смогут обрести свободу. Брату и сестре Джей Пи и Лили, и их новым знакомым предстоит узнать, в чем суть эксперимента, и что скрывает руководство. Что на самом деле движет пациентами, и что за чертовщина (   Читать дальше...   )Производство: СШАЖанр: Комедия, ужасы, детективРежиссер: Диего ХалливисАктеры: Хорхе Лендеборг мл., Дженна Ортега, Аллен Мальдонадо, Эрик Дэйн, Бретт Каллен, Хорхе Диас, Белла Ортис, Юмари Моралес, Катрин МакКафферти, Эндрю КэмпферПеревод: Многоголосый профессиональный (GoLTFilm)Язык озвучки: Русский, украинский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9928DB4A228C5FB3E374A65EA47A0BC8BE4173C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 319575   (431282) от 22.08.2022
+
+Четыре пера / The Four Feathers (2002) BDRip [H.264/1080p-LQ] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431282.jpg" />
+</div>
+
+
+###  Подробнее
+
+1884 год. Перед самой отправкой британских войск в Судан молодой офицер Гарри Фэвершем подает в отставку. Его близкие и родные воспринимают этот поступок как проявление трусости, и Гарри, чтобы спасти свою честь, принимает решение тайно отправиться на африканский континент…
+
+У Гарри было все: отец — генерал, любимая девушка, лейтенантская должность в непобедимой (   Читать дальше...   )Производство: Великобритания, США / Miramax Films, Paramount PicturesЖанр: драма, мелодрама, приключения, военныйРежиссер: Шекхар КапурАктеры: Хит Леджер, Кейт Хадсон, Уэс Бентли, Джимон Хонсу, Крис Маршалл, Майкл Шин, Руперт Пенри-Джонс, Тим Пиготт-Смит, Даниэль Кальтаджироне, Джеймс КосмоПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 02:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66773B44CCFA885729C1C9EA1EC3374FEFEE448E
 ```
 
 https://mybot314.ru/tekegram_catalog/

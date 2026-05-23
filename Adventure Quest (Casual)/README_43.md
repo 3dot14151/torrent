@@ -6,7 +6,7 @@ Spirit of Revenge 6: Unrecognized Master / Месть духа 6: Непризн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389638.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dark Parables 16: Portrait of the Stained Princess (2019) [En] (1.0) Unofficial 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387182.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Midnight Mysteries 6: Ghostwriting / Тайны прошлого 6: Литера
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386805.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Darkness and Flame 4: Enemy in Reflection (2019) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383220.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Legacy 3: Witch Island Origin / Наследие 3: Происхождение �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383078.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Halloween Stories: Invitation / Хэллоуин: Приглашение на в
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382833.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Halloween Stories 4: Defying Death (2020) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380892.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Grim Facade 12: The Black Cube / За гранью жестокости 12: Чё
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379302.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Sin (2021) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378592.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377781.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Lost Lands 6: Mistakes of the Past / Затерянные земли 6: Ошиб
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377158.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Hunt for Red Panda / Охота за Красной Пандой (2015) [Ru/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377025.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Chimeras 8: Heavenfall Secrets / Химеры 8: Секреты Хэвенфол
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376612.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Keeper of Antiques: The Revived Book / Антиквар: Книга кошм
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376601.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Surface 6: Game of Gods / За гранью: Игра богов (2014) [Ru] Uno
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374533.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Fatal Evidence: Cursed Island / Роковое доказательство. П�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374366.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Modern Tales: Age of Invention / Сказки Нашего Времени: Эр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373803.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Halloween Stories 2: Black Book / Хэллоуин 2. Проклятие чер�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372540.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Paranormal Files 4: Hook Man's Legend (2019) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372258.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Dark Romance 13: Vampire Origins / Мрачная история 13: Приро�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369429.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Grim Tales 19: Heritage / Страшные сказки 19: Наследие (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369359.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ European Mystery 3: Flowers of Death / Придворные тайны 3: Цве
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367325.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Chimeras 6: Blinding Love / Химеры 6: Слепящая любовь (2017)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367314.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Maze 3: Nightmare Realm / Лабиринт 3: Царство кошмара (201
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367311.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Halloween Chronicles 3: Cursed Family (2020) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367177.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Silent Nights 2: Childrens Orchestra (2014) [En] Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366729.jpg" />
 </div>
 
 

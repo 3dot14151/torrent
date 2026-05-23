@@ -6,7 +6,7 @@ Total Commander 9.0a Extended 17.1 Full | Lite RePack (& Portable) by BurSoft [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918699.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ UVScreenCamera 5.9.0.301 Pro RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918695.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NFOPad 1.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918681.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ MEGA Sync Client 2.7.1 (ad50d) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918674.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ TheAeroClock 7.33 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918664.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Movavi Video Converter 21.5.0 RePack (& Portable) by TryRooM [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918650.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918635.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Gilisoft Video Editor 7.2.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918560.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ R-Studio 8.2 Build 165337 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918554.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Gilisoft USB Lock 5.6.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918547.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Adobe After Effects CC 2017 (v14.1.0) Multilingual Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918540.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Acronis True Image 21.0.6116 + Universal Restore 11.5.40028 + Disk Director 12.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918536.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Blackmagic Design DaVinci Resolve Studio 17.3 Build 14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918510.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ uTorrent 3.5.5 Build 46074 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918502.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Windows 10 (v1909) x64 HSL/PRO by KulHunter v4.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918497.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Tor Browser Bundle 9.0.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918490.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ FastStone Image Viewer 7.5 RePack (& Portable) by elchupakabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918477.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ PCMedik 6.1.31.2011 [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918433.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Windows 10 Enterprise LTSC 1809 (10.0.17763.316 - March 2019) (x64-x86 AIO) by A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918379.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918375.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ DriverPack Solution Online 17.4.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918371.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918357.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ PCMedik 6.1.24.2011 [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918310.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Total Commander7.56a Vi7Pack1.77 Final +IconsPakv4  [Русский,Англий
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918308.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Gilisoft USB Stick Encryption 6.0.0 DC 02.02.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918247.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Windows 10 Enterprise LTSC 1809 (Build 17763.1098) x86/x64 by Sergei Strelec [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918238.jpg" />
 </div>
 
 

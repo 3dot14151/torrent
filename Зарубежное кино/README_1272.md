@@ -1,55 +1,3 @@
-###  Публикация: 565104   (401006) от 25.10.2012
-
-Глаз шторма / The Eye of the Storm (2011) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Элизабет Хантер - женщина с большой буквы; именно так, властно и эффектно, она прожила жизнь, теперь подходящую к концу. Элизабет прикована к постели, дни её сочтены, взрослые дети — трагикомичный дуэт невротичной неудачницы и жеманного ловеласа, готового закрутить интрижку с сиделкой — приезжают прощаться. Но Хантер легко не сдаётся…Жанр: ДрамаРежиссер: Фред СкеписиАктеры: Джеффри Раш, Шарлотта Рэмплинг, Джуди Дэвис, Александра Чеписи, Мария Теодоракис, Джэйми Тимони, Хелен Морс, Робин НевинПеревод: Профессиональный (многоголосый)Продолжительность: 01:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E32686F2EF089E313781975C964D31EC131EFAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565208   (400971) от 25.10.2012
-
-История вечной любви / Ever After: A Cinderella Story (1998) [720p]  BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Это не банальная история Золушки, которая знакома всем с детства. Для своего шестнадцатого века Даниэлла — явление уникальное. Она не только привлекательна, но и по — мальчишески ловка и энергична. Обладая острым умом и чувством независимости, Даниэлла не ждет, когда принц ее выручит. Напротив, она сама приходит к нему на помощь и даже в нужный момент спасает ему жизнь, перенеся на своей спине в безопасное место. И уж если ей приходится прибегнуть к чьей — то помощи, то помогает ей не добрая фея, а самый настоящий Леонардо да Винчи. Однако хрустальные туфельки Даниэлла действительно надевает…Жанр: Драма, Мелодрама, КомедияРежиссер: Энди ТеннантАктеры: Дрю Бэрримор, Анжелика Хьюстон, Дугрей Скотт, Патрик Годфри, Меган Доддс, Мелани Лински, Тимоти Уэст, Джуди Парфитт, Йерун Краббе, Ли Инглби, Кейт Лэнсбери, Мэтилок Гиббс, Уолтер Спэрроу, Жанна Моро, Анна Магвайр, Ричард О’Брайэн, Питер Ганн, Джорг Стэдлер, Эндрю Хендерсон, Тоби Джонс, Вирджиния Гарсия, Аль Эштон, Марк Льюис, Рикардо Круз, Джон Уолтерс, Элизабет Эрл, Алекс Пули, Джанет Хенфри, Урсула Джонс, Аманда Уокер, Рапам Максвелл, Тони Дойл, Кристиан Марк, Эльвира СтивенсонПеревод: Многоголосый закадровыйЯзык субтитров: РусскиеПродолжительность: 02:01:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 565011   (400904) от 25.10.2012
 
 Тайна клуба Цунами / Tsunami Beach Club (2008) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400904.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400902.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400895.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400855.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400827.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400823.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400821.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400791.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400786.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400778.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400746.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400710.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400701.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400383.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400349.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400295.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400199.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400198.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400121.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400119.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400023.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400017.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399991.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399968.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1CB9BF199E14AC08F8ADDA9E0BA00D146F25E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566055   (399945) от 26.10.2012
+
+Игрок пинг-понга/ Ping Pong Playa (2007) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина повествует о Кристофере Уонге, молодом человеке, чьи мечты стать баскетболистом потерпели крах. Он начинает учиться играть в пинг-понг и попадает на чемпионат по пинг-понгу Golden Cock в Калифорнии, после того как его старший брат и мать попадают в автокатастрофу.Жанр: Комедия, СпортРежиссер: Джессика ЮАктеры: Джимми Тсаи (Jimmy Tsai), Эндрю Во (Andrew Vo), Хари Пэйтон (Khary Payton), Джим Лау (Jim Lau), Роджер Фэн (Roger Fan), Элизабет Санг (Elizabeth Sung), Хавин Рейд (Javin Reid), Кевин Чунг (Kevin Chung)Перевод: Профессиональный (двухголосый)Продолжительность: 01:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA781AE6D29026901A50AFF38A7200BED3CE4A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565944   (399933) от 26.10.2012
+
+Идеальный студент / The perfect student (2011) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда на территории кампуса была зверски убита девушка, все подозрения пали на Джордан. Николь - профессор криминалист, понимает что полиция идет по ложному следу, пытаясь взвалить всю вину на невиновного. Она начинает собственое расследование чтобы доказать невиновность Джордан. Но не всё так просто, как кажется на первый взгляд...Жанр: Триллер, Криминал, ДетективРежиссер: Майкл ФейферАктеры: Наташа Хенстридж, Бри Грант, Джози Дэвис, Джей Пикетт, Майкл Боуэн, Карлсон Янг, Александр ДиПерсиа, Уилсон Бетел, Джон Колтон,Николь МурПеревод: Профессиональный (двуголосый, закадровый)Продолжительность: 01:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75750AB443249D6E0FF618587655B5A1D0F95D50
 ```
 
 https://mybot314.ru/tekegram_catalog/

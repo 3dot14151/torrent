@@ -1,30 +1,3 @@
-###  Публикация: 1834959   (250625) от 04.11.2025
-
-AltSnap 1.66 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Лёгкая и бесплатная утилита на русском языке AltSnap - это утилита, облегчающая управление окнами на компьютере. Теперь вы можете удерживая курсор мыши в произвольной точке окна, легко перемещать это окно по экрану.
-Обычно, чтобы переместить или изменить размер окна, нужно щелкнуть на его строке заголовка. С помощью AltSnap всё, что вам нужно сделать — это зажать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4387A1FB4027CD048B8BDCA8AB2169C617D094C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541744   (244050) от 04.04.2022
 
 AMP Font Viewer 3.86 + Portable [Multi]
@@ -33,7 +6,7 @@ AMP Font Viewer 3.86 + Portable [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244050.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ PeStudio 9.43 Portable [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232967.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ GameMaker 2022.8.1.37 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232958.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ Stardock DeskScapes 8.51 [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217279.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ Atmosphere Deluxe 7.1 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208715.jpg" />
 </div>
 
 
@@ -164,7 +137,7 @@ Digimizer 6.3.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205999.jpg" />
 </div>
 
 
@@ -192,7 +165,7 @@ Windows DesktopPack 22.10 [Multi/Ru]  (Авторская раздача)
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204733.jpg" />
 </div>
 
 
@@ -219,7 +192,7 @@ EarthView 7.7.1 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199143.jpg" />
 </div>
 
 
@@ -245,7 +218,7 @@ Fujikura Data connection 12 series 1.0.3.0 + Manual [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198308.jpg" />
 </div>
 
 
@@ -271,7 +244,7 @@ X-Mouse Button Control 2.20.5 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196548.jpg" />
 </div>
 
 
@@ -297,7 +270,7 @@ Aura (Аура леса) 2.8.10m.216 RePack (& Portable) by elchupacabra + MP3 �
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174258.jpg" />
 </div>
 
 
@@ -323,7 +296,7 @@ ADB AppControl 1.8.2 Extended portable by GPFault [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172171.jpg" />
 </div>
 
 
@@ -350,7 +323,7 @@ Tenorshare 4uKey for Android 2.2.2.4 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163099.jpg" />
 </div>
 
 
@@ -377,7 +350,7 @@ Multi Image Kitchen 3.8.0 |DC 29.11.2021| [Multi/Ru] (Обновляемая а�
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148941.jpg" />
 </div>
 
 
@@ -405,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139391.jpg" />
 </div>
 
 
@@ -431,7 +404,7 @@ f.lux v4.134 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114559.jpg" />
 </div>
 
 
@@ -457,7 +430,7 @@ Find Same Images OK 5.41 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110879.jpg" />
 </div>
 
 
@@ -483,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86646.jpg" />
 </div>
 
 
@@ -509,7 +482,7 @@ Microsoft Windows Dancer + Windows XP Media Center Edition 2005 Screensavers [En
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83164.jpg" />
 </div>
 
 
@@ -543,7 +516,7 @@ Text Editor Pro 32.1.1 + Portable + Bonus [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67359.jpg" />
 </div>
 
 
@@ -569,7 +542,7 @@ VapeCalc+ Reborn 3.1.3000 + Portable [Ru/En/De/Bel] (Авторская обно
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63559.jpg" />
 </div>
 
 
@@ -597,7 +570,7 @@ FPS Monitor 5472 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59373.jpg" />
 </div>
 
 
@@ -625,7 +598,7 @@ NonCompressibleFiles 4.71 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57311.jpg" />
 </div>
 
 
@@ -652,7 +625,7 @@ Freeplane 1.11.14 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55916.jpg" />
 </div>
 
 
@@ -678,7 +651,7 @@ Hallo northern sky 4.3.2 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53112.jpg" />
 </div>
 
 
@@ -691,6 +664,32 @@ Hallo Northern Sky (HNSKY) – профессиональный планетар
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D29C3D3CF945ED2110A5F935B1F115ABEBC3ACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743533   (46618) от 16.08.2024
+
+Unit Converter 16.08.2024 [Multi]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46618.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью программы Unit Converter вы можете преобразовать более 4500 единиц измерения. К ним относятся, например, меры длины, веса, энергии, электрического напряжения и частоты.Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D610B1269A52174C6EB70BCC6420BCD4358B393D
 ```
 
 https://mybot314.ru/tekegram_catalog/

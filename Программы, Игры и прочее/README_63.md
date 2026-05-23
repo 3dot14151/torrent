@@ -1,55 +1,3 @@
-###  Публикация: 1149899   (596424) от 13.07.2017
-
-Мои заметки - Блокнот v1.16.1 Ad-Free [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Простой блокнот, где можно легко вести записи в дневник или записную книжку.Тип издания: Пиратка (Разблокирована, без рекламы)Релиз состоялся: 12.07.2017Разработчик: LiteWhiteПоддерживаемая ОС: Android 2.3.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E5287DA20627DF722A8E63F5002C54059C21C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914930   (596369) от 03.07.2015
-
-Рецепты пиццы Pro 1.1 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лучшее приложение для выпечки пиццы дома! С помощью этого приложения вы сможете приготовить пиццу на ваш вкусТип издания: FreeРелиз состоялся: 03.07.15Разработчик: VGDG Advanced TechnologyПоддерживаемая ОС: Android 2.2 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE4667FF768A1DDC6A872EA3D2F7A48EEEA568F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914812   (595849) от 03.07.2015
 
 Superuser 3.1.3 [Ru]
@@ -58,7 +6,7 @@ Superuser 3.1.3 [Ru]
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595849.jpg" />
 </div>
 
 
@@ -87,7 +35,7 @@ Prince of Persia Classic 2.0.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595671.jpg" />
 </div>
 
 
@@ -114,7 +62,7 @@ Garmin: Basarsoft NavCity Turkey 2016 T3 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595160.jpg" />
 </div>
 
 
@@ -140,7 +88,7 @@ Isoland v2.0.2 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594940.jpg" />
 </div>
 
 
@@ -167,7 +115,7 @@ Garmin: Ukraine Topo Map v1.07 [Ru/Multi]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594819.jpg" />
 </div>
 
 
@@ -193,7 +141,7 @@ Chess Fusion 2.2 [En/Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594412.jpg" />
 </div>
 
 
@@ -219,7 +167,7 @@ Aquarium Live Wallpaper v1.7 (Mod Ad Free) [En] - Живые обои с акв�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594407.jpg" />
 </div>
 
 
@@ -245,7 +193,7 @@ SeeTV.tv v1.03 Ad-Free [Ru/Ua/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593603.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593163.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592653.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592595.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592593.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592578.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ Overkill 3 1.3.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592234.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ Super Backup Pro: SMS&Contacts 1.8.07.03 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592197.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ The Weather Channel 5.6.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591849.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ Garmin: City Navigator India NT 2015.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591824.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ Garmin: Onroute MotorEurope 2015 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591806.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ Garmin: TOPO France v4.01 PRO [Fr]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591760.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591720.jpg" />
 </div>
 
 
@@ -587,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591561.jpg" />
 </div>
 
 
@@ -613,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591552.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ Randomer / Генератор случайных чисел 1.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591344.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591324.jpg" />
 </div>
 
 
@@ -679,6 +627,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A5151C8DFE21C4A00831D006DFD023A7EACFE93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915722   (591291) от 07.07.2015
+
+Шахматы - Играй и Учись v3.1.18 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шахматы - Играй и Учись - известная на весь мир логическая игра теперь будет и на ваших мобильных гаджетах. Игра позволяет не только играть с компьютером на различных уровнях сложности, но ещё и обучаться её основам. Интуитивно понятная система обучения позволит вам быстро понять основы игры и эффективно обучится играть в шахматы. Помимо игры с компьютером вы можете (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 17 мая 2015 г.Разработчик: Chess.comПоддерживаемая ОС: Android: 2.3+Жанр: Board gameЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:664D970C02A8D97223D11CA07F9F841E80A61C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916116   (591277) от 07.07.2015
+
+GPS АнтиРадар (радар-детектор) 1.2.2 [Ru]
+
+>>Программы, Игры и прочее
+>>Навигация для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591277.jpg" />
+</div>
+
+
+###  Подробнее
+
+GPS АнтиРадар работает как радар-детектор и предупредит Вас о стационарных камерах (камеры контроля скорости) и радарах ДПС на Вашем пути. Если при приближении к камере Ваша скорость будет выше разрешенной более чем на 19 км/ч, то приложение будет подавать предупреждающие звуки. А это важно, т.к. теперь штраф за превышение на >20 км/ч уже начинается с 500 рублей.Тип издания: ПираткаРелиз состоялся: 24 марта 2015 г.Разработчик: Oleg KorchaginПоддерживаемая ОС: Android: 2.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD2F731B8A040493BB9EC2A1F00B7925D370B4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

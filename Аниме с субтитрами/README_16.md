@@ -6,7 +6,7 @@ Soukou Kihei Votoms: Pailsen Files - Gekijouban | Armored Trooper Votoms: Pailse
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011337.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Soukou Kihei Votoms: Red Shoulder Document - Yabou no Roots | Armored Trooper Vo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011335.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Soukou Kihei Votoms: The Last Red Shoulder | Armored Trooper Votoms: The Last Re
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011333.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Soukou Kihei Votoms: Pailsen Files | Armored Trooper Votoms: Pailsen Files | Б�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011331.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Soukou Kihei Votoms: Gen-ei Hen | Armored Trooper Votoms: Phantom Arc | Брон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011328.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Soukou Kihei Votoms: Big Battle | Armored Trooper Votoms: Big Battle | Брон�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011325.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Soukou Kihei Votoms | Armored Trooper Votoms | Бронированные вои
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011315.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Eyeshield 21 / Забрало 21 [2005, TV, 145 из 145] TVRip 480p Raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011255.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Ame-iro Cocoa: Rainy Color e Youkoso / Какао цвета дождя [ТВ-2]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011251.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Kuroko no Basuke 3rd Season | Баскетбол Куроко [ТВ-3] [2015, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011183.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Zoku Touken Ranbu: Hanamaru | Танец мечей: Цветочный круг
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011140.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Kamisama Hajimemashita | Kamisama Kiss | Очень приятно, Бог [2012
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011106.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Kuroko no Basuke / Kuroko's Basketball / Баскетбол Куроко [2012, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011026.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Jouran: The Princess of Snow and Blood | Joran: The Princess of Snow and Blood |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010886.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Pop Team Epic | Попсовый эпос [2018, TV, 12 эп.] BDRip 1080p 10-bi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010674.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Shakunetsu Kabaddi | Burning Kabaddi | Пламенное кабадди [2021, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010424.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Mashiro no Oto | Those Snow White Notes | Чистый звук [2021, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010387.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Uchuu Enban Dai-Sensou | The Great Battle of the Flying Saucers | Великая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010333.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Kore ga UFO da! Soratobu Enban | That is an UFO! The Flying Saucer | Это НЛ
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010305.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot Zenpen - Wandering; 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010286.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Back Arrow | Бэк Арроу [2021, TV, 24 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010234.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Devilman: Crybaby | Devilman Crybaby | Человек-дьявол: Плач [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010165.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Seven Knights Revolution: Eiyuu no Keishousha | Революция Семи ры
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010069.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Yakunara Mug Cup mo / Let's Make a Mug Too / Давайте тоже сдела�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009905.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Tensura Nikki: Tensei Shitara Slime Datta Ken | The Slime Diaries: That Time I G
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009753.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ SSSS.Dynazenon | Диназенон [2021, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009612.jpg" />
 </div>
 
 

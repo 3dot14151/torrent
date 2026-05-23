@@ -1,82 +1,3 @@
-###  Публикация: 551441   (452431) от 24.09.2012
-
-Александр Сергеевич Пушкин | Полтава (1981) [MP3, Алексей Консовский и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Богат и славен Кочубей,  / Его луга необозримы»,  он владеет многими сокровищами,  но главное богатство Кочубея — его дочь Мария,  равной которой нет во всей Полтаве.  Не одной красотой славится Мария,  но всем известен ее кроткий нрав.  Множество женихов сватается к ней,  но сердце Марии неприступно.  И вот сам гетман Мазепа шлет за ней сватов.  Гетман уже стар,  но в нем (   Читать дальше...   )Жанр: Поэма
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D50F881A04BB2C37114026807B22DE859E95051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163203   (452407) от 04.09.2017
-
-Елена Петрова | Проклятое везение (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Попаданки бывают разные. Женька, конечно, об этом читала. Кому-то из них везет попасть в «волшебный мир» с принцами, драконами и единорогами, стать великим магом или на худой конец какой-нибудь принцессой! А вот кому-то не везет… И что делать, если ты, симпатичная, неглупая и вполне успешная студентка журфака, вдруг на самом деле попала… и вовсе не в волшебную сказку? (   Читать дальше...   )Жанр: Космическая фантастика, попаданцыПродолжительность: 10:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFBC71A17BBBAE51BAB4DD48B0F891D0BF53934
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163044   (452388) от 04.09.2017
-
-Владимир Васильев | Богу - богово (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фантазия на тему "Миллиарда лет до конца света" А.Н. и Б.Н. Стругацких и "Трудно стать богом" Вячеслава Рыбакова.
-Опубликовано в сборнике "Время учеников", АСТ, Москва, 1997 г."Рыбаков с самого начала своего творчества находится в числе ведущих писателей фантастов СССР, а я - один из многих "провинциальных" писателей, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 02:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB166C212AB6AB1FA30ADDA2D621057CCC5A3017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322045   (452372) от 27.08.2019
 
 Кристофер Прист | Опрокинутый мир (2019) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452372.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452266.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451967.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451795.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451709.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451707.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451706.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451701.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451663.jpg" />
 </div>
 
 
@@ -320,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451661.jpg" />
 </div>
 
 
@@ -346,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451660.jpg" />
 </div>
 
 
@@ -372,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451601.jpg" />
 </div>
 
 
@@ -398,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451599.jpg" />
 </div>
 
 
@@ -424,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451514.jpg" />
 </div>
 
 
@@ -450,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451454.jpg" />
 </div>
 
 
@@ -477,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451452.jpg" />
 </div>
 
 
@@ -503,7 +424,7 @@ SadSlim | Хостел (2022) [MP3, Андрей Балдук(Абаддон)]
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451348.jpg" />
 </div>
 
 
@@ -529,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451220.jpg" />
 </div>
 
 
@@ -555,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451208.jpg" />
 </div>
 
 
@@ -584,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451118.jpg" />
 </div>
 
 
@@ -610,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450965.jpg" />
 </div>
 
 
@@ -636,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450588.jpg" />
 </div>
 
 
@@ -662,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450566.jpg" />
 </div>
 
 
@@ -673,6 +594,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D26FF93965EAA56CC7D2DF727F6D3DDE7C5EEB24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322285   (450509) от 28.08.2019
+
+Иван Любенко | Клим Ардашев (Книга 10). Супостат (2018) [MP3, Максим Горбачев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петроград, февраль 1915 года. Клим Пантелеевич Ардашев, статский советник МИДа, узнает от своей жены о несчастье, постигшем ее модистку, работавшую в ателье «Мадам Дюклэ». Белошвейка Анна Извозова подверглась нападению неизвестного. Ее усыпили хлороформом и ослепили, оставив на лице глубокие рваные раны. Поразительно было то, что их «рисунок» напоминал перевернутые (   Читать дальше...   )Жанр: Исторический детективЯзык: 24/7Продолжительность: 7:26:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30FC3FE3181376704E891ECF13283D27D06ECC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322232   (450506) от 28.08.2019
+
+Александр Плетнёв | Фактор умолчания (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беспримерный поход «Петра Великого» завершился с приходом корабля в Камрань. И крейсеру необходимо перейти в метрополию, непосредственно в базу флота, в СССР.
+А в Вашингтоне, в ЦРУ, в штабе флота, уже скроили планы и…
+И маневрируют в позиции авианосцы, подвешиваются ракеты под крылья самолетов, выходят на рубежи субмарины. На что рассчитывают? Чего хотят? Сатисфакции? (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 10:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF0B5F9DB2F0D366249AED9E0B8FD48EB4ACA8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322300   (450505) от 28.08.2019
+
+Иван Любенко | Клим Ардашев (Книга 11). Киевский лабиринт (2019) [MP3, Максим Горбачев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450505.jpg" />
+</div>
+
+
+###  Подробнее
+
+1916 год. Предвкушая долгожданный отдых, статский советник Ардашев приезжает в Киев погостить у родственников жены. И все, казалось бы, начинается неплохо… На следующий день Клим Пантелеевич покупает супруге дорогой подарок в ювелирном салоне — золотые часы, украшенные драгоценными камнями. Однако уже наутро обнаруживается, что часы вышли из строя. Похоже, Ардашеву (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F47ADB76268683084657B0134B71FC6553449B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

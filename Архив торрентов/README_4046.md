@@ -6,7 +6,7 @@ Internet Download Manager 6.38 Build 14 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184127.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Remote Desktop Manager Enterprise 2020.3.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184112.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MCS Drivers Disk 22.11.8.1756 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184099.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ LosslessCut 3.27 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184086.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Fedora 37 Workstation Server Spins [x86_64] 10xDVD, 2xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184083.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ WSCC (Windows System Control Center) 4.0.5.7 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184073.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ AVS Document Converter 4.2.5.270 Portable by Spirit Summer [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184049.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Microsoft Windows and Office ISO Download Tool 8.42.0.148 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183996.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Monkey's Audio 10.23 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183955.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Opera GX 102.0.4880.74 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_183950.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ XYplorer 25.00.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183925.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ jetAudio HD Music Player Plus v11.2.7 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183920.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ WinBin2Iso 6.21 Build 001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183906.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Vivaldi 6.2.3105.54 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_183891.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Soft Crash - Your Last Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <EBM, Ele
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183888.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Reg Organizer 8.57 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183880.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Process Lasso Pro 12.4.0.44 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183871.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Mullvad Browser 12.5.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183866.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Draw.io 22.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_183849.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Google Chrome 117.0.5938.132 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183831.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183826.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Pale Moon 31.4.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183819.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ AnyBurn 5.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183808.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Fort Firewall 3.9.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183799.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Auslogics Duplicate File Finder 10.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183771.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Complete Internet Repair 9.1.3.6322 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183769.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Annie Moses Band - The Art Of The Love Song (2016) [MP3|320 кб/с] <Classical 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860711.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Teresa Berganza, Plácido Domingo, London Symphony Orchestra - Georges Bizet: Ca
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860709.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Magical World Of Melodies. The Most Beautiful Romantic Symphonies (1995) 3C
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860708.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Chopin - 51 Mazurkas (Arthur Rubinstein) (1999) [FLAC|Lossless|tracks] <classica
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860539.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - The Most Popular Classical Music In The World...Ever! (2008) 6CD, Compilati
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860528.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Vangelis - Juno to Jupiter (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Modern-Classic
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859430.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Nikolaus Harnoncourt Chamber Orchestra of Europe - Dvorak - Slavonic Dances (200
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859191.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Magical World Of Melodies. Orchestral Highlights. (1995), 3CD [FLAC|Lossles
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859100.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The London Orion Orchestra - Pink Floyd's Wish You Were Here Symphonic (2016) [F
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858983.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858864.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sarah Alainn - Anima (2017) [FLAC|Lossless|tracks] <Classical Crossover>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858776.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Clifford Curzon, Budapest Strig Quartet - Brahms - Piano Quintet in F minor. Dvo
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857497.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Janet Baker, Geoffray Parsons - Baker (2002) "BBC Legends" Series [FLAC|Lossless
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857434.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Alessandro de Marchi - Vivaldi: Concerto Rustico (2006) [FLAC|Lossless|image + .
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857262.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Шедевры русской классики. (2002) [FLAC|Lossless|image
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857183.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Christian Zimmermann - Lauten- und Gitarren-Musik aus dem Barock (2002) [FLAC|Lo
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855643.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Chatham Baroque - Reel of Tulloch: Baroque Music of Scotland and Ireland (2001) 
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855639.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ex Cathedra, Jeffrey Skidmore - New World Symphonies: Baroque Music From Latin A
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855633.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Wynton Marsalis - Baroque Music For Trumpets (1988) [FLAC|Lossless|image + .cue]
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855607.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Glinka - Music Of Glinka (1969) [FLAC|Lossless|tracks] <Classical>
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855588.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855537.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Academy of Ancient Music - Christopher Hogwood - The Baroque Experience (1991) 5
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855447.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855445.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Ivan Moravec, Josef Vlach - Mozart: Piano Concertos K. 449, 488, 503 (1998) [FLA
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855416.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Victor Merzhanov - Scriabin (12 Etudes op. 8), Rachmaninov (Piano concerto No.3)
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855415.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ David & Igor Oistrakh - Bach: Violinkonzerte (BWV 1041/42/43), Vivaldi: Concerto
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855413.jpg" />
 </div>
 
 

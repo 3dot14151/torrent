@@ -6,7 +6,7 @@ Jimi Hendrix - Live At Monterey Pop Festival (1992) [WavPack|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536460.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Rock 'N' Roll America (2016) Box Set, 3CD [FLAC|Lossless|image + .cue] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534984.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - The Many Faces Of Pink Floyd - A Journey Through The Inner World Of Pink Fl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534957.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Savoy Brown - City Night (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534392.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Beatles - Live At The Hollywood Bowl (2016) [FLAC|Lossless|image + .cue] <Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534376.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Elton John - Greatest Hits (1974) Club Edition /1992, Polydor/ [FLAC|Lossless]<P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534217.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Doug Brons - Pull (2021) [FLAC|Lossless|image + .cue] <AOR, Westcoast>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533761.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Seventh Wave - Things To Come (1974) Remastered /2005, Air Mail Archive/ [FLAC|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533571.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Seventh Wave - Psi-Fi (1975) Remastered /2005, Air Mail Archive/ [FLAC|image+.cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533566.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jerry Harrison - Casual Gods (1988) [FLAC|Lossless|image + .cue] <Indie, Post-Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533360.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Smokie - Rock Away Your Teardrops (1996) [FLAC|Lossless|tracks + .cue] <Pop-Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532803.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Baseballs - Hit Me Baby... (2016) [FLAC|Lossless|tracks + .cue] <Rock'n'Roll
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532691.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ John Lennon - The John Lennon Collection (1989) [FLAC|Lossless]<Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532328.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ America - Warner Bros Years (1971-1977) 8CD Box Set Remastered /2015, Warner Rhi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531483.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Freddie Mercury - Messenger Of The Gods - The Singles (2016) 2CD Box Set [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530689.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sheryl Crow - Feels Like Home (2013) /Scene/ [FLAC (tracks+.cue)|Lossless]<Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530329.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Pure... Psychedelic rock (2010) Box Set, 4 CD [FLAC|Lossless]<Rock, Pop, Ps
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529964.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Grateful Dead - 20 Albums (1965-1989)The Golden Road Box Set+Beyond Description 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529459.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Shocking Blue - The Blue Box (2017) 13CD Box Set [FLAC|Lossless|image + .cue]<Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528361.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Masters of Reality - Welcome To The Western Lodge (1999) [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528283.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Ines - The Flow (1999) [FLAC|Lossless|image + .cue]<Neo-Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528138.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - 100 Rock'n'Roll Hits (1992) 4 CD, Box Set [FLAC|Lossless]<Rock'n'Roll>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528049.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Leo Sayer - Thunder In My Heart (1977) Remastered, 2002, RPM Records [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527663.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Pink Floyd - The Dark Side of the Moon (1973) 2CD Unofficial Release, 2011, EMI 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527530.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Smokie - Uncovered (2001) [FLAC|Lossless|image + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526614.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Ally Venable Band - Train Wreck Blues (2015) [FLAC|Lossless|image + .cue] <Blues
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526073.jpg" />
 </div>
 
 

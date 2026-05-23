@@ -1,29 +1,3 @@
-###  Публикация: 340203   (664543) от 22.05.2011
-
-The First Templar / The First Templar: В поисках Святого Грааля (2011) [En/Ru] (1.0.595.4005) Repack R.G. Catalyst
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В конце XIII века от священного Ордена Тамплиеров осталось одно название. Нерушимые обеты, данные его основателями, забыты, а былые соратники в одночасье стали врагами. На Святой Земле пересеклись пути французского рыцаря Селиана д'Аристида и благородной Мари д'Ибелин, дочери тамплиера, объявленной Инквизицией еретичкой. И теперь эти неожиданные союзники должны будут проникнуть в самые сокровенные тайны Ордена Тамплиеров, сыграть свою роль в великом заговоре и раскрыть секрет Святого Грааля. А противостоять им будут могучие противники: сарацины, король Франции Филипп IV и Святая Инквизиция.Тип издания: RepackРазработчик: Haemimont GamesЖанр: Action (Slasher) / 3D / 3rd PersonЯзык интерфейса: Русский английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537562   (664220) от 19.03.2022
 
 Tearstone 2: Thieves of the Heart (2022) [En] (1.0) Unofficial [Collector's Edition]
@@ -32,7 +6,7 @@ Tearstone 2: Thieves of the Heart (2022) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664220.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/upd2/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664104.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Flying Tigers: Shadows Over China (2017) [Ru/Multi] (1.0) Repack =nemos=
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664097.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ FLYING TIGERS: SHADOWS OVER CHINA (2017) [Ru/Multi] (1.0/dlc) Repack Other s [DE
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664045.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Flying Tigers: Shadows Over China (2017) [Ru/En] (1.0/dlc) Repack xatab
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664040.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Binary Domain (2012) [Ru/En] (1.0.0.1/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663976.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/Multi] (1.0/upd2) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663964.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ RadLINE Quarantine (2017) [En] (1.1.2) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663957.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Quarantine (2017) [Ru/Multi] (1.0.24.17) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663951.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Aragami (2016) [Ru/Multi] (01.09/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663692.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (2.2.2.f) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663588.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Agarest: Generations of War (2014) [En] (1.0) License GOG [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663586.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Fictorum (2017) [En] (1.1.01) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663581.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Pro Evolution Soccer 2018 / PES 2018 (2017) [Ru/En] (1.0.5.00) Repack xatab [FC 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663570.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0upd1) License GOG [Epis
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663565.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Dustoff Heli Rescue 2 (2017) [Ru/Multi] (21) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662947.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Danger Zone (2017) [En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662942.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ MXGP3 - The Official Motocross Videogame (2017) [Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662935.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Perception (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662934.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Solstice Chronicles: MIA (2017) [Ru/Multi] (1.03) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662656.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Anno 1404 (2010) [Ru] (1.03.3650/2.01.5010/dlc) Repack Other s [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662650.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Heat Guardian (2018) [Ru/Uk/En] (0.0.4) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662645.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Watch_Dogs / Watch Dogs (2014) [Ru/Multi] (1.06.329/dlc) Repack R.G. Catalyst [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662642.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ I Know a Tale (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662258.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Behind the Reflection 2: Witch's Revenge / Ведьма в зеркале 2. М�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662075.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Behind the Reflection 2: Witch's Revenge / Ведьма в зеркале 2. М�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60FBE5A23250D938AB317F6696A5D9B3AC79D3ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138892   (662034) от 31.05.2017
+
+Royal Detective 4: Borrowed Life / Королевский детектив 4: Жизнь взаймы (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас вызвали в сонный городок Дорфилд, чтобы расследовать загадочного исчезновения известного местного скульптора. Его жена утверждает, что во всем виноваты “ожившие” статуи, но что происходит на самом деле? Узнайте это пока не стало слишком поздно.Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04DF1C4D27AFF487522E51B7D88824BD03747DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

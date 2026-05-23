@@ -1,29 +1,3 @@
-###  Публикация: 1739311   (29430) от 29.01.2025
-
-Winter Falling: Battle Tactics (2022) [En] (7.11) License GOG [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Winter Falling: Battle Tactics предлагает геймерам возглавить войска и вести их к победе в самых напряженных и тактических битвах. И только ваш разум может спасти умирающий мир от опустошения. Вы управляете отрядом наемников, собираете припасы и войска, выполняете задания и даже можете сжигать селения, если решите, что это вам нужно. Но не забывайте о том, что все (   Читать дальше...   )Тип издания: LicenseРазработчик: Rarykos, 7A GamesЖанр: Ролевые игры, Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ACD27EBC18A1E26DAC747D1B9E5F6F6EF066051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775746   (29424) от 29.01.2025
 
 Sacred  - Антология (2005-2014) [Ru/Multi] (2.28/2.65.2/1.0/1.0/dlc) Repack Decepticon
@@ -32,7 +6,7 @@ Sacred  - Антология (2005-2014) [Ru/Multi] (2.28/2.65.2/1.0/1.0/dlc) Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29424.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Gift Collector (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29383.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Grand Theft Auto San Andreas (2021) [Ru/Multi] (1.113.49697469) Repack Wanterlud
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29358.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Grand Theft Auto Vice City (2021) [Ru/Multi] (1.113.49697469) Repack Wanterlude 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29356.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Water Park Tycoon (2014) [En] (1.2.4) Scene TiNYiSO
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29348.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Grand Theft Auto III (3) (2021) [Ru/Multi] (1.113.49697469) Repack Wanterlude [T
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29337.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.007.28161) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29332.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Silent Hill 2 (2024) [Ru/Multi] (1.1.258 834/dlc) Repack Let'sРlay [Digital Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29330.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The End of the Sun (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29316.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ VED (2024) [Ru/Multi] (1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29304.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29288.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29273.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.03.20053/dlc) License GOG [Digital Delux
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29239.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Manor Lords (2024) [Ru/Multi] (0.8.029) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29236.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Battle Realms: Zen Edition (2019) [Ru/Multi] (1.59.1) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29232.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Industry Giant 4.0 (2024) [Ru/Multi] (0.4.2) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29230.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The End of the Sun (2025) [Ru/Multi] (1.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29224.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ ReSetna (2025) [Ru/Multi] (build 17191225) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29221.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ JOY OF PROGRAMMING - Software Engineering Simulator (2024) [Ru/Multi] (1.0.0) Re
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29216.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Dark Town Secrets: Lost Lulu / Секреты Темного города: В п
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29211.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Learning Factory (2021) [Ru/Multi] (1.0.0.546) Repack FitGirl [Curious Mind Edit
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29190.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ System Shock (2023) [Ru/Multi] (1.3.0.19128) Repack Let'sРlay [Remake]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29180.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Call of Duty: Black Ops Cold War (2020) [Ru/Multi] (1.34.0.15931218) Repack sele
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29174.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (Build 20147338/dlc) Re
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29083.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534) Repack Let'sРlay [Supporter Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29066.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534) Repack Let'sРlay [Supporter Editi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A016D791C47E0FB7C253F70BE4DBCCA8198BAA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776464   (29065) от 01.02.2025
+
+The Other Me (2025) [Ru/Multi] (build 16992762) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта игра ориентирована на исследование и тайны. Чтобы предоставить более значимый опыт истории, напряжение постепенно нарастает. История раскрывается через сюрреалистические образы и детали окружения, которые могут быть не сразу заметны. Учтите, что в игре используется нестандартная система сложности. Предупреждение: Эта игра может вызвать приступы у людей с фоточувствительной (   Читать дальше...   )Тип издания: SceneРазработчик: Anomalybyte StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Турецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Турецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7733CFB9CADAE71E3B3E290C34131EFEEC982DF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ ENDER LILIES: Quietus of the Knights (2021) [Ru/Multi] (1.1.6_13932) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050327.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Trinity Fusion (2023) [Ru/Multi] (2.8/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050326.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Heading Out (2024) [Ru/Multi] (1.047) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050304.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pure Badminton (2025) [Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050294.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Escape from Lavender Island (2023) [En] (1.2c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050275.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Typhon: Bot vs Bot (2025) [En] (0.1.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050218.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Speedball 2 HD (2013) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050217.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Aaero2 (2024) [Ru/Multi] (1.52) License GOG [Black Razor Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050212.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ As Dusk Falls (2022) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050210.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dragon Ball FighterZ (2018) [Ru/Multi] (1.42/dlc) Repack FitGirl [Legendary Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050204.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Christmas Stories 14: By Candlelight / Рождественские истори
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050175.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Beacon of Neyda (2025) [Multi] (1.0.4b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050174.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ F1 2021 (2021) [Ru/Multi] (1.18.874931) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050160.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Troop (2023) [Ru/Multi] (Build 20251216/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050143.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980.0/dlc) Repack seleZen [Game of the Year Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050076.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Pawn Planet (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050075.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Total War: Three Kingdoms (2019) [Ru/Multi] (1.7.8/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050074.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Ranch Farm and Store Simulator (2025) [Ru/Multi] (1.0) Scene SKIDROW
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050060.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Zombie Diner Simulator (2025) [Ru/Multi] (0.65) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050055.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Ogre King (2025) [Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049984.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Death Howl (2025) [Ru/Multi] (1.0.0.1) Repack FitGirl [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049983.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Project Hunt (2024) [Ru/Multi] (20251217/dlc) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049982.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ SANABI (2023) [Ru/Multi] (1.3.51/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049971.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Flotsam (2019) [Ru/Multi] (1.0.0/1.0.0f5) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049970.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Voidtrain (2023) [Ru/Multi] (1.03/dlc) Repack Wanterlude [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049928.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ MARVEL Cosmic Invasion (2025) [Ru/Multi] (1.0.0.12456) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049927.jpg" />
 </div>
 
 

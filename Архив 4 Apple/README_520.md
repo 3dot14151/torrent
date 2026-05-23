@@ -6,7 +6,7 @@ SQLPro Studio 2020.09 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237333.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dynamic Wallpaper 14.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237330.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FSNotes 5.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237296.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Export for iTunes 2.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237288.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Integrity Plus 10.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237279.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ System Dashboard Pro 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237278.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ ExpanDrive 7 v7.4.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237271.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ OmniOutliner Pro 5 v5.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237266.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Xliff Editor 2.9.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237258.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Nevercenter CameraBag Pro 2021.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237252.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Script Debugger 8 v8.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237245.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Permute 3 v3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237243.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237232.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Sketch 96.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237220.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Principle 6.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237213.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ BetterDisplay Pro for Mac 1.4.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237202.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ PopChar X 8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237195.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Vidmore Video Converter 2.0.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237162.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ ArchCommander 2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237158.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Exhibeo 2 v.2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237140.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ System Dashboard 4.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237132.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ beaTunes 5 v.5.2.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237088.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ TG Pro (Temperature Gauge Pro) 2.82[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237087.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ PCalc 4.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237086.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Downie 4 v4.1.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237081.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Aiseesoft Mac Data Recovery  1.6.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237070.jpg" />
 </div>
 
 

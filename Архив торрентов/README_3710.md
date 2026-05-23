@@ -6,7 +6,7 @@ Vidmore Video Converter 2.0.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237162.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Skype 8.96.0.409 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237160.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ ArchCommander 2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237158.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ HiBit Uninstaller 3.1.20 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237149.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ HiBit Uninstaller 3.1.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237147.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Topaz Photo AI 1.3.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237141.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Exhibeo 2 v.2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237140.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Surge XT 1.2.2 Standalone, CLAP, VSTi 3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237135.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ System Dashboard 4.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237132.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Topic - Tomorrowland Friendship Mix (2021-03-04) [MP3|320 Kbps] <House, Future H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237093.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ beaTunes 5 v.5.2.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237088.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ TG Pro (Temperature Gauge Pro) 2.82[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237087.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ PCalc 4.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237086.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Downie 4 v4.1.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237081.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Light Image Resizer 6.1.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237078.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Aiseesoft Mac Data Recovery  1.6.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237070.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Amadeus Pro 2.8.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237065.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Native Instruments Traktor Pro Plus 3.9.0.90 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237057.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Acorn 7 v.7.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237053.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ HiBit Startup Manager 2.6.10 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237051.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237044.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VueScan Pro 9.8.06 (19.06.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237042.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Smultron 12 v12.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237034.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Draw.io 20.2.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237030.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Bigasoft Video Downloader Pro for Mac 3.25.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237029.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Text Editor Pro 27.1.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237028.jpg" />
 </div>
 
 

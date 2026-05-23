@@ -1,85 +1,3 @@
-###  Публикация: 776354   (819513) от 11.04.2014
-
-Aliens vs. Predator / Чужие против Хищника [PS3] [EUR] [Ru] [3.15] [Cobra ODE / E3 ODE PRO ISO] (2010)
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Новый боевик от известного разработчика — компании Rebellion, в 1999 году выпустившей знаменитую игру, в которой люди, Чужие и Хищники впервые сошлись в бескомпромиссных сражениях.
-
-Битва продолжается — разные формы жизни снова сойдутся в непримиримой борьбе. В Aliens vs Predator игроков ждут три захватывающие сюжетные кампании, а также незабываемые многопользовательские (   Читать дальше...   )Тип издания: ПираткаРазработчик: RebellionЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:176599D316206BD125F825B82A836FCD5682E4FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007685   (818835) от 16.04.2016
-
-FAST Racing Neo (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [En]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Устраивайте гонки на умопомрачительных скоростях по футуристическим мирам в FAST Racing Neo из Nintendo eShop на Wii U. Забирайтесь в кресло пилота одного из множества антигравитационных кораблей и давите на педаль газа в высокооктановых гонках с 60 кадрами в секунду. Станьте настоящей легендой, покорив все три лиги FAST Racing NeoТип издания: eShopРазработчик: Shin'en MultimediaЖанр: RacingЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:219725398B9BBF88D06A701101793662842DE3BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007752   (818715) от 16.04.2016
-
-UFC Personal Trainer: The Ultimate Fitness System (2011) [PS3] [EUR] 3.65 [Cobra ODE / E3 ODE PRO ISO] [License / 1.02] [En] [MOVE]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-UFC Personal Trainer дарит вам возможность заниматься фитнесом по профессиональной методике Национальной академии спортивной медицины (National Academy of Sports Medicine).
-
-Вашему вниманию предлагается множество упражнений смешанных боевых искусств (mixed martial arts). Вы можете выбрать один из курсов или составить собственную программу тренировокТип издания: LicenseРазработчик: Heavy Iron StudiosЖанр: Sport  (Fitness)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A164ABA059FF4EF9ECDF22EB624B2B6CE396B937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 315090   (818596) от 28.03.2011
 
 [PSP] WWE All Stars [ENG] (2011)
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818596.jpg" />
 </div>
 
 
@@ -119,7 +37,7 @@ The LEGO Movie Videogame (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818517.jpg" />
 </div>
 
 
@@ -145,7 +63,7 @@ Need for Speed: ProStreet (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818288.jpg" />
 </div>
 
 
@@ -171,7 +89,7 @@ SBK Generations (2012) [PS3] [EUR] 4.11 [Cobra ODE / E3 ODE PRO ISO] [License] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817165.jpg" />
 </div>
 
 
@@ -198,7 +116,7 @@ Smart as... / Умник?!  (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/E
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816869.jpg" />
 </div>
 
 
@@ -224,7 +142,7 @@ Trine 2 / Trine 2. Триединство (2011) [PS3] [USA] 3.55 [Cobra ODE / E
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816850.jpg" />
 </div>
 
 
@@ -250,7 +168,7 @@ Bladestorm: Nightmare (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816431.jpg" />
 </div>
 
 
@@ -278,7 +196,7 @@ Jeep Thrills [Wii] [NTSC] [Eng] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815215.jpg" />
 </div>
 
 
@@ -304,7 +222,7 @@ One Piece: Unlimited Cruise 1: The Treasure Beneath the Waves [Wii] [PAL] [Multi
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815070.jpg" />
 </div>
 
 
@@ -330,7 +248,7 @@ Ripened Tingle's Balloon Trip of Love (2009) [NDS] [JPN] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815001.jpg" />
 </div>
 
 
@@ -356,7 +274,7 @@ Duck Dynasty (2014) [PS3] [USA] 4.60 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814399.jpg" />
 </div>
 
 
@@ -382,7 +300,7 @@ Drakan: The Ancients' Gates [PS2] [PAL] [Multi5] (2002)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811107.jpg" />
 </div>
 
 
@@ -412,7 +330,7 @@ Marvel vs. Capcom 3: Fate of Two Worlds [XBOX360] [Region Free] [ENG] [FreeBoot]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810005.jpg" />
 </div>
 
 
@@ -438,7 +356,7 @@ Assassin’s Creed Chronicles: Trilogy (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [Lic
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809408.jpg" />
 </div>
 
 
@@ -464,7 +382,7 @@ Masquerade: The Baubles of Doom (2016) [Xbox360] [RegionFree] 16537 [FreeBoot] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809102.jpg" />
 </div>
 
 
@@ -490,7 +408,7 @@ UEFA EURO 2016: Pro Evolution Soccer / UEFA EURO 2016: PES (2016) [PS3] [EUR] 3.
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808982.jpg" />
 </div>
 
 
@@ -516,7 +434,7 @@ Child of Light Complete Edition (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License / 
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807631.jpg" />
 </div>
 
 
@@ -542,7 +460,7 @@ Grey's Anatomy: The Video Game [Wii] [PAL] [Multi 3] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805091.jpg" />
 </div>
 
 
@@ -570,7 +488,7 @@ Family Guy Back to the Multiverse (2012) [PS3] [EUR] [4.25] [Cobra ODE / E3 ODE 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804665.jpg" />
 </div>
 
 
@@ -596,7 +514,7 @@ Skylanders: Giants (2012) [WiiU] [EUR] 5.5.1 [WUP Installer] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801723.jpg" />
 </div>
 
 
@@ -622,7 +540,7 @@ LittleBigPlanet - Marvel Super Hero Edition (2014) [PSVita] [EUR] 3.60 [NoNpDrm]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801412.jpg" />
 </div>
 
 
@@ -648,7 +566,7 @@ The Legend of Zelda: Skyward Sword HD (2021) [Switch] [USA] 11.0.0 [NSZ] [Licens
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801302.jpg" />
 </div>
 
 
@@ -677,7 +595,7 @@ Raw Danger! (2007) [PS2] [NTSC] PS2 [Unofficial] [Ru]
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801063.jpg" />
 </div>
 
 
@@ -689,6 +607,85 @@ Raw Danger! (2007) [PS2] [NTSC] PS2 [Unofficial] [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BEA6D05FD88E4A521C20C364D36FDB62F68DE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118810   (800526) от 01.01.2019
+
+One Piece Burning Blood (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [License / DLC] [Ru/En]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динамичный аркадный файтинг про знаменитого и хорошо знакомого фанатам серии пирата Манки Д. Луффи. В One Piece Burning Blood также можно играть за Сабо, Эйса, Бартоломью, Энеля и других героев. Одной из ключевых особенностей файтинга One Piece Burning Blood являются молниеносные бои, в ходе которых игрок способен выполнять молниеносные комбо.Тип издания: LicenseРазработчик: Spike Chunsoft Co., Ltd.Жанр: Arcade (Fighting), 3DЯзык озвучки: ЯпонскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD9B8860FD0FAF7969513FC54997979D36AE925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121213   (799007) от 04.04.2017
+
+Asura's Wrath (2012) [Xbox360] [RegionFree] 13599 [FreeBoot] [Unofficial / TU1 / 5DLC ] [Ru]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799007.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Asura's Wrath искусно переплетены азиатская мифология и научная фантастика. Это эпическая история о жестокой несправедливости и суровом возмездии.
+Давным-давно в государстве Синкоку (Shinkoku) восемь божеств — Восемь Хранителей — спасли человечество, одолев разрушительную силу, известную как Гонма. Однако во время празднования триумфа был предательски убит император (   Читать дальше...   )Тип издания: UnofficialРазработчик: CyberConnect2Жанр: Action, Slasher, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский (В 19-22 эпизодах - английский)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E0528D8748F0A80A16D4FAA7C087708F4C35ABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405153   (797819) от 07.11.2021
+
+The Outer Worlds (2019) [PS4] [EUR] [HEN] [License / 1.06] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797819.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Outer Worlds переносит игроков в будущее, где люди колонизируют далекие системы в поисках лучшей жизни. Сначала в новые миры приходит цивилизация, потом капитализм, но дальше становится только хуже. Колонии в системе Алкион загнивают, мирам нужны свежие и яркие умы, ученые, просветители, инженеры, интеллигенция. Их то и отправляют в Алкион на огромном корабле (   Читать дальше...   )Тип издания: LicenseРазработчик: Obsidian EntertainmentЖанр: Action, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B96CDEE3F66B2150DD73207DA33A83F39BD852
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Ansatsu Kyoushitsu / Assassination Classroom / Класс убийц [ТВ-1] [2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972799.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gochuumon wa Usagi Desuka? / Кролика заказывали? [TV-2] [2015, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965240.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Baccano! / Шумиха! [2007, TV, 13] BDRip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959755.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ B Gata H Kei / Размер - второй, характер - извращен�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959753.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Maken-ki! / Не проиграю! [2011, TV, 12 ep] BDRip 720p Hi10p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958383.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Keijo!!!!!!!! / Кэйджо!!!!!!!! [2016, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954718.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Tokyo Ghoul / Токийский гуль [ТВ-1] [2014, TV, 12 ep] BDRip Hi10p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951118.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Bernard Jou Iwaku. / Miss Bernard Said. / Мисс Бернард сказала
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949928.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Shuumatsu no Izetta / Izetta: The Last Witch / Последняя ведьма �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945415.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Black Bullet / Черная пуля [2014, TV, 13 ep] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939784.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Rinne no Lagrange / Lagrange: The Flower of Rin-ne / Цветок вечност
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939693.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Shingeki no Bahamut: Genesis / Rage of Bahamut: Genesis / Ярость Баха�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935598.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ No Game No Life / Игра на выживание [2014, TV, 12 ep] BDRip Hi10p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926510.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923235.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ To Love-Ru: Trouble - Darkness 2nd / Любовные неприятности: 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918222.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Kyoukai no Kanata / Beyond the Boundary / За гранью [2013, TV, 12 ep + S
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914669.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Ao no Exorcist / Blue Exorcist / Синий Экзорцист [2011, TV, 25 и�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_912175.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Chaos Dragon: Sekiryuu Seneki / Драконий хаос: Война красн
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905431.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Shisha no Teikoku / The Empire of Corpses / Империя мертвых [2015,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903488.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Hitsugi no Chaika / Chaika the Coffin Princess / Чайка и Гроб [2014, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890365.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Shinryaku! Ika Musume / Invasion! Squid Girl / Вторжение Кальмар
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_888976.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Ixion Saga DT / Ixion Saga: Dimension Transfer / Иксион сага: Прос
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888825.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Koukaku Kidoutai: Shin Gekijouban / Ghost in the Shell: New Movie / Призра
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878414.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Mangaka-san to Assistant-san to The Animation / The Comic Artist and His Assista
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876898.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Hacka Doll The Animation / Цифровые куклы [2015, TV, 13] HDTV 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876771.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Gungrave | Гангрейв [2003-2004, TV, 26] BDRip 1080p raw+eng+rus x3
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876200.jpg" />
 </div>
 
 

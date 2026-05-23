@@ -6,7 +6,7 @@ Movavi Video Suite 22.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831736.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ O&O ShutUp10 1.9.1425 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831733.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Immortal Fighters 1.2 - приготовьтесь к последней схв�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831692.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Silverlight 5.1.50905.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831690.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mindsphere - Mental Triplex - Presence (2016) [FLAC|Lossless|WEB|tracks] <Goa Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831688.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Stellarium 0.12.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831686.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Novicorp WinToFlash Professional 1.5.0000 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831679.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Glary Utilities Pro 5.71.0.92 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831672.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ WinNTSetup 5.0.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831661.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831660.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Movavi Video Suite 22.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831652.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Mirillis Action! 4.22.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831649.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831645.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Broken Sword: Shadow of the Templars. Director's Cut / Broken Sword: Тень т
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831643.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Sunlounger & Zara Taylor - Try To Be Love (2012) [FLAC|Lossless|tracks]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831603.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ HWiNFO x32/x64 5.46-3100 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831601.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ r.roo - shilly - shally (2017) [MP3|320 Kbps] <Downtempo, Glitch, IDM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831599.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ QTranslate 6.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831596.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Cumulative Update KB4013198 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831593.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ WinTools.net Premium 17.3.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831584.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Pete Rock - Return Of The SP1200 (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831581.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ RegCool 1.118 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831571.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ WinRAR 6.10 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831552.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831545.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831537.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - Verve JazzClub - (64 диска) (2006-2010) [MP3|VBR 106 - 320 kbps]<Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831534.jpg" />
 </div>
 
 

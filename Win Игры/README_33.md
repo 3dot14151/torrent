@@ -6,7 +6,7 @@ BrokenLore: UNFOLLOW (2026) [Ru/Multi] (Build 21512240) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052941.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Barbie Horse Trails (2025) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052940.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Noosphere (2025) [Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052939.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sacred 2 Remaster (2025) [Ru/Multi] (CL16601) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052917.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BrokenLore: UNFOLLOW (2026) [Ru/Multi] (Build 21537071/dlc) Repack Other s [Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052916.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Persona 5 Royal (2022) [Ru/Multi] (1.03B) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052915.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Office Simulator (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052914.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Machick 2 (2025) [Ru/Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052913.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Halls of Torment (2023) [Ru/Multi] (2025-12-04/dlc) Repack FitGirl [Tormented Su
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052912.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Quarantine Zone: The Last Check (2026) [Ru/Multi] (1.0.1246/dlc) Repack Wanterlu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052897.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Deadly Premonition (2013) [Multi] (2.1.0.6) License GOG [Director's Cut]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052896.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Chronicon (2020) [Multi] (1.54.1/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052843.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Pioneers of Pagonia (2023) [Ru/Multi] (1.0.2-10547+185658) Repack Let'sРlay [Bu
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052830.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Rise of Industry 2 (2025) [Ru/Multi] (1.3.1/dlc) Repack Let'sРlay [Deluxe Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052829.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Len's Island (2021) [Ru/Multi] (1.1.43/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052782.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Nobunaga's Ambition: Sphere of Influence - Ascension (2016) [Multi] (1.0) Scene 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052751.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ House Builder (2021) [Ru/Multi] (20260107/dlc) Repack seleZen [Tiny Houses]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052750.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052749.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ DuneCrawl (2026) [Ru/Multi] (1.01) Repack Pioneer
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052748.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ CENTUM (2025) [Ru/Multi] (2.4445.1138) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052747.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Hive (2016) [En] (1.3.10) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052746.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ BrokenLore UNFOLLOW (2026) [Ru/Multi] (Build 21537071) Repack Let'sРlay [Deluxe
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052686.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Under Night In-Birth II (2) Sys:Celes (2024) [Multi] (1.32/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052674.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052659.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Dead Space (2023) [Ru/En] (Build 10602756/dlc) Repack Decepticon [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052562.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Skulker (2025) [Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052544.jpg" />
 </div>
 
 

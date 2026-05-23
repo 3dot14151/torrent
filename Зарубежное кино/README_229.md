@@ -1,58 +1,3 @@
-###  Публикация: 604003   (996725) от 16.01.2013
-
-Джек / Jack [H.264] (1996) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Джеку десять лет. Как и все дети его возраста, он ходит в школу и пытается завести друзей. Но за парту Джек не помещается, да и сверстники все время смеются над ним.
-
-Дело в том, что он растет намного быстрее них и выглядит гораздо старше… в четыре раза. Необычное заболевание ускорило рост мальчика, и к своим десяти годам он превратился во взрослого мужчину… внешне. Но в душе Джек все равно остается ребенком.Жанр: Фэнтези, драма, комедияРежиссер: Френсис Форд КопполаАктеры: Робин Уильямс, Дайан Лэйн, Брайан Кервин, Дженнифер Лопеc, Билл Косби, Фран Дрешер, Адам Золотин, Тодд Босли, Сет Смит, Марио Йедидиа, Джереми Леллиотт, Джерни Смоллетт, Дэни Фэйт, Хьюго ЭрнандезПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD48E0E8A80487CCB717FFF5CEB63D4224B2B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603958   (996679) от 16.01.2013
-
-На линии огня / In The Line Of Fire (1993) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В тот злополучный день, когда в Далласе был убит президент Кеннеди, Фрэнк Хорриган находился среди охраны. Воспоминания о невыполненной миссии уже много лет не дают ему спать спокойно.
-Спустя 30 лет маньяк-психопат, угрожающий убить президента, выбирает Фрэнка мишенью для преследования. И в этой опасной игре только сила воли решит, кто останется в живых…Жанр: Боевик, Триллер, ДетективРежиссер: Вольфганг ПетерсенАктеры: Клинт Иствуд, Джон Малкович, Рене Руссо, Дилан Макдермотт, Гэри Коул, Джон МахоуниПеревод: ДублированныйПродолжительность: 02:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00F31D6747E64B854899FDA5278ED05672A1AA66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603857   (996654) от 16.01.2013
 
 У грешников нет святых / No Saints for Sinners (2011) HDRip
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996654.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996632.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996621.jpg" />
 </div>
 
 
@@ -141,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996611.jpg" />
 </div>
 
 
@@ -169,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996607.jpg" />
 </div>
 
 
@@ -195,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996586.jpg" />
 </div>
 
 
@@ -221,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996585.jpg" />
 </div>
 
 
@@ -247,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996583.jpg" />
 </div>
 
 
@@ -273,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996569.jpg" />
 </div>
 
 
@@ -301,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996568.jpg" />
 </div>
 
 
@@ -327,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996337.jpg" />
 </div>
 
 
@@ -353,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996304.jpg" />
 </div>
 
 
@@ -380,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996148.jpg" />
 </div>
 
 
@@ -406,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996098.jpg" />
 </div>
 
 
@@ -434,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996071.jpg" />
 </div>
 
 
@@ -461,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996066.jpg" />
 </div>
 
 
@@ -487,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996057.jpg" />
 </div>
 
 
@@ -514,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996048.jpg" />
 </div>
 
 
@@ -542,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996038.jpg" />
 </div>
 
 
@@ -570,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996033.jpg" />
 </div>
 
 
@@ -596,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996031.jpg" />
 </div>
 
 
@@ -622,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996030.jpg" />
 </div>
 
 
@@ -648,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996028.jpg" />
 </div>
 
 
@@ -674,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996024.jpg" />
 </div>
 
 
@@ -685,6 +630,63 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A4262821725850F9BCE0DD207C1A39560569104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604927   (996022) от 18.01.2013
+
+Дагон / Dagon (2001) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выброшенные на берег небольшого острова ужасным штормом Пауль и Барбара нашли прибежище в заброшенной рыбацкой деревушке. Когда Барбара неожиданно исчезает среди уродливых и отталкивающих местных жителей, Паулю приходится столкнуться с пугающей действительностью одинокого городка.
+
+Пауль решается на жуткое расследование исчезновения Барбары в одиночку среди полного бездействия страшных обитателей деревушки. Но то, что обнаруживает Пауль в результате поисков вселяет страх и ужас и грозит опасностью всему миру.Жанр: Ужасы, Фэнтези, ТриллерРежиссер: Стюарт ГордонАктеры: Эзра Годден, Франциско Рабаль, Ракель Мероно, Брендан Прайс, Ферран Лаоз, Альфредо Вилья, Хавьер Сандовал, Виктор Баррейра, Фернандо Джил, Хорхе Луис Перез, Оскар Гарсия, Хосе Мануэль ТорресПеревод: Многоголосый закадровый (профессиональный)Продолжительность: 01:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49018F055B3C45B9A1FE33AF68C18CFD259547E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604720   (996014) от 18.01.2013
+
+Исповедь сына века / Confession of a Child of the Century (2012) DVDRip [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Может ли любовь излечить отчаяние? Адаптация классического романа Альфреда де Мюссе, фильм «Исповедь сына века» (Confession of a Child of the Century) рассказывает драматическую историю, начало которой положено в 1830 году в Париже.
+Октав (Пит Доэрти) предан своей любовницей. Отчаяние приводит к тому, что он становится распутником. Однако эта новая для него жизнь отнюдь не удовлетворяет его.
+Смерть его отца становится причиной того, что герой кинокартины «Исповедь сына века» отправляется в провинцию, где встречает Бригитту (Шарлотта Генсбур), молодую вдову, которая много времени проводит в заботах о бедных. Октав нашел свою новую любовь.
+Бригитта вначале сопротивляется его ухаживаниям, не желая вновь пережить любовную страсть. Но в конечном итоге ее чувство оказывается сильнее, она сдается. Герои влюблены и счастливы. Но Октава начинают мучить подозрения. Останется ли Бригитта верна ему? Разве каждая женщина не предает своего возлюбленного рано или поздно? Есть ли любовь на самом деле, или же это все только иллюзия? (   Читать дальше...   )Жанр: ДрамаРежиссер: Сильви ВередАктеры: Шарлотта Генсбур, Пит Доэрти, Аугуст Диль, Лили Коул, Фолькер Бруч, Гийом Гальенн, Кяроль Роше,  Жозефин Де Ла Буме, Ребекка ДжеймсПеревод: ОтсутствуетПродолжительность: 01:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E981986B9C728FEA6EE4C0FE2C22ABC7A5BD596
 ```
 
 https://mybot314.ru/tekegram_catalog/

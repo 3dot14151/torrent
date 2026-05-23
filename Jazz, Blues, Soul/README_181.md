@@ -6,7 +6,7 @@ Evan Furillo - Shallow Blue Pond (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699667.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Duke Ellington - Things Ain't What They Used To Be (1966, 1969) 1996, LaserLight
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699666.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jesper Munk - Taped Heart Sounds (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Si
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699560.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ James Pepper - Songs of the far horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699559.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dan Patlansky - Shelter Of Bones (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699426.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Johnny Smith Trio - Designed For You (1959) Remaster, 2017, Warner [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698982.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jim Allchin - Q.E.D. (2013) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698977.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Speakeasy Electro Swing Compilation Vol. 1 - The Sounds of the Speakeasy (2
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698859.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Martial Solal - At Newport '63 (2016) Sony Music [FLAC|Lossless|image + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698810.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Oscar Pettiford Sextet (1954) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698809.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Curtis Fuller Jazztet with Benny Golson (1959) 1991, Savoy Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698808.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Eddie South - 1937 - 1941 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698804.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Speakeasy Electro Swing Compilation Vol. 3 - Swing-Hop Don't Stop (2014) [M
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698796.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Speakeasy Electro Swing Compilation Vol. 5 - Soul Sisters Remixed (2016) [M
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698785.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Speakeasy Electro Swing Compilation Vol. 4 - The Roaring 2020's (2015) [MP3
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698779.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Miles Davis - Plays For Lovers (2012) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698716.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Shaggy Dogs - All Inclusive (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698706.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Speakeasy Electro Swing Compilation Vol. 2 - The Electro Vintage (2013) [MP
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698698.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Taj Mahal & Keb Mo - TajMo (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698695.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Chilled Jazz Masters - Soft Jazz Vibes To Rest (2018) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698609.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Joe Zawinul - The ESC Years (1992-1996) 2011, ESC Records[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698561.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ella Fitzgerald - Sings The George and Ira Gershwin Song Book (1959) 4CD, 1998, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698367.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Johnny Mastro & Mama's Boys - Never Trust the Living (2016) [MP3|320 кб/с] <B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698360.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Big Jack Johnson With The Cornlickers - Katrina (2009) [FLAC|Lossless|image + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698025.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Fredrik Kronkvist Quartet - Maintain! (2005) Connective Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697876.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Pablo Ziegler Trio - Jazz Tango (2017) ZOHO Music [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697872.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1427962   (181209) от 30.11.2020
-
-Ясновидец 2: Ласси возвращается домой / Psych 2: Lassie Come Home (2020) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-После того как детектива Ласси подстрелили, его чутьё несколько притупилось из-за боли и лекарств, но он всё равно замечает серию странных событий, которые происходят в больнице, где он проходит курс реабилитации. Пациенты бродят по коридорам, окровавленные незнакомцы слоняются по ночам вокруг территории клиники, исчезают люди... Желая разобраться в происходящем, (   Читать дальше...   )Производство: США / USA Network, Universal Content ProductionsЖанр: Комедия, криминал, детективРежиссер: Стив ФрэнксАктеры: Джеймс Родэй, Дьюли Хилл, Тимоти Омандсон, Мэгги Лосон, Керстен Нельсон, Корбин Бернсен, Сара Чок, Ричард Шифф, Курт Фуллер, Жасмин СаймонПеревод: Дублированный (iTunes)Субтитры: Русские (форс.), английскиеПродолжительность: 01:28:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4449CFD8055E1D7884EBEBD3274EA1E74606A0B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427949   (181203) от 30.11.2020
-
-Вечеринка монстров / Monster Party (2018) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Двое подростков Каспер и Додж грабят дома обеспеченных граждан, пока Айрис - девушка одного из них - стоит на шухере. Когда отец Каспера за игорные долги оказывается в заложниках у бандитов, парень решается на отчаянный шаг - ограбить виллу, где Айрис собирается работать официантом на званом вечере. На вечеринку съезжаются обеспеченные гости, и вскоре выяснится, (   Читать дальше...   )Производство: США / Automatik, Dark Web Productions, Defiant StudiosЖанр: Ужасы, триллерРежиссер: Крис фон ХоффманнАктеры: Джулиан МакМэхон, Робин Танни, Сэм Страйк, Вирджиния Гарднер, Брэндон Майкл Холл, Эрин Мориарти, Киан Лоули, Лэнс Реддик, Диего Бонета, Джэми Уорд, Честер Рашинг, София КастроПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F407FFC37575209DFC16E0306225C735E3019186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427993   (181129) от 30.11.2020
 
 Инопланетяне украли мое тело / Aliens Stole My Body (2020) WEB-DL [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181129.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181095.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181093.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181076.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181070.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181067.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181038.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181029.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180977.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Ford против Ferrari / Ford v Ferrari (2019) BDRip [H.264/1080p-LQ]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180970.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180962.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180958.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180852.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180844.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180807.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180729.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180728.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180712.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180677.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180663.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180655.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180649.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180647.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180640.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9905378EF8D6B147463F5F67ACBB556B16EDDD99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647229   (180615) от 02.10.2023
+
+Крутая компания / In Good Company (2004) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэн Формэн, 50-летний менеджер рекламного отдела престижного спортивного издания, находится на грани нервного срыва: в результате служебных пертурбаций, его лишают должности и на его место назначают нового босса - 26-летнего красавца Картера Дюруа, который годится ему в сыновья и ничего не смыслит в издательском бизнесе; жена Энн сообщает Дэну, что беременна; а 18-летняя (   Читать дальше...   )Производство: США, Depth of Field, Universal PicturesЖанр: драма, мелодрама, комедияРежиссер: Пол ВайцАктеры: Дэннис Куэйд, Тофер Грэйс, Скарлетт Йоханссон, Марг Хельгенбергер, Дэвид Пэймер, Кларк Грегг, Филип Бэйкер Холл, Сэлма Блэр, Фрэнки Фэйзон, Тай Буррелл, Кевин Чэпмен, Зена Грэй, Коллин Кэмп, Рон Боттитта, Джон Коллин, Тим Роуз, Энрике Кастильо, Джон Чо, Грегори Хинтон, Кэтерин Эллис, Ричард ХотсонПеревод: дублированный, профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: русские (2 варианта), английскиеКачество: BDRipПродолжительность: 01:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2AFE194ECDE9ADB9118FC0163A6330195AFC30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665855   (180556) от 02.10.2023
+
+Гонщики на драйве / Manta, Manta - Zwoter Teil (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безбашенный в прошлом гонщик Берти теперь — не очень успешный владелец автомастерской. Когда его бизнесу грозит банкротство, Берти решает принять участие в супер-заезде «Гонка поколений», сорвать там куш и поправить дела. И какая разница, если у него нет тачки, а молодняк наступает на пятки. Кто гонял в девяностые, умеет решать проблемы.Производство: Германия / barefoot films, Constantin Film, Olga Film GmbHЖанр: Боевик, комедияРежиссер: Тиль ШвайгерАктеры: Тиль Швайгер, Тина Руланд, Михаэль Кесслер, Луна Швайгер, Тим Оливер Шульц, Тамер Тирасоглу, Ронис Голиаф, Мориц Бляйбтрой, Нилам Фарук, Аксель ШтайнПеревод: Дублированный (Paragraph Media)Язык озвучки: Русский, НемецкийСубтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 02:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BD4AD0DEEB8B7C3CDBFEB2E080CA1A5634DED3
 ```
 
 https://mybot314.ru/tekegram_catalog/

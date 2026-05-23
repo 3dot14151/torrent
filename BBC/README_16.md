@@ -1,29 +1,3 @@
-###  Публикация: 142336   (571336) от 27.07.2015
-
-BBC: Борьба за жизнь / Fight for Life (2007) DVDRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Перед вами документальный сериал, который рассказывает об удивительных способностях нашего тела. Мы проникнем вглубь нашего организма и впервые покажем, как каждая клетка, каждый нерв, каждый орган борется за то, чтобы мы жили. С помощью нанотехнологий, электронных микроскопов и современной компьютерной графики вы сможете увидеть полную картину процессов, которые (   Читать дальше...   )Жанр: ДокументальныйПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 6 x ~ 00:50:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 12743   (571210) от 27.07.2015
 
 BBC: Освенцим (Аушвиц). Окончательное решение (Взгляд на нацизм изнутри) / Auschwitz. Inside The Nazi State (2005) [DVDRip]
@@ -32,7 +6,7 @@ BBC: Освенцим (Аушвиц). Окончательное решение 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_571210.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570627.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ BBC: Англия во времена Плантагенетов / The Plantagen
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569789.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ BBC: Борьба за выживание / BBC: The Trials of Life (1990) 4 х 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569729.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ BBC: Древний Египет: Великое открытие / BBC: Egypt (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_569555.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ BBC: Планеты / BBC: Planets (1999)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_567815.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ BBC: Мир природы. Маршруты песочника / Natural World.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565756.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ BBC: Моцарт в Лондоне / Mozar in London (Lucy Worsley: Mozart's Lo
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565404.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563637.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ BBC: Вся правда о тренировках / The Truth About Exercise (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561917.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ BBC: Живой мир. Мадагаскар, лемуры и шпионы / Mad
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561725.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561283.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ BBC: Мир природы. Из жизни крабов / The Natural World. Cl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560253.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_560230.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ BBC: Космическая Одиссея. Путешествие к други
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_558531.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ BBC: Как устроена природа / BBC. How Nature Works (2012) BDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558517.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ BBC: Чудеса животного мира / Wonder of Animals (2014) HDTV [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558499.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ BBC. Длинные тени Первой мировой войны / The Long S
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557471.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ BBC. Может ли питание насекомыми спасти мир? / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557283.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557062.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556952.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ BBC: Атом / BBC: Atom (2007) HDTVRip (Сезон 1, эпизод 1-3 из 3)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556546.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ BBC: Империя / BBC: Empire (2012) HDTVRip (Серии 1-5 из 5)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554705.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553914.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ BBC: Horizon. Океаны Солнечной системы / Oceans of the Sol
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551294.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ BBC: Horizon. Океаны Солнечной системы / Oceans of the Sol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BCD4D09601025ED2CD559FDD492DE5801E5881B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046773   (550744) от 28.08.2016
+
+BBC.Империя царей: Россия при Романовых с Люси Уорсли / Empire Of The Tsars: Romanov Russia With Lucy Worsley (2016) HDTVRip[H.264/720p-LQ] (1-3 серии из 3)
+
+>>След.
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люси Уорсли отправляется к истокам рода Романовых, династии, которая правила Россией больше трёх столетий. Она расскажет нам о таких неординарных личностях, как Пётр Великий, превративший страну в империю, Екатерина Великая, дочь немецкого принца, которая стала самой могущественной женщиной в мире, и последний царь Николай II, любящий отец и муж, спровоцировавший (   Читать дальше...   )Телекомпания: BBCЖанр: ДокументальныйРежиссер: Джон ДасПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:58:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE8FDA6CA15BDCE098FFFA5B6AF852E1395029F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1168798   (404994) от 25.09.2017
-
-VA - European Dance House (2017) [MP3|254-320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. David Guetta (Feat. Sia) - Titanium
-002. Skrillex & Diplo With Justin Bieber - Where Are U Now
-003. Calvin Harris & Disciples - How Deep Is Your Love
-004. Swedish House Mafia Feat. Pharrell - One (Your Name)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 13:09:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2598E1092872AEFAE0802D7DB2A220774A95CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563010   (404954) от 21.10.2012
 
 VA - Русское радио: Only Best Hits Осенний (2012) [MP3|256 кб/с]<Поп>
@@ -35,7 +6,7 @@ VA - Русское радио: Only Best Hits Осенний (2012) [MP3|256 к
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404954.jpg" />
 </div>
 
 
@@ -70,7 +41,7 @@ VA - Чисто Наши Новинки (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404915.jpg" />
 </div>
 
 
@@ -105,7 +76,7 @@ VA - Самые популярные песни радиостанций #3 50/5
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404902.jpg" />
 </div>
 
 
@@ -140,7 +111,7 @@ VA - СуперДискотЭка 90-х Часть 2 (2012) [MP3|128 кб/с]<Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404877.jpg" />
 </div>
 
 
@@ -175,7 +146,7 @@ VA - Three Rooms. Acoustics, Chill, Relax Vol. 1-2 (2012) [MP3|320 кб/с]<Acou
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404870.jpg" />
 </div>
 
 
@@ -210,7 +181,7 @@ VA - Лучшая клубная музыка AndrS vol.28 (2012) [MP3|320 кб/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404760.jpg" />
 </div>
 
 
@@ -245,7 +216,7 @@ VA - This Merry Planet: Instrumental Disco Hits (2012) [MP3|320 кб/с]<Instrum
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404702.jpg" />
 </div>
 
 
@@ -280,7 +251,7 @@ VA - Супер дискотека 90-х. Зарубежная версия (201
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404432.jpg" />
 </div>
 
 
@@ -315,7 +286,7 @@ Silent Circle - 25 Best Songs (2012) [MP3|238-278 кб/с]<Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404188.jpg" />
 </div>
 
 
@@ -344,7 +315,7 @@ Depeche Mode - 25 Best Songs (2012) [MP3|220 - 259 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404125.jpg" />
 </div>
 
 
@@ -373,7 +344,7 @@ VA - Empire Records - Sound Clinic 6 (2017) [MP3|320 Kbps] <House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404104.jpg" />
 </div>
 
 
@@ -402,7 +373,7 @@ VA - Ibiza Deep Groove Squad (2017) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404062.jpg" />
 </div>
 
 
@@ -431,7 +402,7 @@ VA - In Da Club Vol.66 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404024.jpg" />
 </div>
 
 
@@ -466,7 +437,7 @@ VA - Супер новая двухсотка хитов 50/50 (2012) [MP3|128 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404017.jpg" />
 </div>
 
 
@@ -501,7 +472,7 @@ VA - Хит Сезона Love Radio Русский (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404010.jpg" />
 </div>
 
 
@@ -536,7 +507,7 @@ VA - Фейерверк хитовых новинок Europa Plus (2012) [MP3|25
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403843.jpg" />
 </div>
 
 
@@ -571,7 +542,7 @@ VA - 90's Eurodance #3 (2017) [MP3|320 Kbps] <Eurodance, Euro-House, Techno, Dan
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403818.jpg" />
 </div>
 
 
@@ -600,7 +571,7 @@ VA - Осенняя дискотека от Европа Плюс. Зарубе�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403777.jpg" />
 </div>
 
 
@@ -635,7 +606,7 @@ VA - Top 100 Зайцев.Нет Август (Русский выпуск) (201
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403661.jpg" />
 </div>
 
 
@@ -664,7 +635,7 @@ Secret Service - 25 Best Songs (2012) [MP3|206 - 282 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403247.jpg" />
 </div>
 
 
@@ -693,7 +664,7 @@ Pet Shop Boys - 25 Best Songs (2012) [MP3|227 - 266 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403245.jpg" />
 </div>
 
 
@@ -722,7 +693,7 @@ Peter Gabriel - 25 Best Songs (2012) [MP3|220 - 272 кб/с]<Progressive Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403243.jpg" />
 </div>
 
 
@@ -751,7 +722,7 @@ Duran Duran - 25 Best Songs (2012) [MP3|233 - 266 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403241.jpg" />
 </div>
 
 
@@ -780,7 +751,7 @@ Sandra - 25 Best Songs (2012) [MP3|218 - 275 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403231.jpg" />
 </div>
 
 
@@ -809,7 +780,7 @@ C.C. Catch - 25 Best Songs (2012) [MP3|256 кб/с]<Eurodisco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403230.jpg" />
 </div>
 
 
@@ -823,6 +794,35 @@ C.C. Catch - 25 Best Songs (2012) [MP3|256 кб/с]<Eurodisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6B405B225CD3DAB4204CD9CC638F845ECBF508A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712606   (403223) от 19.10.2013
+
+Modern Talking - 25 Best Songs (2012) [MP3|228 - 267 кб/с]<Eurodisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul 1985-1
+02. Cheri Cheri Lady 1985-2
+03. Lady Lai 1986-1
+04. China In Her Eyes 2000(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F20322017E2F19599C41F9ACB1B215701289F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,116 +1,3 @@
-###  Публикация: 486944   (50001) от 15.07.2024
-
-Такая короткая долгая жизнь (8 серий) (1975) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Телефильм по сценарию И. Ольшанского.
-История нескольких семей, начиная с предвоенных лет и заканчивая 60-ми годами ХХ века.Жанр: Телеспектакль, ДрамаРежиссер: Константин ХудяковАктеры: Вера Алентова, Геннадий Фролов, Василий Бочкарёв, Светлана Немоляева, Александр Лазарев, Люсьена Овчинникова, Алла Покровская, Анна Каменкова, Борис Галкин, Лев Дуров, Валентина Сперантова, Ольга Гобзева, Лариса Гребенщикова, Димитрий Кречетов, Надежда Федосова, Алла Балтер, Платон Таубин, Володя Семячкин, Мария Андрианова, Тима Говорухин, Слава Гринберг, Ольга Сертун, (   Читать дальше...   )Продолжительность: 8 серий (09:54:00)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:899F63FB5AD9015CDA6785DB25F2F12BBE77ADF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444135   (50000) от 15.07.2024
-
-Служанки (2007) DVDRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Жан Жене (1910-1986) – enfant terrible французского авангарда. Написанный им в тюрьме роман «Богоматерь цветов» сначала ужасает, а затем восхищает Жана Кокто, который открывает Жене дорогу во французский литературный мир. Написанные в 1947 году «Служанки» продолжают проходящую через творчество Жене тему индивидуальной свободы, вступающей в конфликт с регламентирующим (   Читать дальше...   )Жанр: Театральный ритуалРежиссер: Александр ЗуевВ ролях: Соланж - заслуженный артист РФ Дмитрий Бозин
-Клер - Дмитрий Жойдик
-Мадам - Алексей Нестеренко
-Месье - Иван НикульчаПродолжительность: 02:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B11391BD7B6A8EC317E2EB5EC9D7676CCD8536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664582   (49986) от 15.07.2024
-
-Татуированная роза (2 части) (1989) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Женщина, похоронив мужа, погибшего в автокатастрофе, отвечает на любовь водителя Альваро по прозвищу «деревенский дурачок». Но не так все просто у непредсказуемого мистика Тенесси Уильямса, как представляестся на первый взгляд…Жанр: Драма, телеспектакльРежиссер: Ирина Мирошниченко, Юрий Кротенко, Роман ВиктюкАктеры: Ирина Мирошниченко, Ирина Юревич, Софья Гаррель, Анна Комолова, Юрий Богомолов, Галина Киндинова, Ирина Гришина, Нина Килимник, Татьяна Забродина, Вера Десницкая, Никита Куприянов, Борис КоростелевПродолжительность: 01:02:35 + 00:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D3E0CE60C30121BCB810818194D039B70661EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 443115   (49981) от 15.07.2024
-
-Сказки / Московский театр на Таганке (2009) CamRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Свободная композиция, созданная Юрием Любимовым по произведениям Г.Х. Андерсена "Русалочка", Оскара Уайльда "Счастливый принц", и Чарльза Диккенса "Рождественские повести", "Сверчок на печке".
-
-В постановке, осуществленной к 45-летию Театра на Таганке, Юрий Любимов соединяет грустный романтизм Андерсена, символистский эстетизм (   Читать дальше...   )Жанр: свободная композицияРежиссер: Юрий ЛюбимовВ ролях: Граббе А.Н. - Солист-мэр, Скрудж, Тоби
-Бадалбейли Тимур - Теклтон
-Басова Александра - Ласточка, Фея
-Васильев Анатолий - Святочный дух прошлых лет(   Читать дальше...   )Продолжительность: 01:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B332FA80EC13B22E180101AF1E8CC15E504438B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 695170   (49980) от 15.07.2024
 
 Руководство желающим жениться (2010) TVRip
@@ -119,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49980.jpg" />
 </div>
 
 
@@ -146,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49979.jpg" />
 </div>
 
 
@@ -173,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49969.jpg" />
 </div>
 
 
@@ -201,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49955.jpg" />
 </div>
 
 
@@ -227,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49946.jpg" />
 </div>
 
 
@@ -254,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49906.jpg" />
 </div>
 
 
@@ -280,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49877.jpg" />
 </div>
 
 
@@ -309,7 +196,7 @@ Heaven & Hell - Neon Nights: 30 Years of Heaven & Hell - Live in Europe (2009) (
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49876.jpg" />
 </div>
 
 
@@ -335,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49867.jpg" />
 </div>
 
 
@@ -364,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49852.jpg" />
 </div>
 
 
@@ -390,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49827.jpg" />
 </div>
 
 
@@ -417,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49799.jpg" />
 </div>
 
 
@@ -445,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49778.jpg" />
 </div>
 
 
@@ -472,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49777.jpg" />
 </div>
 
 
@@ -502,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49776.jpg" />
 </div>
 
 
@@ -528,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49769.jpg" />
 </div>
 
 
@@ -554,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49767.jpg" />
 </div>
 
 
@@ -583,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49766.jpg" />
 </div>
 
 
@@ -609,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49763.jpg" />
 </div>
 
 
@@ -637,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49754.jpg" />
 </div>
 
 
@@ -665,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49753.jpg" />
 </div>
 
 
@@ -691,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49752.jpg" />
 </div>
 
 
@@ -703,6 +590,116 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF57A29FC5959018F8635FED1E550749C17BC0FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194720   (49749) от 17.07.2024
+
+Сказки с оркестром (Ганс Христиан Андерсен - Огниво) (2010) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Литературно-музыкальная композиция из цикла "Сказки с оркестром".
+Сказка "Огниво" Андерсена рассказывает о везучем солдате, который встретил в лесу ведьму, принесшую ему богатство. Взамен она только огниво со старого дупла попросила у него, но солдат и его сумел забрать. Огниво оказалось волшебным и с его помощью солдат не только избежал виселицы, (   Читать дальше...   )Производство: Россия, ГТРК "Культура"Жанр: Литературное чтение, музыкальный, детский, семейныйРежиссер: Сергей СидоренкоАктеры: Михаил ЕфремовСубтитры: отсутствуютПродолжительность: 00:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8446F97125F7554BCDFA37F1D130005ABC795A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466372   (49746) от 17.07.2024
+
+Екатерина Ивановна / Российский театр драмы им. Волкова - Ярославль (2010) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль Российского государственного академического театра драмы имени Федора Волкова, г. Ярославль по пьесе Леонида Андреева.
+
+Постановка Евгения Марчелли - глубинное исследование сущности отношений мужчины и женщины, которые всегда останутся друг для друга инопланетянами... Самая трудная и загадочная пьеса Леонида Андреева о любви, измене и тайнах человеческой (   Читать дальше...   )Жанр: драма, спектакльРежиссер: Евгений МарчеллиПродолжительность: 01:02:20 + 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDD918F64C94994B9B14A66B41FE61BD8525B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 741985   (49745) от 17.07.2024
+
+Хулиган (2010) WEBRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера спектакля состоялась в 2009-м, а в 2011-м за роль Есенина Сергей Безруков получил награду девятого российского театрального форума «Золотой витязь» в номинации «Камерный спектакль и монодрама». Спектакль уже посмотрели зрители во многих городах России, в том числе и за рубежом. И везде он собирал аншлаг. Не стало исключением село Константиново. В день рождения (   Читать дальше...   )Жанр: МоноспектакльРежиссер: Сергей БезруковАктеры: Сергей БезруковПродолжительность: 01:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C841D137BC219363F9CCEDB78096CA36CBC61F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 42434   (49742) от 17.07.2024
+
+Heaven and Hell - Radio City Music Hall Live! (2007) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт в Radio City Music Hall01. E5150/After All (The Dead)
+02. The Mob Rules
+03. Children Of The Sea
+04. Lady Evil(   Читать дальше...   )Жанр: Hard Rock, Hard'n'HeavyВ ролях: Ronnie James Dio, Tony Iommi, Geezer Butler, Vinny AppiceФормат: DVD videoКачество: DVD9Продолжительность: 01:55:21 + 00:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EBD4DF235A26F20E9BCEB1C28D02433D56DB21F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Infix PDF Editor 5.21 Professional + Portable by Maverick [Русский / Ан
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_450170.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Rainmeter Skin Pack 24.09.12 [Ru/En] [Rainmeter скин]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_450161.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ SoftMaker Office Professional 2018 rev 970.0826 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450152.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ K-Lite Codec Pack 15.1.6 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450145.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Viber 11.4.0.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450143.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Autodesk AutoCAD Plant 3D 2017 SP1 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450122.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Autodesk AutoCAD P&ID 2017 SP1 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450118.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Autodesk AutoCAD Map 3D 2017 SP1 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450116.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ AIMP 4.11 Build 1841 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450108.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Dr.Web Security Space 11.0.5.8020 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450107.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ YouTube Video Downloader PRO 5.8.7 (20170731) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450106.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ MindManager 2017 Build 17.0.290 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450105.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ ReviverSoft Registry Reviver 4.18.0.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450096.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Windows 10 HSL/Pro 1803 x64 by kuloymin v14.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450063.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Hee-SoftPack v3.3.1 Light (Обновления на 22.09.2012) [Русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_450042.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Microsoft Toolkit 2.4 Beta 1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_450041.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ PhotoInstrument 5.8 Build 582 Portable by Dinis124 [Русский / Англи�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_450030.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ MindManager 2017 Build 17.0.290 Portable by &rew [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450003.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449999.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Microsoft .NET Framework 4.7.1 Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449981.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ FastStone Image Viewer 4.6 Final Corporate Portable by punsh [MULTi / Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_449931.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ PrivaZer 1.2.23 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_449861.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_449857.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Advanced PDF Password Recovery PROFESSIONAL 5.05.97  [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_449799.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ AdFender 1.60 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_449795.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ WPI DVD 23.09.2012 By Andreyonohov & Leha342 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_449789.jpg" />
 </div>
 
 

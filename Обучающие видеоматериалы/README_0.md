@@ -6,7 +6,7 @@ Magisteria, Александр Погребняк | Архитекторы см�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067887.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Magisteria, Анна Пожидаева | Обитатели Ада. Персо�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067878.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067712.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TutorPlace, Алена Ефремова | Управление тревожно�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067084.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Marker School, Мария Яговкина | Непростые карандаш
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067082.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TutorPlace, Евгений Кусакин | Заработок на чат-бо�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067045.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TutorPlace, Анжелика Залесова | Аналитик маркетп�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067042.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ TutorPlace, Рафаэль Абдулхаликов | Интерьерная ф�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066970.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ TutorPlace, Егор Куракин | Продавец на маркетплей
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066967.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ TutorPlace, Мария Якушева | Базовый гардероб (2025) W
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066966.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ TutorPlace, Елизавета Супрунова | Выпечка от прос
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066936.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Otus, Юрий Пасхин, Никита Иванченко, Алесей Че�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066893.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ TutorPlace, Екатерина Попова | Дизайнер интерьер�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066870.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Jeffrey Way | Laracasts Full Dump - Part 2 (2026) WEB-DL [EN / EN Sub] [Дамп
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066705.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066300.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ TutorPlace, Егор Куракин | Запуск малого бизнеса (
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066295.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066293.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ TutorPlace, Константин Андреев | Переделка старо�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066276.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ TutorPlace, Магомед Мусадаев | Интерьерная 3D-визу
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066138.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ TutorPlace, Александр Монетов | Моушн-дизайнер (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066089.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ TutorPlace, Екатерина Тенякова | Графический диз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065837.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ THREADQA, Олег Пендрак | Java QA Automation (2026) PCRec [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065772.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ TutorPlace, Александр Воеводов | Создание анимац�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065770.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ OTUS, Игорь Стурейко, Андрей Канашов | Reinforcement L
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065719.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Jerry Motorman Palladino, Inc, Джерри Палладино / Jerry Palladino
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065588.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Code Break, Inc, Кит Коуд / Keith Code | Поворот запястья 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065587.jpg" />
 </div>
 
 

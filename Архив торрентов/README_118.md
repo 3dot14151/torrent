@@ -6,7 +6,7 @@ Infix PDF Editor Pro 7.6.0 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027195.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Capture One 21 Pro Pro v14.1.0.220 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027188.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ OCCT 8.0.1 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027184.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ macOS Big Sur 11.2.2 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027183.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ RarmaRadio Pro 2.72.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027182.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MAGIX Sound Forge Pro Suite 15.0.0.27 (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027178.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ O&O ShutUp10 1.8.1419.318 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027169.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Windows 10 Manager 3.4.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027166.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Realtek High Definition Audio Driver 6.0.9116.1 WHQL (Unofficial) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027154.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ WinRAR 6.01 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027153.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AnyDesk 6.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027139.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Navicat Premium 15.0.22 x86/x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027132.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Downcast 2.9.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027120.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Cisdem Duplicate Finder 5.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027119.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ BookMacster 2.11.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027118.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Synkmark 2.11.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027117.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ GoodTask 6.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027113.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Exposure Software Blow Up 3 v3.1.4.374 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027112.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ GarageSale 8 v8.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027111.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ TunesKit AceMovi Video Editor 3.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027110.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Exposure X6 v6.0.4.178  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027107.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Opera GX 73.0.3856.414 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027105.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Exposure Software Snap Art 4 v4.1.3.366  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027104.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Rhinoceros 7 v7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027102.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Exposure X6 Bundle v6.0.4.148  [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027097.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Total Video Converter Pro 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027086.jpg" />
 </div>
 
 

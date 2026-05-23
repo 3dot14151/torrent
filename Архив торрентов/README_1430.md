@@ -6,7 +6,7 @@ VA - The Sound Of Trance Vol.03 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728902.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ SQL Dynamite 2.1.3.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728899.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ ExactScan Pro 17.3.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728896.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Adam Sobiech - Artist Focus 68 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728894.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Maxthon Browser 5.2.7.1000 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728891.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Blocs 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728885.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Statsey - app usage statistics in your menu bar 1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728881.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - ROXO 02 (2016) Monster Jinx [FLAC|Lossless|Web-DL|tracks] <Abstract Hop, Fu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728877.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Readiris Corporate 17.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728876.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Hedge 19.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728874.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - Balearic Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728870.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ VA - Muz - ХитS from AGR (2011) [MP3|320 kbps]<Pop/Club >
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728840.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Privacy Eraser Free 4.13.0 Build 2002 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728829.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ James Blake - The Colour In Anything (2016) [MP3|320 кб/с] <Experimental, Ele
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728821.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728819.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ CoolUtils Total Audio Converter 6.1.0.259 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728816.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Wise Care 365 Pro 6.1.8.605 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728813.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Wireshark 3.6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728812.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Perfectly Clear WorkBench 4.0.1.2233 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728809.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Adobe Character Animator 2022 22.2.0.62 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728799.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - ROXO 01 (2015) Monster Jinx [FLAC|Lossless|Web-DL|tracks] <Abstract Hop, Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728796.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Flux 7.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728795.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - ROXO 03 (2016) Monster Jinx [FLAC|Lossless|Web-DL|tracks] <Abstract Hop, Fu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728793.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728786.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ VA - Iboga Records - Set:27 (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728782.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ VA - Electrozombies - Undead And Open-Minded - Volume 2 (2017) (2017) [MP3|320 K
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728779.jpg" />
 </div>
 
 

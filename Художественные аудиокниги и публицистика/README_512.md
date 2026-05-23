@@ -1,85 +1,3 @@
-###  Публикация: 1562534   (509113) от 09.07.2022
-
-Лайон Спрэг де Камп | Такая работа (2020) [MP3, Максим Тарлавин (Scaners)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Геолог и палеонтолог (Стэплз и Плэтт) сначала изобрели прибор для геологической разведки, затем для обнаружения скелетов вымерших животных. Восстановление древних животных в электролизной ванне по скелету и остаткам тканей. В каждой клетке содержится информация о всем организме в целом.Жанр: Ироническая фантастикаПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283A6E71BB54F5D51A08157228584A9DB836E184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562416   (509112) от 09.07.2022
-
-Джеймс Филлис Дороти | Корделия Грей (Книга 1). Неподходящее занятие для женщины (2022) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Корделия Грей – начинающий частный детектив.
-
-Ее первое дело – расследование обстоятельств гибели Марка Келлендера, труп которого был обнаружен в загородном доме.
-Полиция считает, что юноша покончил с собой в состоянии депрессии – неожиданно бросив университет, он уехал за город и устроился работать садовником.(   Читать дальше...   )Жанр: ДетективПродолжительность: 09:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC5FDBEB100BB603A53B0DD2C4FA621E837E819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562514   (509107) от 09.07.2022
-
-Йен Пирс | Джонатан Аргайл (Книга 5). Рука Джотто (2022) [MP3, Кирилл Радциг]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Рука Джотто» – очередной роман в серии восхитительных интеллектуальных детективов Йена Пирса о преступлениях в мире искусства, которые расследуют английский искусствовед Джонатан Аргайл, следователь Флавия ди Стефано и генерал Боттандо. Детективы Йена Пирса – это изысканное пиршество для души и мозга.
-Преступления прошлого порой всплывают совершенно неожиданно. (   Читать дальше...   )Жанр: Зарубежные детективы, Исторические детективыПродолжительность: 08:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A08558CA24884B953508B7009C01C6842832FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562521   (509100) от 09.07.2022
 
 Йен Пирс | Джонатан Аргайл (Книга 3). Бюст Бернини (2022) [MP3, Кирилл Радциг]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509100.jpg" />
 </div>
 
 
@@ -115,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509038.jpg" />
 </div>
 
 
@@ -141,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509034.jpg" />
 </div>
 
 
@@ -167,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509031.jpg" />
 </div>
 
 
@@ -193,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509015.jpg" />
 </div>
 
 
@@ -220,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508946.jpg" />
 </div>
 
 
@@ -249,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508945.jpg" />
 </div>
 
 
@@ -275,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508944.jpg" />
 </div>
 
 
@@ -301,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508940.jpg" />
 </div>
 
 
@@ -327,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508938.jpg" />
 </div>
 
 
@@ -354,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508930.jpg" />
 </div>
 
 
@@ -380,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508882.jpg" />
 </div>
 
 
@@ -408,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508866.jpg" />
 </div>
 
 
@@ -434,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508824.jpg" />
 </div>
 
 
@@ -460,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508810.jpg" />
 </div>
 
 
@@ -487,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508806.jpg" />
 </div>
 
 
@@ -513,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508792.jpg" />
 </div>
 
 
@@ -540,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508742.jpg" />
 </div>
 
 
@@ -566,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508729.jpg" />
 </div>
 
 
@@ -592,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508452.jpg" />
 </div>
 
 
@@ -618,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508371.jpg" />
 </div>
 
 
@@ -650,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508249.jpg" />
 </div>
 
 
@@ -676,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508240.jpg" />
 </div>
 
 
@@ -688,6 +606,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4C8D5ABC08945A471576D0DBA9DE09553F55CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932739   (508169) от 30.08.2015
+
+Филипп  Ванденберг | Беглая монахиня (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средневековая Германия. Магдалена готовилась принять постриг, но, увидев, как монахини нарушают святые заповеди, бежит из монастыря и… находит свою судьбу среди бродячих актеров. С первого взгляда она полюбила канатоходца Рудольфо. Вскоре девушка узнала, что он хранитель древних «Книг Премудрости», скрывающих тайну философского камня, сокровищ тамплиеров, египетских (   Читать дальше...   )Жанр: Исторический детективПродолжительность: 15:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB2F8C5798DD4203A93ABBC2F1D1948CB9FC44A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932791   (508152) от 30.08.2015
+
+Сергей  Макаров | Полигон призрак (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508152.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Москве убит немецкий шпион, успевший послать незадолго до гибели шифровку в Абвер о секретном полигоне, на котором русские испытывают сверхразрушительную бомбу. Эта операция — лишь часть хитроумной игры советской контрразведки СМЕРШ. Ловушка для Абвера подготовлена. Закрыть выход из нее должен майор СМЕРШа Владимир Коготь со своей спецгруппой, состоящей из боевых (   Читать дальше...   )Жанр: Шпионский детективПродолжительность: 11:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6669872A7C74C026125BE5807F4896DB22E334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932911   (508053) от 30.08.2015
+
+Джеймс Хедли Чейз | Что лучше денег? (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джефф Гордон спасает Римму Маршалл от её разъярённого дружка с ножом. Он хочет сделать из неё певицу, но из этого ничего не выходит. Не того она склада, да ещё и наркоманка со стажем. Невольно став свидетелем убийства охранника при неудачной попытке ограбления кассы киностудии, он сам становится обвинённым в этом преступлении и скрывается.
+
+Другие названия романа:"Сильнее (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD931BE6983F5CE8406781DEBE99DDB499BB225
 ```
 
 https://mybot314.ru/tekegram_catalog/

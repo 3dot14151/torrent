@@ -6,7 +6,7 @@ Rohan Dalvi | Ornamental Designs in Houdini Part 1 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900455.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ School of Motion, Joey Korenman | FreelanceU (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_900335.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Udemy | Секреты фотореализма в Blender 2.8 / The Secrets to 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899893.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ SVS, Will Terry | Draw 50 Things (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898758.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ The Art Of Aaron Blaise, Ronnie Williford | Taking Control of Color with Ronnie 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898657.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Andy Anderson | Adobe Photoshop CC Tutorials for Beginners (2014) PCRec [H.264] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898654.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Rohan Dalvi | Houdini 17 New Erosion node (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897340.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Rohan Dalvi | Procedural Texturing and Baking in Houdini Part 2 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897266.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Rohan Dalvi | Procedural Texturing and Baking in Houdini Part 1 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897221.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Allegorithmic, Wes McDermott | Substance in Unreal Engine 4 (2015) PCRec [En, Ru
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897194.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Rohan Dalvi | Introduction to Vex for Visual Effects in Houdini (2017) PCRec [En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897187.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Udemy, Erindale Woodford | Procedural Materials in Blender 2.9 (2021) PCRec [EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897170.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Digital Tutors, Joshua Kinney | Creating Animal Fur for Games in Substance Paint
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897166.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Digital Tutors, Alex Tuzhikov | Modeling an Interior Scene from Photo Reference 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897087.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ ArtClever, Тина Хабарова | Курс «Декоратор» [LITE в�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897078.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Lynda.com | Основные принципы дизайна логотипа (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896775.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Udemy | Архитектурный дизайн и анимация в Blender 2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896380.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Rohan Dalvi | Shader building in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895321.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ CG Cookie | Понимание данных Blender / Understanding Blender Data
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893359.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ CG Cookie | Производственный дизайн в Blender 2.8 и  Eev
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893296.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ CG Cookie | Основы анимации в Blender 2.8 / Fundamentals of Anima
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893232.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ CG Cookie | Анимация пламени с помощью Grease Pencil в B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891609.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ CG Cookie | Создание и анимация низкополигональ�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891586.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ CG Cookie | Создание анимированного игрового Sci-F
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889833.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ ArtStation, Bailey Facer | Violent Seduction – Tempeste Set Creation (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888913.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Domestika, Karmen Loh | Lighting and Color for Digital Portraits in Photoshop (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888720.jpg" />
 </div>
 
 

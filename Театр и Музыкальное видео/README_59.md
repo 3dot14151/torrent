@@ -1,122 +1,3 @@
-###  Публикация: 1224573   (664793) от 11.05.2018
-
-Аквариум - Live on TV (1986, 1990) DVD5 [hand made]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Пара ранних выступлений группы "Аквариум" на госТВ.Программа "Музыкальный ринг" - вышла в эфир 17.01.1987г.Фильм-концерт, снятый режиссером Константином Эрнстом - выпущен ВПТО "Видеофильм" в 1990 году."Аквариум" там представлен в своем, по мнению ценителей творчества БГ и группы, лучшем составе.
-
-Музыкальный ринг (1986)01.Поезд в огне
-02.Мир, как мы его знали
-03.Молодые львы
-04.В полный рост(   Читать дальше...   )Производство: ГРМП-Ленинград ;ВПТО "Видеофильм"Жанр: рокРежиссер: Владимир Максимов ; Константин ЭрнстАктеры: АквариумПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:13:34 + 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6248EE85CFB877A4A07547B47AFA5AEC824BB7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339517   (664599) от 22.05.2011
-
-Gipsy Kings / Live at Kenwood House in London (2004) [1080p] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Лидеры жанра ФЛАМЕНКО, GIPSY KINGS, на протяжении 16 лет заставляли трепетать сердца в разных уголках мира. Вашему вниманию предлагается концерт, записанный в формате "HIGH-DEFINITION" на легендарной сцене Кенвуд Хаус в Лондоне.Жанр: МузыкаАктеры: Gipsy KingsПеревод: ОтсутствуетПродолжительность: 01:41:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138206   (664095) от 29.05.2017
-
-ONUKA и НАОНИ (06.04.2017) WEB-DL [H.264/1080p-LQ] [UKR]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Две музыкальные вселенные, ONUKA и Национальный академический оркестр народных инструментов (НАОНИ) под управлением дирижера Виктора Гуцало, встретились на одной сцене.
-Концерт представляет собой уникальное музыкальное действо, не имеющее аналогов. Неповторимые электронные композиции, чувственный женский вокал и феерия эмоций. В творчестве группы в изобилии представлены (   Читать дальше...   )Жанр: Электроника, Фолк, КонцертПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 01:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24325E4412E903A18ADABFDB156A4380481F6F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326652   (663383) от 23.05.2011
-
-Sandra - The Complete History (1974 - 2002) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01 Maria magdalena
-02 In the heat of the night
-03 Little girl
-04 Innocent love
-05 Hi hi hi
-06 Loreen
-07 Midnight man
-08 Everlasting love
-09 Stop for a minute
-10 Heaven can wait(   Читать дальше...   )Жанр: PopРежиссер: AllАктеры: SandraПеревод: ОтсутствуетПродолжительность: 01:40:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 340929   (662512) от 24.05.2011
 
 Avril Lavigne - Smile (2011) HDRip
@@ -125,7 +6,7 @@ Avril Lavigne - Smile (2011) HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_662512.jpg" />
 </div>
 
 
@@ -152,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662031.jpg" />
 </div>
 
 
@@ -181,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661920.jpg" />
 </div>
 
 
@@ -211,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661771.jpg" />
 </div>
 
 
@@ -237,7 +118,7 @@ Bon Jovi: Live at Madison Square Garden (2009) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_661421.jpg" />
 </div>
 
 
@@ -267,7 +148,7 @@ Abel Almena feat Bearlin. Maybe Im Right (2012) [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660496.jpg" />
 </div>
 
 
@@ -293,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660453.jpg" />
 </div>
 
 
@@ -319,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660184.jpg" />
 </div>
 
 
@@ -347,7 +228,7 @@ Royal Hunt - 2016 (25 Anniversary) (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660000.jpg" />
 </div>
 
 
@@ -375,7 +256,7 @@ Buddy Guy Luganno Estival Jazz  (2008) HDTV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_659263.jpg" />
 </div>
 
 
@@ -402,7 +283,7 @@ Ken Hensley: Blood On The Highway, Albert Hall (2007) [720] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_658693.jpg" />
 </div>
 
 
@@ -437,7 +318,7 @@ Lightning In a Bottle - A One Night History of the Blues (2003) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658266.jpg" />
 </div>
 
 
@@ -467,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657969.jpg" />
 </div>
 
 
@@ -493,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_657781.jpg" />
 </div>
 
 
@@ -520,7 +401,7 @@ VA - Official UK Top 40 Video Chart (30-05-2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657478.jpg" />
 </div>
 
 
@@ -549,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657423.jpg" />
 </div>
 
 
@@ -577,7 +458,7 @@ UK - Curtain Call (2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656684.jpg" />
 </div>
 
 
@@ -606,7 +487,7 @@ DVJ Bazuka - Summer Love (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656622.jpg" />
 </div>
 
 
@@ -632,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655763.jpg" />
 </div>
 
 
@@ -658,7 +539,7 @@ UK - Curtain Call (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655737.jpg" />
 </div>
 
 
@@ -687,7 +568,7 @@ Rammstein - Paris (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655608.jpg" />
 </div>
 
 
@@ -713,7 +594,7 @@ Rammstein - Paris (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654486.jpg" />
 </div>
 
 
@@ -724,6 +605,125 @@ Rammstein - Paris (2017) BDRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34E02CE842FF0486FB7E8E487EFC9B91B2E48176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515982   (654225) от 27.06.2012
+
+Metallica: Orion Music Festival 2012: The Black Album (2012) [1080i] HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_654225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданны фестиваль “Orion Music + More”.Cостоялся 23 и 24 июня 2012 года в Атлантик-Сити, Нью-Джерси. В котором приняла участие группа Metallica.01. Hit the Lights
+02. Master of Puppets
+03. Fuel
+04. For Whom the Bell Tolls
+05. The Shortest Straw
+06. The Struggle Within
+07. My Friend of Misery
+08. The God That Failed
+09. Of Wolf and Man
+10. Nothing Else Matters(   Читать дальше...   )Жанр: MetalПродолжительность: 02:13:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182975   (653593) от 22.05.2018
+
+Квартирник на НТВ у Маргулиса. Калинов мост (11.11.2017) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653593.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришла рок-группа из Новосибирска "Калинов мост". Музыканты вспомнили, как начиналась их карьера, лидер Дмитрий Ревякин рассказал о влиянии народных песен и славянской мифологии на творчество группы, а Евгений Маргулис исполнил одну из песен, написанную солистом и основателем коллектива "Калинов мост", в стилистике (   Читать дальше...   )Производство: Жанр: КонцертПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B06EBDFBDAA55F58A6C2A8A99153EA0468948A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 344838   (653223) от 01.06.2011
+
+Юбилейный концерт группы "ВИА ГРА" (2010) DVB
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт, посвященный десятилетию популярной и очень сексуальной группы "ВИА ГРА". В концерте, помимо существующего состава – Альбина Джанабаева, Надежда Мейхер и Ева Бушмина, примут участие и бывшие участницы группы – Ольга Корягина, Меседа Багаудинова, Алена Винницкая, Вера Брежнева и Анна Седокова, а также Валерий Меладзе.01.Стоп! Стоп! Стоп!
+02.Попытка №5
+03.Good Morning, папа!
+04.Цветок и нож(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECF7755D15B31AE3A4E9745FF9CE76DE0F46DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140670   (651957) от 09.06.2017
+
+Rammstein - Paris (2017) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкие индастриал-металлисты Rammstein подготовили к выпуску свой новый концертный DVD и Blu-ray — «Paris» («Париж»). Материал для него был записан во Франции в марте 2012 года в ходе тура «Made In Germany».1. Intro
+2. Sonne
+3. Wollt Ihr Das Bett In Flammen Sehen
+4. Keine Lust(   Читать дальше...   )Производство: Германия, SpinefarmЖанр: Industrial MetalПеревод: ОтсутствуетПродолжительность: 02:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBB1BB9EC16C043ED59652D7E47F54989A03C3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

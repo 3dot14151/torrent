@@ -6,7 +6,7 @@ PictureThis - Plant Identification v5.12.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1828.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Purvpn 9.3 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1650.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Vanced Tube v5.4.80.365 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1343.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Purvpn 9.4 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1295.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.0 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1291.jpg" />
 </div>
 
 

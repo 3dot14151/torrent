@@ -1,38 +1,3 @@
-###  Публикация: 613292   (976410) от 09.02.2013
-
-VA - Dubstep Planet 4 - Official Promo Mix (by Profit) (2013) [MP3|320 kbps]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Skrillex & Alvin Risk - Imma Try It Out
-02. Sub Focus ft. Kenzie May - Falling Down (VIP Mix)
-03. ShockOne - Chaos Theory (Dubstep Mix)
-04. Flatland Funk ft. Tory D - Lose Control (Callum B Remix)
-05. Pixel Fist - Shots & Straps
-06. Skrillex & Damian Marley - Make It Bun Dem (Teddy Killerz Remix)
-07. Pegboard Nerds - Self Destruct
-08. Bombs & Bottles - I Will Take You There (RoughMath Remix)
-09. Borgore - Nympho
-10. Doctor P - Big Boss ...Жанр: DubstepПродолжительность: 01:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D825D1EB86B9E3BCCB4CCD9A7FAFB3AF5CAE5F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614867   (976394) от 09.02.2013
 
 VA - Record Super Chart № 276 (2013) [MP3|320 кб/с]<Trance>
@@ -41,7 +6,7 @@ VA - Record Super Chart № 276 (2013) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976394.jpg" />
 </div>
 
 
@@ -76,7 +41,7 @@ VA - Итоговый ЕвроХит Топ 40 2013  [MP3|~245 кб/с (V0)]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976352.jpg" />
 </div>
 
 
@@ -105,7 +70,7 @@ VA - Hits of My Soul Vol. 54 (2020) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976240.jpg" />
 </div>
 
 
@@ -137,7 +102,7 @@ VA - Top50: Tracks Deep House Ver.17 (2020) [MP3|320 Kbps] <House, Deep House, C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976180.jpg" />
 </div>
 
 
@@ -166,7 +131,7 @@ VA - Back To The 90s: Greatest Hits (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976177.jpg" />
 </div>
 
 
@@ -195,7 +160,7 @@ Blonker - Шедевры Инструментальной музыки (2001) [M
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975962.jpg" />
 </div>
 
 
@@ -230,7 +195,7 @@ VA - Romantic Blues Collection Vol.2 (2013) [MP3|320 кб/с]<Pop,Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975907.jpg" />
 </div>
 
 
@@ -265,7 +230,7 @@ Reverend and The Makers - Collection (2007-2012) [OGG|459-548 кб/с] <Dance Ro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975868.jpg" />
 </div>
 
 
@@ -294,7 +259,7 @@ VA - Tech House Masters Fresh (2016) [MP3|259-320 кб/с] <Deep House, Minimal,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975805.jpg" />
 </div>
 
 
@@ -323,7 +288,7 @@ VA - EdShar Music (10.01.16) [MP3|128-320 kbps]<DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975800.jpg" />
 </div>
 
 
@@ -352,7 +317,7 @@ VA - Alive Strong Best Of Hits (2016) [MP3|262-320 кб/с] <Electro, Club, Bigr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975795.jpg" />
 </div>
 
 
@@ -381,7 +346,7 @@ VA - Белая вьюга (2015) [MP3|256 кб/с] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975732.jpg" />
 </div>
 
 
@@ -410,7 +375,7 @@ VA - German Top 100 Single Charts 31.01.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975614.jpg" />
 </div>
 
 
@@ -439,7 +404,7 @@ VA - Акварели (Super DISCOTEKA 70s|80s) (2016) [MP3|320 кб/с] <Disco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975565.jpg" />
 </div>
 
 
@@ -468,7 +433,7 @@ VA - Record Super Chart 623 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975544.jpg" />
 </div>
 
 
@@ -497,7 +462,7 @@ VA - 100 Greatest Modern Pop Songs (2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975374.jpg" />
 </div>
 
 
@@ -526,7 +491,7 @@ Schiller - Hit Collection (Presents Elgujakviso) (2019) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975288.jpg" />
 </div>
 
 
@@ -555,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975178.jpg" />
 </div>
 
 
@@ -587,7 +552,7 @@ VA - Новинки с разных популярных MP3 сайтов.Ver.92
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975044.jpg" />
 </div>
 
 
@@ -616,7 +581,7 @@ VA - Melancholy Longe (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974584.jpg" />
 </div>
 
 
@@ -645,7 +610,7 @@ VA - Prometheus: Trance Party (2016) [MP3|320 кб/с] <Progressive Trance, Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974583.jpg" />
 </div>
 
 
@@ -674,7 +639,7 @@ VA - Love Classics Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrum
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974535.jpg" />
 </div>
 
 
@@ -703,7 +668,7 @@ VA - Жаркая драйвовая туса (2016) [MP3|256 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974468.jpg" />
 </div>
 
 
@@ -732,7 +697,7 @@ VA - German Top 100 Single Charts (18.01.2016) [MP3|256-320 кб/с] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974465.jpg" />
 </div>
 
 
@@ -761,7 +726,7 @@ VA - Жажда скорости танцевальный ритм (2016) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974402.jpg" />
 </div>
 
 
@@ -775,6 +740,35 @@ VA - Жажда скорости танцевальный ритм (2016) [MP3|2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5265360A324746B431744284DD075FAFED11C20D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975114   (974084) от 13.01.2016
+
+VA - Старое по новому 2 (2016) [MP3|320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дискотека Авария - Новогодняя (DJ Solovey Remix)
+02. ViRUS! - Ты меня не ищи (DJ Jurbas Mix)
+03. Ayur Tsyrenov & DJ Micky Rossa - Если у вас нету тёти
+04. Alex Kafer & Lera - Не обманешь (Queen Russian Cover)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718C2C12B54698BC64FFDD34C73795E71AC88BDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

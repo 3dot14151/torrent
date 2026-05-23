@@ -6,7 +6,7 @@ WhatsApp 2.2112.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021182.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Edge 89.0.774.76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021181.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Viber 15.1.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021177.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sandboxie 5.49.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021176.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ OpenMPT 1.29.09.00 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021174.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Pipette 21.04.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021172.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ OCCT 8.1.1 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021164.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Desktop Calendar 2.3.92.5426 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021163.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ foobar2000 1.6.5 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021134.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ USB Disk Security 6.8.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021121.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ WinRAR 6.01 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021061.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Microsoft Edge 89.0.774.77 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021039.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ SeaMonkey 2.53.7.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021020.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Brave Browser 1.22.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021016.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Internet Download Manager 6.38 Build 19 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021013.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CPU-Z 1.96.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021010.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ WizTree 3.39 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021005.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ SIV (System Information Viewer) 5.57 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020987.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Google Chrome 90.0.4430.72 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020981.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Google Chrome 90.0.4430.72 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020975.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Kaspersky Update Utility 3.2.0.153 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020965.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Microsoft Visual C++ 2015-2019 Redistributable 14.28.29914.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020946.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Adobe Bridge 2021 11.0.2.123 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020945.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Adobe Media Encoder 2021 15.1.0.42 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020931.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Adobe Audition 2021 14.1.0.43 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020930.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Phase One Capture One Pro 21 14.1.1.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020922.jpg" />
 </div>
 
 

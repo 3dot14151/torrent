@@ -6,7 +6,7 @@ Substance Painter 2020.1.1(6.1.1) Build 256 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827360.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ammyy Admin Free 3.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827357.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla Firefox 46.0 beta 10 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827252.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe AIR 21.0.0.198 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827086.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Q-Dir 6.33 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827080.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mozilla Firefox 45.0.2 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827079.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Promt Professional 9.0 Giant + Специальные словари 8.0 [Unatte
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827002.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mozilla Firefox 45.0.2 Final Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826993.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ GetFoldersize 3.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826991.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Cyberfox 45.0.3 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826989.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NetWorx 5.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826986.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Cyberfox 45.0.3 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826981.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ K-Lite Codec Pack Update 12.0.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826896.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Air Explorer Pro 1.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826886.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826832.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ WifiChannelMonitor 1.41 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826764.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ WinTools.net Premium 16.3.0 DC 12.04.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826755.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Air Explorer Pro 1.8.0 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826752.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Mozilla Firefox ESR 45.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826749.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Ventrilo 3.0.4 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_826739.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Opera GX 80.0.4170.48 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826715.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Microsoft Edge 94.0.992.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826712.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Privacy Eraser Free 5.16.0 Build 4032 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826705.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Download Master 6.12.3.1549 RePack (&Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826648.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Wireless Network Watcher 1.96 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826627.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Mozilla Firefox 45.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826625.jpg" />
 </div>
 
 

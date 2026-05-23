@@ -6,7 +6,7 @@ VA - Euro Hits 2021 (2021) [MP3|320 Kbps] <Pop, Dance, Electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058046.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Reyvi - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058026.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ BONEY M. best (1975-1993) [MP3|320 Kbps] <pop, electronic, soul, funk>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057089.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ ABBA best (1973-1981) [MP3|320 Kbps] <Еlectronic, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056305.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Euro Hits 2022 (2022) [MP3|320 Kbps] <Pop, Dance, Electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056156.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Euro Hits 2023 (2023) [MP3|320 Kbps] <pop,dance,electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055458.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Romantic Dreams - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Italodisco
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055436.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - The Best Of Italo-Disco 2025 (2026) [MP3|320 Kbps] <Italo-Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053751.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Summer Dance Explosion (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053623.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ RetroVinyl80 - Collection (2026) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053479.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Euro Hits 2024 (2024) [MP3|320 Kbps] <pop,dance,electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053322.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ AI.KA Digital Singer - Collection (2025) [MP3|320 Kbps] <Pop, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052795.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Euro Hits 2025 (2025) [MP3|320 Kbps] <Pop, Dance, Electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052784.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Лучшие песни Love Radio за 2025 год (2026) [MP3|320 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051647.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Зима на Love Radio (2026) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051027.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 19 (2025) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050702.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dakota Lane - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, Ita
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049547.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dakota Lane - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, Ita
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049546.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Hit music (2025. Зима) (2025) [MP3|320 Kbps] <POP>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048701.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Reyvi - Favorites Collection Part 9 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048587.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - No name compilation part 24  Dance, Synthwave,  Disco (2025) [MP3|320 Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048441.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Talking Luna - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Disco, Italo-D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046824.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Romantic Dreams - Favorites Collection Part 9 (2025) [MP3|320 Kbps] <Italodisco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046822.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - German Top 100 Single Charts 06.01.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045909.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Schlager Hitmix XXL (2023) [MP3|320 Kbps] <Disco, Rock, Synth-pop, Dansband
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045286.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Hits Nu Disco Views 001 (2022) [MP3|320 Kbps] <Indie Dance, Nu Disco, Deep 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045204.jpg" />
 </div>
 
 

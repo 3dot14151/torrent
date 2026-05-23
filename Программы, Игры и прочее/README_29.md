@@ -1,56 +1,3 @@
-###  Публикация: 1460882   (1022242) от 07.04.2021
-
-Alarm Clock Pro 2.9.9 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Будильник (Alarm Clock) - это новая форма простоты с элегантными часами и интеллектуальным алгоритмом активации сигналов.
-Приложение включает гибкий интеллектуальный алгоритм активации сигналов. Сигналы имеют функцию автоматической корректировки после смены часового пояса и предварительно определенные настройки. Во время разговора по телефону автоматически приглушается (   Читать дальше...   )Тип издания: Premium (Paid)Релиз состоялся: 06.04.2021Разработчик: MacroPinchПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD7C5298592F4812E633F9939028E0B6226822D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460911   (1022236) от 07.04.2021
-
-Vimage 3.1.2.2 Mod by derrin, REALY [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Фотографии - это нечто большее, чем просто изображение. Увидьте в своих фото скрытый смысл и сделайте их невероятными, как никогда раньше. Множество пресетов, фильтров, оверлеев и анимаций. После редактирования они станут как живые, будут передавать уникальные истории! Настраивайте не только готовые эффекты, но и обычные категории: яркость, контраст, насыщенность, (   Читать дальше...   )Тип издания: Premium + ModificationsРелиз состоялся: 03.03.2021Разработчик: vimageПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47D86052AF0DC3C0B61EF752DED2588D4C646C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460886   (1022235) от 07.04.2021
 
 aCalendar - Android Calendar 2.5.0 [Ru/Multi]
@@ -59,7 +6,7 @@ aCalendar - Android Calendar 2.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022235.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ MiXplorer 6.54.2-Silver Mod by VERGIL777, Mr. Ricatto [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022224.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ Partitions Backup & Restore 2.3.0 Mod by mrfrost475 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022073.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ Moises v1.3.1 Premium [Ru] - Муз. платформа с ИИ + удалите
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021884.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ English Grammar in Use v1.11.40 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021844.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ Dog Scanner v10.2.10-G [Ru] – Идентификация породы соба
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021777.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ Cat Scanner v10.2.10-G [Ru] – Идентификация породы коше
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021758.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021751.jpg" />
 </div>
 
 
@@ -272,7 +219,7 @@ Talkao Translate - Перевести голос и словарь v314.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021744.jpg" />
 </div>
 
 
@@ -301,7 +248,7 @@ Investing v6.6.5 [Ru] - биржа, инвестиции, акции, финан
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021680.jpg" />
 </div>
 
 
@@ -329,7 +276,7 @@ REVER - Motorcycle GPS, Route Planner & Discover v5.0.5 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021615.jpg" />
 </div>
 
 
@@ -355,7 +302,7 @@ Perfectly Clear v4.3.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021590.jpg" />
 </div>
 
 
@@ -382,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021583.jpg" />
 </div>
 
 
@@ -408,7 +355,7 @@ Lapse It • Time Lapse • Pro v4.70 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021575.jpg" />
 </div>
 
 
@@ -434,7 +381,7 @@ Scan & Translate+ Text Grabber v4.3.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021556.jpg" />
 </div>
 
 
@@ -460,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021520.jpg" />
 </div>
 
 
@@ -489,7 +436,7 @@ QS Английский язык v1.10 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021276.jpg" />
 </div>
 
 
@@ -517,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021173.jpg" />
 </div>
 
 
@@ -545,7 +492,7 @@ FIMO - Analog Camera v2.12.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021161.jpg" />
 </div>
 
 
@@ -572,7 +519,7 @@ Stoxy PRO v5.5.0 [Ru/Multi] - Акции, Индексы, Фьючерсы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021155.jpg" />
 </div>
 
 
@@ -598,7 +545,7 @@ DiagScan v3.1 [Ru] - сброс кодов ошибок elm327 и расшифр
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021130.jpg" />
 </div>
 
 
@@ -627,7 +574,7 @@ KMPlayer Plus v31.04.120 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021073.jpg" />
 </div>
 
 
@@ -656,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020974.jpg" />
 </div>
 
 
@@ -685,7 +632,7 @@ IELTS Listening v2020.08.25.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020972.jpg" />
 </div>
 
 
@@ -699,6 +646,64 @@ IELTS Listening - бесплатное приложение для всех, к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CD7B0992EEA259132A159A32043932949D523D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461918   (1020962) от 15.04.2021
+
+Handy Photo v2.3.5 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приглашаем к творческому фото редактированию!
+
+Handy Photo – это приложение, разработанное с мыслью о людях, для которых фото редактирование является страстным увлечением. Это идеальный выбор для коррекции и улучшения ваших фотографий.
+(   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 1 декабря 2020 г.Разработчик: ADVA SoftПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083F47C987E66027D4EFD9043204896DA3D4B255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462666   (1020904) от 15.04.2021
+
+Kinoplay v0.1.5 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Онлайн просмотр фильмов, мультфильмов
+Kinoplay позволяет смотреть любимое кино на любом устройстве в любой точке мире с доступом в интернет.
+-Огромный каталог с кино
+-Простота использования(   Читать дальше...   )Тип издания: OriginalРелиз состоялся: 15 апреля 2021Разработчик: descodeПоддерживаемая ОС: Android: 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4865F5803750CAF75054FCCDC59C19F2B0F104D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

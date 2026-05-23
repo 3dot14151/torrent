@@ -1,29 +1,3 @@
-###  Публикация: 1215887   (754464) от 28.03.2018
-
-Тайны древности. Троянский конь миф или реальность? / Ancient Mysteries: Trojan Horse The New Evidence (2014) SATRip
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Легенда гласит, что неприступный город Троя был взят с помощью одной лишь хитрости. Обманутые жители сами распахнули ворота перед гигантским деревянным конем, внутри которого прятались враги. Древнегреческая поэма, из которой мы узнали об этой истории - одно из величайших произведений мировой литературы. Но, может, это не просто легенда? Существовал ли в действительности (   Читать дальше...   )Производство: Великобритания, Blink Entertainment LtfЖанр: Документальный, исследования, археологияРежиссер: Том ФоулиПеревод: Документальный дубляж (студия «СВ-Дубль», голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B57AC231C5AE4C3CE7EC42C1660C912393B508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523578   (754309) от 29.04.2014
 
 BBC: Погружение на Галапагосах (Подводный мир Галапагосов) / Dive Galapagos (2005) SATRip
@@ -32,7 +6,7 @@ BBC: Погружение на Галапагосах (Подводный мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754309.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ BBC. Мир природы. Лобо. Волк, который изменил А
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754216.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BBC: Корень всех зол? [2 серии] / The Root of All Evil? (2006)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754035.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ BBC: Как устроена Земля [2 из 2] / Earth Machine (2011) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754031.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ BBC: Всё, что мы знаем о Вселенной, неверно? / BBC
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753967.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ BBC. Самые умные животные / Super Smart Animals (2012) SATRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753902.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753659.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753656.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753646.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753562.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ BBC. Как устроены шикарные отели. Marina Bay Sands (Си
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753561.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753553.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753551.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753539.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ NG. С точки зрения науки. Морские чудовища др�
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753437.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752640.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ BBC: Вырастая во Вселенной [5 из 5] / Growing Up in the Uni
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752288.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752142.jpg" />
 </div>
 
 
@@ -514,7 +488,7 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752131.jpg" />
 </div>
 
 
@@ -540,7 +514,7 @@ NG. Реальность или фантастика? Привидения / Is 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752110.jpg" />
 </div>
 
 
@@ -566,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751826.jpg" />
 </div>
 
 
@@ -592,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751824.jpg" />
 </div>
 
 
@@ -619,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751820.jpg" />
 </div>
 
 
@@ -645,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751692.jpg" />
 </div>
 
 
@@ -671,7 +645,7 @@ Discovery. Чужая планета  / Alien Planet (2005) HDTVRip [H.264/720p-
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751641.jpg" />
 </div>
 
 
@@ -682,6 +656,32 @@ Discovery. Чужая планета  / Alien Planet (2005) HDTVRip [H.264/720p-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:550A6BAE500F3627E9DFDE16AB2F5FD62C6005E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281578   (751609) от 08.02.2019
+
+Animal Planet: Дом для рептилий. Террариум юрского периода / Scaled (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рептилии конкурируют с кошками и собаками за звание самых популярных домашних питомцев. Грэг Уэст и его команда, состоящая из лучших зоологов и искусных мастеров, предлагают свои уникальные услуги заводчикам и владельцам рептилий, которые мечтают об оригинальном жилище для своих чешуйчатых любимцев. Яркий дизайн и знание особенностей этих животных позволяет делать (   Читать дальше...   )Производство: США, Animal PlanetЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6FED649EDCD0A754A9ECC9975926693B9BDA8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

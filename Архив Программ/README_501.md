@@ -6,7 +6,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789978.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BELOFF 2020.06 Lite [Ru] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789969.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ DiskDigger 1.20.9.2699 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789897.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Arturia - Pigments 1.1.0.29 VSTi, VSTi3, AAX (x86/x64) RePack by VR [EN]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789872.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ DiskDigger 1.20.9.2699 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789864.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Nektar Technology - Bolt 1.0.0  VSTi, VSTi3 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789855.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Mp3tag 2.86 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789834.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Mozilla Firefox Quantum 58.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789768.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ FBackup 9.4.448 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789767.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Synapse Audio - DUNE 3.0.4 VSTi, AAX (x86/x64) Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789760.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ SeaMonkey 2.53.10 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789743.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Cockos REAPER 6.42 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789740.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Celemony - Melodyne Studio 4 4.2.1.003 STANDALONE, VST, VST3, RTAS, AAX (x86/x64
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789730.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Download Master 6.22.1.1677 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789707.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Avira Phantom VPN Free / Pro 2.12.3.16045 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789706.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Windows and Office Genuine ISO Verifier 11.10.23.21 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789697.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Mozilla FireFox 94.0.2.7991 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789683.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Chromium 96.0.4664.45 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789681.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ qBittorrent 4.1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789659.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Wise Program Uninstaller 2.6.1.148 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789652.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ AnyDesk 7.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789636.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ GOM Player Plus 2.3.71.5335 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789635.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VLC Media Player 3.0.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789616.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ O&O Defrag Professional 25.1 Build 7305 RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789607.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.6 (Offline Cache, Unofficial) [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789595.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Blackmagic Design DaVinci Resolve Studio 17.4.2 Build 9 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789573.jpg" />
 </div>
 
 

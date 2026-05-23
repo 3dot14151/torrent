@@ -6,7 +6,7 @@ Praey for the Gods (2019) [Ru/Multi] (0.5.006) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758176.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Raptors: Be A Dinosaur (2014) [En] (Beta) Repack John2s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744509.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fatal Evidence: Cursed Island (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740208.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Empyrion - Galactic Survival (2015) [Ru/En] (1.6.1.0433) Repack Sudora
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730216.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Earthfall (2017) [En] (12644) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719981.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FARHOME (2018) [Ru/Multi] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717019.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Phantom Trigger (2017) [En] (Alpha) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715875.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ House of the Dying Sun (2016) [En] (6.08.2016) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711207.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Youtubers Life (2016) [Ru/Multi] (0.7.11) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693880.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Bio Inc. Redemption (2017) [Ru/Multi] (0.90) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674217.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Oxygen Not Included (2017) [Ru/En] (217565) SteamRip Let'sPlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670442.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Sudden Strike 4 (2017) [En] (22.05.17) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670421.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ ASTROKILL (2016) [En] (0.5.0.6) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641492.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Wolcen: Lords of Mayhem (2016) [Ru/Multi] (0.4.2H) SteamRip Let'sPlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636523.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Cliff Empire (2018) [Ru/Multi] (1.9.12) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623592.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Raw Data (2016) [En] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622290.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Deck of Ashes (2019) [Ru/Multi] (1016730) Repack xatab
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620220.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ CDF Starfighter VR (2016) [En] (0.55) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613122.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Dropship Down (2016) [En] (0.2.0.23) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611529.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Envoy 2 (2016) [Ru/En] (Experimental version) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611522.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Darkwood (2014) [En] (alpha 5.0) RePack YaKrevetko [Steam Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610184.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Crea (2014) [En] (0.18.0) Repack YaKrevetko [Steam Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610179.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Black The Fall (2017) [En] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605495.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Steel Division: Normandy 44 (2017) [Ru/En] (300093748/dlc) Repack =nemos=
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604881.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Depth (2014) [Ru/Multi] (25657) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599715.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Boid (2015) [En] (0.6.223) Repack Hazestalker [Early Acsess]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591730.jpg" />
 </div>
 
 

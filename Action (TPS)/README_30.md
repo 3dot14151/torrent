@@ -6,7 +6,7 @@ The Evil Within 2 (2017) [Ru/En] (1.0/dlc) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384542.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tom Clancy's Splinter Cell Blacklist (2013) [Ru/En] (1.03/dlc) Rip R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384497.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ECHO (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382365.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ James Bond 007: Blood Stone [Ru/En] (RePack/1.0) 2010 | R.G. Shift
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382310.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Advent Rising (2005) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381952.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Enclave (2003) [Multi] (1.0.0.1) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381938.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Through the Woods (2016) [Ru/Multi] (1.0/u1) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381823.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Outbreak: The Nightmare Chronicles (2018) [En] (1.3/dlc) License PLAZA [Complete
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381242.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Amazing Spider Man 2 / Новый Человек-паук (2014) [Ru/Multi] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381128.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Resident Evil 3 (2020) [Ru/Multi] (5269288/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380294.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Rogue Trooper Redux (2017) [Multi] (5560) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378048.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Resident Evil Revelations 2 (2015) [Ru/En] (5.0/dlc) Repack xatab [Episodes 1-4]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377990.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Bayonetta (2017) [Ru/En/Jp] (1.01) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375707.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Resident Evil HD Remaster (2015) [Ru] (1.0) Rip xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375705.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Tom Clancy's Splinter Cell: Conviction [Ru/En] (RePack/1.04) 2010 | R.G. Shift
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374770.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Resident Evil 4: Ultimate HD Edition (2014) [Ru] (1.06) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373573.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Hitman (2016) [Ru/Multi] (1.12.2/dlc) Repack R.G. Catalyst [The Complete First S
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371348.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Tom Clancy's Splinter Cell: Double Agent [Ru/En] (Rip/1.02a) 2006 | R.G. Shift
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369712.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Assassin's Creed (2008) [Ru] (1.02) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369278.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ WARRIORS OROCHI 4 (2018) [Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367605.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Resident Evil 2 Seamless HD Project (1998) [En] (1.0) Repack/Mod Andriel
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365096.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Tom Clancy's Splinter Cell: Chaos Theory [Ru/En] (Rip/1.05) 2005 | R.G. Shift
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364865.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Resident Evil 5 (2009) [Ru/Multi] (1.0.0.129/dlc) Repack xatab [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364708.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Resident Evil 3 Seamless HD Project (2000) [En] (1.0) Repack/Mod Andriel
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362646.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Alan Wake's American Nightmare (2012) [Ru/En] (1.03.17.1893) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362436.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Alan Wake (2012) [Ru/En] (1.06.18.1326) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362302.jpg" />
 </div>
 
 

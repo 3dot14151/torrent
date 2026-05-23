@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376782.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Fantastical 2.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376778.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Spring Tube vs Easy Summer Vol.21 (2017) [FLAC|Lossless|WEB-DL|tracks] <Dow
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376772.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Monster Energy Nascar Cup Series-2017, Этап 31 - Alabama 500, Talladega Supe
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376771.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Oshy - Say No (2017) [MP3|320 kbps] <Drum'n'Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376767.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ VA - Amsterdam Dance Essentials Trance (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376766.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Macgo Windows Blu-ray Player 2.16.7.2121 RePack (& Portable) by AlekseyPopovv [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376736.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Devo - Icon Pack 4.1.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376734.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Telefon Tel Aviv - Dreams Are Not Enough (2019) Scene [FLAC|Lossless|tracks] <ID
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376732.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ SuryaDemaH - Ashirvaad (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376729.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Metempsychosis (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Chillgressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376718.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376717.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Victor Vran (2015) [Ru/Multi] (2.04/dlc) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376704.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Cafe Nirvana (2019) [FLAC|Lossless|WEB-DL|tracks] <Chiiout, Downtempo, Psyc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376702.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Glary Utilities Pro 5.128.0.153  Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376701.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ OCCT 7.0.0 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376696.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Freac 1.1.3 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376692.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Revo Uninstaller Pro 4.3.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376691.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sublime Text 4.0 Dev build 4088 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376690.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ GeoGebra 6.0.609.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376689.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ PrivaZer 4.0.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376686.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ File & Image Uploader 8.0.2 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376683.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Destination Ibiza: Deep House Selection (2012) [MP3|320 кб/с]<Deep House
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376675.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Best HD Wallpapers Pack (12.11.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376672.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Truth - Machine (2008) [MP3|320 кб/с]<Hard Rock | Blues-Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376671.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Vocal Trance Temptation Volume 10 (2012) [MP3|320 кб/с]<Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376669.jpg" />
 </div>
 
 

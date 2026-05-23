@@ -6,7 +6,7 @@ Joplin 2.8.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177843.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ WinRAR 6.24 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177833.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ WhatsApp 2.2242.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177819.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Skype 8.91.0.404 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177801.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ GPU Caps Viewer 1.57.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177796.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ JetBrains PyCharm Professional 2020.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177791.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MiniTool Partition Wizard Technician 12.8.0 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177783.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ CPUID HWMonitor 1.48 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177782.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ MSI Kombustor 4.1.18.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177773.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ FanControl V138 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177767.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ FurMark 1.32.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177761.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ GOM Player Plus 2.3.81.5347 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177728.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Opera 93.0.4585.37 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177725.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ WizTree 4.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177721.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Viber 19.0.0.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177718.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ One Commander Pro 3.25.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177717.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (2911) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177712.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Brave Browser 1.45.133 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177704.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ GOM Mix Pro 2.0.5.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177700.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ PDF-XChange Editor Plus 9.5.365.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177677.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ AOMEI Partition Assistant Standard Edition 9.13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177651.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Microsoft Edge 87.0.664.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177640.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ StartAllBack 3.5.5 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177639.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Windows 11 Manager 1.1.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177629.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Brave Browser 1.17.75 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177627.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177620.jpg" />
 </div>
 
 

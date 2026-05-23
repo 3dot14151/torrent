@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783187.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SRWare Iron 64.0.3350.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783183.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MediaHuman Audio Converter 1.9.6.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783179.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ EximiousSoft GIF Creator 7.32 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783176.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Registry First Aid Platinum 11.1.0 Build 2492 RePack by D!akov  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783155.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ScreenPresso Pro 1.7.2.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783151.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Titan Quest Anniversary Edition (2016) [Ru/Multi] (1.54) License PLAZA [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783139.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Evangelion Shin Gekijouban: Ha | Evangelion: 2.22 You Can [Not] Advance | Ева
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783130.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Opera GX 68.0.3618.150 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783095.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ K-Lite Codec Pack Update 15.5.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783069.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Glary Utilities Pro 5.144.0.170 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783056.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ RogueKiller Anti-Malware 14.6.0.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783054.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Lacey Free Music & Video Downloader 2.41 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783050.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Sade - Diamond Life (1984) [FLAC|Lossless|tracks] <Funk / Soul>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783044.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Technolorgy - Discography 9 Releases (2014-2020) [MP3|320 Kbps] <EBM, Synth-Pop,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783043.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Auslogics Duplicate File Finder 8.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783040.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ CherryPlayer 3.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783036.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Glary Disk Explorer 5.27.1.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783031.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ TinyWall 3.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783029.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Revo Uninstaller Pro 4.3.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783024.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ TweakPower 1.100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783022.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ XnView Classic 2.49.3 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783020.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Adobe Bridge 2020 10.1.0.163 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783018.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - 2003 Hands (2003) Hands Productions [FLAC|Lossless|tracks+.cue] <Noise, Exp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782977.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Dalot & Sound Awakener - Little Things (2018) Fluid Audio [FLAC|Lossless|WEB-DL|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782958.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Egoprisme - Among Noise (2018) [MP3|320 Kbps] <Synthpop, Synthwave, Darkwave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782953.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ JRiver Media Center 26.0.32 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928933.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Start Menu 7 Pro 3.85 [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928909.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ CCleaner 5.26.5937 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928894.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Avant Browser Ultimate 2020 build 2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928889.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928881.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Google Earth Pro 7.1.8.3036 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928876.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ LibreOffice 6.4.1.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928819.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ MAGIX SOUND FORGE Pro Suite 14.0.0.31 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928816.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928814.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ JetBrains Rider 2019.3.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928810.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ IObit Malware Fighter PRO (акция comss) 7.6.0.5846 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928807.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Everything 1.4.1.965 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928805.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ PhotoFiltre Studio X 10.11.0 Portable by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928777.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ AIMP 4.00 Build 1695 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928776.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ FileLocator Pro 8.1 Build 2697 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928766.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Acronis True Image 2017 New Generation Build 6106 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928762.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Opera 42.0.2393.137 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928760.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Wondershare Filmora 9.3.7.1 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928698.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ NetWorx 5.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928673.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ ESET NOD32 4.x/3.x (x32 x64) Offline Update 13027 (февраль 2016) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928660.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Google Earth Pro 7.1.8.3036 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928653.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ RuntimePack 20.3.3 Full [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928569.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ AIMP 4.00 Build 1695 Final RePack (& Portable) by D!akov (with Bongiovi Acoustic
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928550.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Symantec Encryption Desktop Professional 10.3.2 MP12 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928549.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Rufus 2.7 (Build 855) Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928541.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Adobe Muse CC 2015.1.0.2309 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928538.jpg" />
 </div>
 
 

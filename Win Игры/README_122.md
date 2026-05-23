@@ -1,29 +1,3 @@
-###  Публикация: 1392386   (798495) от 03.11.2021
-
-Danger Scavenger (2020) [Ru/Multi] (2.0.8) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Danger Scavenger – это напряженный роуглайк в стиле киберпанк на крышах небоскребов. Вам предстоит дать отпор могучим противникам, которыми управляет бездушный искусственный интеллект. Забудьте о подземельях, пещерах и адской мгле.Тип издания: LicenseРазработчик: Piotr Wolk, Star DriftersЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F3DF7386C4CCFFF617A04B424F557B9D19EAF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507462   (798407) от 04.11.2021
 
 ReDrawn: The Painted Tower (2021) [En] (1.0) Unofficial [Collector's Edition]
@@ -32,7 +6,7 @@ ReDrawn: The Painted Tower (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798407.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ GolfTopia (2021) [En] (1.0.10) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798405.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Tunche (2021) [Ru/Multi] (1.0.3) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798361.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Eschalon: Book (2007-2014) [En] (1.06/1.05/1.021) License GOG [Trilogy]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798355.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Swords and Fairy 7 (2021) [Multi] (1.0.8.7586889) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798334.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Humankind (2021) [Ru/Multi] (1.0.05.0517-S10/dlc) License CODEX [Digital Deluxe 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798328.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ In Silence (2021) [Ru/Multi] (1.01) License DARKSiDERS [Winterland Update]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798226.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Descenders (2019) [Ru/Multi] (1.0upd20211028/dlc) License PLAZA [The Grand Tour]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798217.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Gazmatera 2 America's Least Wanted (2021) [Ru/En] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798212.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Escape Simulator (2021) [Multi] (1.0.18250r) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798208.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Too Many Humans (2021) [Multi] (2020.1.17.10049454) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798206.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Distorted World (2021) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798202.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Alan Wake Remastered (2021) [Ru/Multi] (1.033793/dlc) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798192.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Injustice 2 (2017) [Ru/Multi] (1.1.21.0/dlc) License FAIRLIGHT [Legendary Editio
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798187.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Demon Turf (2021) [En] (1.0) License DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798072.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Escape from the Village (2021) [Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798064.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Flaklypa Grand Prix (2021) [Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798063.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Void Eclipse (2021) [En] (1.00) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798048.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Rustler (Grand Theft Horse) (2021) [Ru/Multi] (1.02.21/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798046.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.35.63118/dlc) License CODEX [Season 01: 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798043.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Prison Simulator (2021) [Ru/Multi] (1.0.1.1v04.11) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798039.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Fast & Furious: Spy Racers Rise of SH1FT3R (2021) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798038.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Bloodshore (2021) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798034.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Farming Life (2021) [Ru/Multi] (1.0) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797908.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Soulsland (2021) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797896.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Soulsland (2021) [En] (1.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68E0D741EC81B603B48C331E9D48F650F4A63F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508109   (797886) от 07.11.2021
+
+Airplane Racer 2021 (2021) [Multi] (1.0) License DARKSiDERS
+
+>>Win Игры
+>>Simulation (Flight/Space)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пристегните ремни безопасности и приготовьтесь к этой реалистичной летной игре. Летайте самостоятельно или против соперников на воздушной трасе. Совершенствуйте самолеты и приобретайте новые, открывайте новые трассы по мере продвижения в игре. Играйте с помощью геймпада или клавиатуры. Соревнуйтесь со своими противниками с оружием и щитами. И станьте легендой неба!Тип издания: LicenseРазработчик: Özgün BURSALIOĞLUЖанр: Симулятор (Самолет), Гонки, АркадаЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B787E6C4C68A31811ECB997F698AAF5024EB8E37
 ```
 
 https://mybot314.ru/tekegram_catalog/

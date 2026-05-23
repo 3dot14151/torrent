@@ -1,55 +1,3 @@
-###  Публикация: 1452075   (1027803) от 05.03.2021
-
-Человек без гравитации / L'uomo senza gravita (2019) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Оскар рождается ночью в больнице маленького городка, и сразу становится ясно, что он — необычный ребенок: малыш не подчиняется закону всемирного тяготения. Мать и бабушка, боясь за младенца, решают скрыть его суперспособность, и долгие годы он растет в тайне от всех. Но приходит день, когда Оскар решает: мир должен узнать, что он — человек без гравитации.Производство: Италия, Бельгия, Франция / Isaria Productions, Zagora, Climax FilmsЖанр: Фэнтези, драма, комедияРежиссер: Марко БонфантиАктеры: Элио Джермано, Микела Ческон, Елена Котта, Сильвия д’Амико, Винсент Скарито, Pietro Pescara, Jennifer Brokshi, Андреа Пеннакки, Кристина Донадио, Dieter-Michael GrohmannПеревод: Многоголосый профессиональный (iTunes)Субтитры: Английские (отдельно)Продолжительность: 01:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882B3FB61A755011571EB49B95FACBA5FAFCCBA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452201   (1027786) от 05.03.2021
-
-Заклинание / Spell (2020) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Преуспевающий нью-йоркский адвокат Маркус узнаёт о кончине отца, с которым много лет не общался. Вместе с семьёй — женой и двумя детьми-подростками — он на собственном небольшом самолёте отправляется на похороны в Кентукки, но где-то над горами Аппалачи попадает в грозу и терпит крушение. Раненый Маркус приходит в себя в доме пожилой женщины Элоиз. Она утверждает, (   Читать дальше...   )Производство: США / LINK Entertainment, MC8 Entertainment, Paramount PicturesЖанр: УжасыРежиссер: Марк ТондерайАктеры: Омари Хардвик, Лоретта Дивайн, Лоррэйн Барроуз, Hannah Gonera, Kalifa Burton, Джон Бизли, Тумишо Маша, Steve Mululu, Питер Батлер, Андре Джейкобс и др.Перевод: Дублированный (iTunes)Субтитры: Русские (Forced, full), украинские (Full), английскиеПродолжительность: 01:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0229D19345657534E93B6DDA2EA41BCE9299270D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452327   (1027700) от 06.03.2021
 
 Птица высокого полёта / High Flying Bird (2019) WEB-DL [H.264/1080p-LQ] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027700.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027685.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027683.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027675.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027653.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027645.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027642.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027639.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ Ford против Ferrari / Ford v Ferrari (2019) DVD9 [Custom]
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027636.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027635.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027629.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027626.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027625.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027621.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027618.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027617.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027615.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027534.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027528.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027506.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027504.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027501.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027498.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027486.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B14C43B2F09263262FA35686A40715CB089C6784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444980   (1027485) от 07.03.2021
+
+Семейка Аддамс / The Addams Family (1991) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Черная комедия о колоритной семейке, обитающей в не менее колоритном доме. Глава семьи, Гомес Аддамс - очень самоуверенный и довольно импульсивный тип, который четверть века тому назад страшно поругался со своим старшим братом Фестером, после чего тот пропал без вести. Все попытки отыскать его были безуспешными. Но вот, однажды на пороге фамильного особняка появляется (   Читать дальше...   )Производство: США / Orion Pictures, Paramount Pictures, Scott Rudin ProductionsЖанр: Фэнтези, комедияРежиссер: Барри ЗонненфельдАктеры: Анжелика Хьюстон, Рауль Хулиа, Кристофер Ллойд, Дэн Хедайя, Элизабет Уилсон, Джудит Мэлина, Карел Стрёйкен, Дэна Айви, Пол Бенедикт, Кристина РиччиПеревод: Многоголосый профессиональный, двуголосый профессиональный, дублированный, авторский, одноголосый любительскийСубтитры: Русские, Английские (SDH)Продолжительность: 01:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529EC532162717A6E90061BE2DD0264C4B1D0B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452574   (1027484) от 07.03.2021
+
+Единорог / The Unicorn (2018) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэлори и Калеб — нерешительная пара, которая уже четыре года находится в состоянии помолвки. Однажды они отправляется в Палм Спрингс, чтобы отметить двадцатипятилетнюю годовщину брака родителей Мэлори.Там будущие супруги решают отметить юбилей своей помолвки необычным образом - сексом втроём. Но веселое ночное приключение принимает неожиданный оборот и обнажает глубокие (   Читать дальше...   )Производство: США / Beachwood Park FilmsЖанр: КомедияРежиссер: Роберт ШварцманАктеры: Лорен Лапкус, Николас Рутерфорд, Люси Хейл, Бек Беннетт, Дри Хемингуэй, Беверли Д’Анджело, Джон Капелос, Майя Кэзан, Даррел Бритт-Гибсон, Джефф БэрриПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (forced), английские - отдельными файламиПродолжительность: 01:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B2179B6AC35660A2BC56A733E2A3A665050012
 ```
 
 https://mybot314.ru/tekegram_catalog/

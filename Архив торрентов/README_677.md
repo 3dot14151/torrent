@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902119.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Liquivid Video Improve 2.8.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902104.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Acronis Backup Advanced Workstation / Server 11.7.44409 + BootCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902076.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ CPU-Z 1.97.0 Portable by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902064.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Speedtest by Ookla 1.9.159 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902043.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902032.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ WinX DVD Ripper Platinum 8.20.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902029.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902028.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Bullet for My Valentine - Hand Of Blood (2005) Ep [FLAC|Lossless|tracks] <Altern
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902007.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Bossa Nova Flavors (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtemp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902005.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Opera GX 67.0.3575.105 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902002.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ CoolUtils Total Audio Converter 5.3.0.223 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901999.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Pale Moon 28.9.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901987.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901967.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ USDownloader 1.3.5.9 Portable (23.03.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901965.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Folx Pro 5 v5.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901958.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ DAEMON Tools Lite 10.3.0.152 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901947.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ R-Studio 5.2 Build 130692 Network Edition [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901946.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ YTD Video Downloader PRO 5.9.16.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901936.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ MacClean 3 v3.6.0 (build 20200319) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901934.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Loopback 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901925.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ How To Survive: Third Person Standalone (2015) [Ru/En] (1.0/upd2) Repack SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901909.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Swish 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901908.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - The World Of Trance and Dream Dance (2010) [DVD-A UP-mix]<Trance, Dream Dan
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901892.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ AirFoil 5.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901889.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ QTranslate 6.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901888.jpg" />
 </div>
 
 

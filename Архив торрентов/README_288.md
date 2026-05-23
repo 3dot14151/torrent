@@ -6,7 +6,7 @@ Deathman - All You Need Is Hate (2013) EP [MP3|320 kbps] <Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996254.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Poema Arcanus - 4 альбома (1999 - 2009)[MP3|320 кб/с]<Doom/Death Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996252.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Seven Nails - Factory Of Dreams (2013) [MP3|320 kbps] <Symphonic Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996248.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Holy Grail - Ride The Void (2013) [MP3|192 kbps] <Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996246.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ For All I Am - Skinwalker (2013) [MP3|320 kbps] <Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996245.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Sons of Aeon - Sons of Aeon (2013) [MP3|192 kbps] <Melodic Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996244.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996243.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Vaduz - Better Days (2012) [MP3|320 кб/с]<Hard Rock / Arena Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996240.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Vandroya - One (2012) [MP3|320 kbps] <Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996237.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Paolo Meneguzzi - Best Of - Sei Amore (2011) [MP3|320 кб/с]<pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996236.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996235.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ VoxCor - Глава III: Мистерия (2013) [MP3|320 kbps] <Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996231.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Gilrs Wallpaper Collection (2/2013) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996230.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Exist - Безысходность (2013) [MP3|320 kbps] <Alternative>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996225.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Encircle - Into the Dreamstate (2013) [MP3|320 kbps] <Progressive metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996224.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996223.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA-Попсовая Тусовка Зимы (2013) [MP3|256 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996222.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Everything Everything - Arc (2013) [FLAC|Lossless]<Indie-Rock, Indie-Pop, Experi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996217.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996216.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Infernal Poetry - Paraphiliac (2013) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996210.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996208.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ HQ Wallpapers Perfect Women (13.01.13) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996192.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996188.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Sexy Girls Wallpapers (2/2013) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996187.jpg" />
 </div>
 
 
@@ -761,7 +761,7 @@ Sexy Girls Pack Wallpapers (2/2013) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996180.jpg" />
 </div>
 
 
@@ -787,7 +787,7 @@ Interior Wallpapers (13.01.13) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996175.jpg" />
 </div>
 
 

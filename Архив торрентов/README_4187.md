@@ -6,7 +6,7 @@ AnyBurn 5.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161886.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 10 (v21h2) x64 LTSC 2021 by KulHunter v1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161878.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Tipard Video Converter Ultimate 10.1.10 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161873.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ CCleaner 5.88.9346 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161869.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ HitPaw Video Converter 2.6.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161861.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Strawberry 1.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161850.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Vivaldi 5.6.2867.50 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161837.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ The Bat! Professional 10.5.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161835.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ SoundSource 5.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161828.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ JRiver Media Center 30.0.41 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161822.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Bootstrap Studio 5.5.1 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161813.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Windows 10 21H2 (19044.1415) x64 Home + Pro + Enterprise (3in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161812.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Reason Studios Reason 12.5.0 STANDALONE, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161810.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Adobe InCopy 2023 18.1.0.51 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161808.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Kerish Doctor 2020 4.80 [DC 01.10 upd 17.12 2020] RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161807.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Solod: Коллекция Чистых Голосов / Solod: Clearvoices colle
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161796.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ BELOFF [dp] 2020.12.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161778.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Opera 94.0.4606.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161764.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Qalculate! 4.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161759.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Loopback 2.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161755.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Udemy, Andrei Neagoie и др.| Complete Ethical Hacking Bootcamp 2021: Zero to 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161752.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ DxO PhotoLab Elite 6.1.1 build 86 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161748.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Psiphon 3 build 176 (DC 19.12.2022) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161745.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ IObit Smart Defrag Pro 8.3.0.252 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161743.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ UltraISO Premium Edition 9.7.5.3716 (DC2020-12-19) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161710.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Rhinoceros 3D 8.0.23304.09001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161708.jpg" />
 </div>
 
 

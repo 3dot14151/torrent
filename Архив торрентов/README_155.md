@@ -6,7 +6,7 @@ Notepad3 5.21.227.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020253.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AVS Media Player 5.2.5.144 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020245.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Your Universal MultiBoot Installer UEFI 0.0.3.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020241.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PreEmptive Strike 0.1 - Discography 15 Releases (2006-2020) [MP3|320 Kbps] <Hars
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020231.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ R.saver 8.14 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020222.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Root Explorer 4.9.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020207.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ BELOFF 2021.04 Minimal (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020199.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Avast Premium Security 21.3.2459 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020189.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Avast Free Antivirus 21.3.2459 (build 21.3.6164.0) Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020186.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Cascadea 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020182.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Keep It 1.10.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020181.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mac DVDRipper Pro 9.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020180.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Hookshot 1.21.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020179.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Studies 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020178.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ BusyCal 3 v3.12.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020174.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Tap Forms Organizer 5 v5.3.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020173.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ AnyMP4 DVD Copy 3.122 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020172.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Data Extractor 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020171.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ RapidWeaver 8 v8.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020168.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.3.1946 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020167.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Deflection 5.11.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020164.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Live Home 3D Pro Edition 4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020161.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Disk Diet 5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020159.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Firefox Browser 78.10.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020158.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Slimjet 30.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020153.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ DxO PhotoLab 4 ELITE Edition 4.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020151.jpg" />
 </div>
 
 

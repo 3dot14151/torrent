@@ -1,29 +1,3 @@
-###  Публикация: 472118   (84006) от 23.03.2012
-
-Battlefield: Bad Company 2 + DLC Vietnam [Ru] (RePack/795745) 2010 | Naitro
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сохраняя все лучшие традиции серии, Battlefield: Bad Company 2 предлагает вниманию поклонников игры массу новых интересных возможностей.Сражаться предстоит в самых разных условиях: в заснеженных лесах и непроходимых джунглях, в жарких пустынях и неприступных горах, что предполагает использование соответствующей тактики. Также игроки смогут реализовывать уникальные тактические приемы, применяя в бою новые виды техники, включая вездеход (ATV) и транспортный вертолет UH-60. Кроме того, в проекте представлены широкие возможности для модификации техники и различных устройств, что существенно расширит число доступных комплектов снаряжения, оружия и боевых машин.Благодаря усовершенствованиям, внесенным разработчиками в уникальный графический движок Frostbite, в игре использованы современные визуальные эффекты, реалистичная система повреждений.(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F10505F13EA6E253CD4D7B15607C0B3CC5CB2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472180   (83979) от 23.03.2012
 
 Earache Extreme Metal Racing / Адские гонки [Ru/En] (L) 2007
@@ -32,7 +6,7 @@ Earache Extreme Metal Racing / Адские гонки [Ru/En] (L) 2007
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83979.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83808.jpg" />
 </div>
 
 
@@ -88,7 +62,7 @@ House of 1000 Doors: The Palm of Zoroaster. Collector's Edition / Дом 1000 д
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83779.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83777.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ House of 1000 Doors: The Palm of Zoroaster Collector’s Edition / Дом 1000 �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83748.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ Solitaire Mystery: Stolen Power (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83620.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ Living Legends: Ice Rose Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83617.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83561.jpg" />
 </div>
 
 
@@ -249,7 +223,7 @@ Liong: The Lost Amulets / Liong. Утраченные амулеты (P) [Ru] 20
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83509.jpg" />
 </div>
 
 
@@ -275,7 +249,7 @@ Archipelagoes / Ух-ты, бухты! (P) [Ru] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83470.jpg" />
 </div>
 
 
@@ -301,7 +275,7 @@ Allods Online Astral Demons / Аллоды Онлайн Astral Demons [Ru] (P) 2
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83386.jpg" />
 </div>
 
 
@@ -328,7 +302,7 @@ Dustforce [En] (RePack) 2012 | Anonymous
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83364.jpg" />
 </div>
 
 
@@ -355,7 +329,7 @@ Yetisports. Кругосветный пингвин. +бонус (L) [Ru/En] 200
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83328.jpg" />
 </div>
 
 
@@ -381,7 +355,7 @@ Amulet of Time: Shadow of La Rochelle / Путешествие во времен
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83307.jpg" />
 </div>
 
 
@@ -407,7 +381,7 @@ Easter Eggztravaganza (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83200.jpg" />
 </div>
 
 
@@ -433,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83143.jpg" />
 </div>
 
 
@@ -459,7 +433,7 @@ And Then There Were None / И не осталось никого... (L) [Ru/En] 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83114.jpg" />
 </div>
 
 
@@ -486,7 +460,7 @@ Dream Mysteries: Case of the Red Fox / Тайны грёз: История ры�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83078.jpg" />
 </div>
 
 
@@ -512,7 +486,7 @@ Cubis Gold 2 (P) [En] 2008
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83072.jpg" />
 </div>
 
 
@@ -538,7 +512,7 @@ Turbo Gems (P) [En] 2010
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83041.jpg" />
 </div>
 
 
@@ -564,7 +538,7 @@ Time Chronicles: The Missing Mona Lisa (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83039.jpg" />
 </div>
 
 
@@ -590,7 +564,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (L/Steam-Rip) 2012
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82983.jpg" />
 </div>
 
 
@@ -621,7 +595,7 @@ Marine Tower Defence / Ух-ты, бухты! (P) [Ru] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82758.jpg" />
 </div>
 
 
@@ -647,7 +621,7 @@ Memento Mori / Memento Mori: Помни о смерти (RePack) [Ru] 2008 | a-l
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82734.jpg" />
 </div>
 
 
@@ -673,7 +647,7 @@ Awakening: The Dreamless Castle / Пробуждение. Заколдованн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82708.jpg" />
 </div>
 
 
@@ -684,6 +658,32 @@ Awakening: The Dreamless Castle / Пробуждение. Заколдованн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5E9ED8C0A5ACB7B857A853B52A3B52813E2BCA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469167   (82694) от 17.03.2012
+
+The Agency of Anomalies 2: Cinderstone Orphanage. Collector's Edition / Агенство аномалий. Приют Синдерстоун. Коллекционное издание (P) [Ru] 2012
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сиквел мистической игры The Agency of Anomalies от Orneon и Большой рыбы. Спасите души одаренных детей и их опекунов, которые исчезли во время страшного пожара в приюте. Как детективу агентства аномалий, вам предстоит отыскать фантомы и выяснить, кто устроил поджог. Помогите обитателям приюта использовать свои необычайные способности, чтобы разрушить планы таинственного братства и спастись. Исследуйте великолепные локации для поиска скрытых объектов и раскройте мистическую тайну!Тип издания: ПираткаЖанр: Квест, Логическая, Я ищуЯзык озвучки: АнглийскийЯзык интерфейса: Русский (любительский перевод)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84947326E00999E9A5BF3AD761B79841C231B52C
 ```
 
 https://mybot314.ru/tekegram_catalog/

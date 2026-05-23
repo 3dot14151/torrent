@@ -1,57 +1,3 @@
-###  Публикация: 1163631   (447779) от 06.09.2017
-
-Стартрек: Возмездие / Star Trek Into Darkness (2013) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вернувшись на Землю, команда корабля «Энтерпрайз» обнаруживает, что деятельность и принципы их организации подорваны изнутри. Флот скован необъяснимым ужасом и бездействует, пока мир все глубже погружается в бездну.
-Капитан Кирк берет на себя руководство операцией по поимке злодея, ответственного за этот хаос и способного уничтожить все человечество.
-В запутанной (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: фантастика, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Крис Пайн, Закари Куинто, Бенедикт Камбербатч, Саймон Пегг, Карл Урбан, Зои Салдана, Элис Ив, Джон Чо, Антон Ельчин, Питер УэллерПеревод: Дублированный (Лицензия BD CEE)Субтитры: Русские (форс.+полные), украинские (полные), Английские (full+SHD)Продолжительность: 02:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1831CD28FE8E71ADFA423E0FA4364B2959972ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163549   (447770) от 06.09.2017
-
-Спасатели Малибу / Baywatch (2017) BDRip [H.264/720p-LQ] [Extended Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Группа пляжных спасателей работает на побережье Тихого океана. Они всегда находятся на своем посту и охраняют отдыхающих от несчастных случаев на воде. Главный герой, опытный спасатель Митч Бьюкеннон, и его молодой коллега Мэтт Броди случайно узнают, что их пляж находится под угрозой исчезновения. Большая нефтяная компания собирается разрушить побережье, преследуя (   Читать дальше...   )Производство: СШАЖанр: Комедия, Боевик, ДрамаРежиссер: Сет ГордонАктеры: Дуэйн Джонсон, Зак Эфрон, Приянка Чопра, Александра Даддарио, Келли Рорбах, Ильфенеш Хадера, Джон Басс, Яхья Абдул-Марин II, Хэннибал Бёресс, Роб ХюбельПеревод: Дублированный (iTunes)Субтитры: Русские (forced, full)Продолжительность: 02:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80870E9E274A92A6CD410D23E3E3138510CEFE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061293   (447750) от 10.10.2016
 
 Славные парни / The Nice Guys (2016) BDRip [H.264/1080p-LQ]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447750.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447749.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447726.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447691.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447689.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_447651.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447564.jpg" />
 </div>
 
 
@@ -246,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447550.jpg" />
 </div>
 
 
@@ -275,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447539.jpg" />
 </div>
 
 
@@ -301,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447455.jpg" />
 </div>
 
 
@@ -327,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447428.jpg" />
 </div>
 
 
@@ -353,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447364.jpg" />
 </div>
 
 
@@ -379,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447220.jpg" />
 </div>
 
 
@@ -405,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447208.jpg" />
 </div>
 
 
@@ -431,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447124.jpg" />
 </div>
 
 
@@ -457,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447116.jpg" />
 </div>
 
 
@@ -483,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447112.jpg" />
 </div>
 
 
@@ -510,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447100.jpg" />
 </div>
 
 
@@ -536,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447095.jpg" />
 </div>
 
 
@@ -562,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447012.jpg" />
 </div>
 
 
@@ -588,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446983.jpg" />
 </div>
 
 
@@ -615,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446979.jpg" />
 </div>
 
 
@@ -641,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446939.jpg" />
 </div>
 
 
@@ -667,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446917.jpg" />
 </div>
 
 
@@ -679,6 +625,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02D67ED93288691C279617D4D474906CCFC065DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943690   (446913) от 04.10.2015
+
+Белые пески / White Sands (1992) HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шериф из Нью-Мексико Рэй Долезал обнаруживает в пустыне труп с пистолетом в руке, а при нем чемоданчик с полумиллионном долларов. Рэй решает самостоятельно взяться за расследование. Он выдает себя за убитого и, став участником крупной сделки по продаже наркотиков, попадает в паутину интриг, сплетенную подпольным торговцем оружием, продажным агентом ФБР и роковой (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, драма, криминалРежиссер: Роджер ДональдсонАктеры: Уиллем Дефо, Микки Рурк, Мими Роджерс, Мэри Элизабет Мастрантонио, Сэмюэл Л. Джексон, М. Эммет Уолш, Джеймс Ребхорн, Мора Тирни, Бет Грант, Александр Никсей, Фредрик Лопез, Мигель Сандовал, Джон Лафайетт, Кен Торли, Джек Келер, Ройс Д. Эпплгейт, Миган Батлер, Лиза Клауд, Стив Кормье, Дж.Д. Гарфилд, Стив Тайлер, Уильям П. Беннет, Том Коннер, Мередит Маршалл, Док Филлипс, (   Читать дальше...   )Перевод: Авторский (Юрий Живов, Алексей Михалёв)Продолжительность: 01:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB3EE2D5E2E893C27913C7E3213B2954D1062A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943729   (446803) от 04.10.2015
+
+Двое в городе / Two Men in Town (2014) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мусульманин, вышедший из тюрьмы после многолетнего заключения, пытается начать новую жизнь. Но бывшие подельники и полицейский, поcадивший его за решетку, не верят в его исправление.Производство: Франция, Бельгия, Алжир, СШАЖанр: ДрамаРежиссер: Рашид БушаребАктеры: Форест Уитакер, Харви Кейтель, Бренда Блетин, Луис Гусман, Долорес Эредия, Эллен Бёрстин, Тим Гини, Рег Э. КэтиПеревод: Многоголосый закадровый (Официальный звук)Субтитры: ОтсутствуютПродолжительность: 01:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C960E552C1156508A957F2B9C09AA97D86AEFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

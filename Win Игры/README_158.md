@@ -1,29 +1,3 @@
-###  Публикация: 1284598   (727649) от 22.02.2019
-
-Fright Chasers: Dark Exposure (2017) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вы приходите в обсерваторию Килборн с вашим фотографом, чтобы исследовать ее после рядя странных сообщений. Когда вы приехали на место, начались какие-то необъяснимые явления, вещи быстро превращаются в причудливые, когда на них влияют потусторонние силы. Вашей помощнице-фотографу угрожает опасность! Сможете ли вы предотвратить все это и спасти ее.Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE9E71AC1CF8B3005EB62C3D83AF5319F49044CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284625   (727645) от 22.02.2019
 
 Mystery of the Ancients 8: No Escape (2019) [En] (1.0) Unofficial [Collector's Edition]
@@ -32,7 +6,7 @@ Mystery of the Ancients 8: No Escape (2019) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727645.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Word of the Law: Death Mask / Слово закона: Маска смерти (
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727637.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Valorant (2020) [Ru/Multi] (04.02.00.667943) License (обновляемая)
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727273.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Sudden Strike 4 (2017) [Ru/Multi] (1.15/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727175.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Chimeras 3: Cursed And Forgotten / Химеры 3: Прокляты и забы�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727023.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Pinstripe (2017) [Ru/Multi] (1.0.4) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726995.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Dangerous Golf (2016) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726933.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Adele: Following the Signs (2016) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726889.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Senran Kagura: Shinovi Versus (2016) [En/Ja] (1.0) License SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726884.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Phantasmat 13: Remains of Buried Memories (2019) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726421.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ X4: Foundations (2020) [Ru/Multi] (3.30.406216/dlc) Repack =alexalsp= [Updates P
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726299.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Crawl (2017) [En] (1.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725893.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Invasion 2: Doomed (2016) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725862.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ VA-11 HALL-A: Cyberpunk Bartender Action (2016) [En] (1.2.1.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725748.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Investigator (2016) [Ru/En] (1.14/dlc) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724903.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Fairies (2005) [En] (1.4b) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724896.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724762.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Tokyo Xanadu eX+ (2017) [En] (1.08/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724757.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Life Is Strange 2 (2018) [Ru/Multi] (1.0) License CPY [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724062.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Alien Cube (2021) [Ru/Multi] (Build 8187558) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723975.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Myths of the World 10: Bound by the Stone / Мифы народов мира 10:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723950.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Labyrinths Of The World 5: Secrets Of Easter Island / Лабиринты Мир�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723946.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17495) Repack YelloSOFT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723808.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ TurnOn (2016) [Ru/Multi] (1.0.0.7) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723521.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Stories: The Path of Destinies (2016) [Ru/Multi] (0.0.13825) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723431.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Stories: The Path of Destinies (2016) [Ru/Multi] (0.0.13825) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:712C05B4D3DA6EE69BDB38C713BBD99BB356C195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023570   (723341) от 05.06.2016
+
+Brigador (2016) [En] (1.0/dlc) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brigador - это изометрический экшен, в котором игроку на одном из нескольких видов боевой техники предстоит освободить один город от тирании, уничтожив все правительственные войска.Тип издания: RepackРазработчик: Stellar Jockeys, GausswerksЖанр: Arcade, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD3BD7F618FF427737F7A906D5E41ED12553AEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

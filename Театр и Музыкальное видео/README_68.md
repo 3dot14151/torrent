@@ -1,122 +1,3 @@
-###  Публикация: 921815   (573647) от 26.07.2015
-
-U.D.O. - Live in Sofia (2012) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Концерт группы U.D.O., прошедший 16 ноября 2011 года в Софии (Болгария).01. Rev-Raptor
-02. Dominator
-03. Thunderball
-04. Leatherhead(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246F933482049988EB5B01A9B248F66EF75E73A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921772   (573583) от 26.07.2015
-
-Status Quo - Back2SQ1 - The Frantic Four Reunion, Live at Wembley Arena (2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Концерт Status Quo на Wembley Arena в марте 2013 года. Status Quo — британская рок-группа, основанная бас-гитаристом Аланом Ланкастером и гитаристом Фрэнсисом Росси в 1962 году в Лондоне, Англия.01. Intro/Junior's Wailing
-02. Backwater
-03. Just Take Me
-04. Is There a Better Way(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues Rock, Rock 'n' RollРежиссер: Andy Gamble, Jaff CousinsПродолжительность: 01:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F478E4C3ECC8A7C83C5EEF1BF6E08C350D39DB80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528494   (573316) от 28.07.2012
-
-Alex Kunnari vs. Delerium feat. Sarah McLachlan - Lost Silence (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B98D920C1DE2D97A8387934299D0DCEC3380BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528533   (572886) от 28.07.2012
-
-Liquid Tension Experiment: Live in L.A. (2008) BDRip 720p
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Официальный бутлег группы Dream Theater под названием1. Acid Rain (9:25)
-2. Kindred Spirits (8:00)
-3. Biaxident (7:39)
-4. Freedom of Speech (9:00)
-5. Improv Jam #1 (8:10)
-6. Another Dimension (10:51)
-7. State of Grace (6:20)
-8. Universal Mind (9:36)
-9. When the Water Breaks (16:49)
-10. Improv Jam #2 (11:31)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalАктеры: John Petrucci (guitars) Mike Portnoy (drums) Tony Levin (bass, Chapman stick) Jordan Rudess (keyboard)Перевод: ОтсутствуетПродолжительность: 02:16:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043276   (571887) от 16.08.2016
 
 The Rolling Stones - Totally Stripped (1995) Blu-ray [H.264/1080i]
@@ -125,7 +6,7 @@ The Rolling Stones - Totally Stripped (1995) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571887.jpg" />
 </div>
 
 
@@ -151,7 +32,7 @@ Aerosmith - Rock For The Rising Sun (2013) BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571607.jpg" />
 </div>
 
 
@@ -180,7 +61,7 @@ U.D.O. – Steelhammer - Live from Moscow (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571594.jpg" />
 </div>
 
 
@@ -209,7 +90,7 @@ Blackmore's Night - A Knight In York (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571426.jpg" />
 </div>
 
 
@@ -238,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571050.jpg" />
 </div>
 
 
@@ -264,7 +145,7 @@ David Gilmour (Pink Floyd) - "Live at Later with Jools Holland" (2008) HDTV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_571004.jpg" />
 </div>
 
 
@@ -290,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570927.jpg" />
 </div>
 
 
@@ -316,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570800.jpg" />
 </div>
 
 
@@ -342,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570750.jpg" />
 </div>
 
 
@@ -368,7 +249,7 @@ Ozzy Osbourne - Speak Of The Devil (17.07.2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_570559.jpg" />
 </div>
 
 
@@ -394,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570334.jpg" />
 </div>
 
 
@@ -425,7 +306,7 @@ Styx - The Grand Illusion / Pieces of Eight Live (2010/2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569821.jpg" />
 </div>
 
 
@@ -454,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569637.jpg" />
 </div>
 
 
@@ -483,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569224.jpg" />
 </div>
 
 
@@ -513,7 +394,7 @@ The BEATLES: Invade Paris! Conquer America! 1964 Vol.1 (2011) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568821.jpg" />
 </div>
 
 
@@ -539,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568491.jpg" />
 </div>
 
 
@@ -565,7 +446,7 @@ Fare Thee Well - Weekend One / Grateful Dead Live Jun 27 & 28, 2015 at Levi's St
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568060.jpg" />
 </div>
 
 
@@ -591,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567083.jpg" />
 </div>
 
 
@@ -620,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566851.jpg" />
 </div>
 
 
@@ -651,7 +532,7 @@ Wizards And Demons - Официальная история Uriah Heep / Uriah He
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566445.jpg" />
 </div>
 
 
@@ -680,7 +561,7 @@ Shakira - Oral Fixation Tour (2007) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565954.jpg" />
 </div>
 
 
@@ -709,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565837.jpg" />
 </div>
 
 
@@ -720,6 +601,117 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E46E66ED7049C2B7FEB2FA9521FAE9BFFF703C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234848   (565558) от 08.07.2018
+
+Norah Jones - Live At Ronnie Scott's 2017 (2018) DVD5 [hand made]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия выступления Норы Джонс,состоявшегося 26.09.2017г в зале Ronnie Scott's Jazz Club (Лондон).Intro
+01.Sleeping Wild
+02.Don't Be Denied
+03.After the Fall(   Читать дальше...   )Производство: Eagle VisionЖанр: Jazz, Vocal JazzРежиссер: Nick WickhamАктеры: Norah Jones, Chris Thomas, Brian BladeПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CE604C92A5D89B86F67464378D7EB2E94DE6DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044624   (565182) от 20.08.2016
+
+Алексей Арбузов - Сказки старого Арбата (1973) DVDRip (3 части) (Ленинградский театр драмы им. А.С. Пушкина)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль в трех действиях, поставленный по одноименной пьесе А. Арбузова Ленинградским государственным академическим театром драмы имени А.С. Пушкина. Постановка Александра Александровича Музиля.
+Далекие шестидесятые - время романтических порывов, глубоких чувств и чистых помыслов. В одном из тихих уютных переулков старой Москвы живет талантливый кукольный мастер (   Читать дальше...   )Производство: СССР, Главная редакция литературно-драматических программ Гостелерадио СССР, Ленинградский государственный академический театр драмы имени А.С. ПушкинаЖанр: Спектакль, комедияРежиссер: Александр МузильАктеры: Бруно Фрейндлих, Юрий Толубеев, Нелли Максимова, Виктор Семеновский, Семён Сытник, Александр Борисов (I)Продолжительность: 00:57:09 + 00:44:04 + 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C688B02E0FA491C5E737D2EABF64469852334F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 813519   (565064) от 17.08.2014
+
+Три тенора в Париже. The 3 Tenors, Paris (1998) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление знаменитых теноров  Хосе Каррерас, Пласидо Доминго, Лучано Паваротти в Париже в 1998 году.01. Hector Berlioz - Le Carnaval Romain (Levine, orch.)
+02. Giuseppe Pietri - Maristella - "Io conosco un giardino" (Carreras)
+03. Umberto Giordano - Fedora - "Amor ti vieta" (Domingo)
+04. Giuseppe Verdi - Luisa Miller - "Quando Lle sere al placido" (Pavarotti)(   Читать дальше...   )Жанр: Концерт, Opera, ClassicalПродолжительность: 02:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FDF33797CB072B78C79CA08E71D2C0CAE64EBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364122   (564934) от 16.07.2011
+
+The Eagles - Hotel California (2005) HDTV [MPEG-2/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бессмертный хит "Hotel California" из австралийского концерта "The Farewell 1 Tour" на RodLaver Arena в Мельбурне в 2005г.Жанр: Classic Rock, Country RockРежиссер: NBCАктеры: The EaglesПродолжительность: 00:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01037F6007CED346D623BB2F58C8D26C83768A6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

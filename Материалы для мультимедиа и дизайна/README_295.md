@@ -1,31 +1,3 @@
-###  Публикация: 502985   (259424) от 29.05.2012
-
-Digital Juice - Juice Drops Collection One: clearNTENT (Full Files Tif-zip)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Juice Drops Collection One: clearlNTENT - Новая библиотека многослойной графики от компании Digital Juice. После трехлетнего перерыва, Juice Drops вернулись - и они больше и лучше, чем когда-либо! Juice Drops Collections являются обновлённой линией Juice Drops с множеством новейших коллекций. В отличие от прошлых сборников Juice Drops, которые включали до сотни изображений и имели тематическую направленность, эта новая библиотека содержит более 400 новых многослойных Photoshop-файлов и является более универсальной, включает широкий спектр стилей, тем и направлений.
-
-Сборник Juice Drops Collection One: clearlNTENT содержит более 400 файлов многослойной графики - иллюстраций в формате Adobe Photoshop (.psd) со слоями, которые не сведены вместе, а доступны для редактирования. Такой способ представления иллюстраций в виде "полуфабрикатов" открывает неограниченные возможности для творчества. С каждым из множества слоёв иллюстрации вы можете делать практически всё, что захотите: корректировать, удалять, переставлять, (   Читать дальше...   )Разрешение файлов: 6000×3375
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D986C34581465FEA1385274454DC4DB4891749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 502592   (259243) от 28.05.2012
 
 Растровый клипарт - Весёлый 3D-алфавит [PNG]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259243.jpg" />
 </div>
 
 
@@ -61,7 +33,7 @@ Prime Loops - XXL R&B Drums by SYNTHiC4TE for Kontakt[NKI|WAV][английск�
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258400.jpg" />
 </div>
 
 
@@ -93,7 +65,7 @@ Monster Sounds - Heavy Weight Analogue Subs [WAV|Sampler Pathes Kontakt|Halion|E
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258370.jpg" />
 </div>
 
 
@@ -119,7 +91,7 @@ The LoopLoft - Rock Steady vol.1 by DYNAMiCS[AiFF/Apple Loops/REX2/WAV][англ
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258330.jpg" />
 </div>
 
 
@@ -151,7 +123,7 @@ Inspiration Sounds - Pure Live Breaks Vol.1[ACID/APPLE LOOPS/REX/WAV][англи
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258328.jpg" />
 </div>
 
 
@@ -181,7 +153,7 @@ Digital Juice - Ready2Go: Collection 05 (AE) (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258186.jpg" />
 </div>
 
 
@@ -211,7 +183,7 @@ Wavesfactory - Royal Guitar for Kontakt [NKI|WAV][английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258175.jpg" />
 </div>
 
 
@@ -242,7 +214,7 @@ Live Soundz Productions - All That Jazz Vol 3 (WAV/Reason/MIDI/Demo MP3)[анг�
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258121.jpg" />
 </div>
 
 
@@ -268,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258020.jpg" />
 </div>
 
 
@@ -294,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258016.jpg" />
 </div>
 
 
@@ -320,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257946.jpg" />
 </div>
 
 
@@ -346,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257945.jpg" />
 </div>
 
 
@@ -372,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257812.jpg" />
 </div>
 
 
@@ -398,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257807.jpg" />
 </div>
 
 
@@ -425,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257801.jpg" />
 </div>
 
 
@@ -451,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257776.jpg" />
 </div>
 
 
@@ -477,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257763.jpg" />
 </div>
 
 
@@ -505,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257524.jpg" />
 </div>
 
 
@@ -534,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257315.jpg" />
 </div>
 
 
@@ -563,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257304.jpg" />
 </div>
 
 
@@ -589,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256729.jpg" />
 </div>
 
 
@@ -615,7 +587,7 @@ Digital Juice - RevealerBoxx - Volume 1 to 18 [MP4, MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256611.jpg" />
 </div>
 
 
@@ -641,7 +613,7 @@ Packs 10 000 Presets for Ni Massive[KSD/WAV/MIDI/Patches NMSV/EXE][англий�
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255978.jpg" />
 </div>
 
 
@@ -672,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255678.jpg" />
 </div>
 
 
@@ -698,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255077.jpg" />
 </div>
 
 
@@ -710,6 +682,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EB0C64313D92061924E382AA7581344B9139529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 652538   (254540) от 06.05.2023
+
+Шаблоны - Открытки к 9 Мая [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Открытки для поздравлений к Дню Победы Великой Отечественной Войны.Формат: PSDРазрешение файлов: 1200x1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC873D8E040E3506B53A09E2758183ECF343C5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

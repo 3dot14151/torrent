@@ -6,7 +6,7 @@ Revo Uninstaller Pro 3.0.2 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964925.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Adobe Acrobat Reader DC 2020.006.20034 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964875.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Adobe Acrobat Pro DC 2020.006.20034 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964867.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ TuneUp Utilities 2013 13.0.3020.19 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964845.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ XviD4PSP 5.10.305.0 (2012-09-13) RC32.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964783.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ TuneUp Utilities 2013 13.0.3020.19 Final RePack (& portable) by KpoJIuK [Рус�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964782.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ oCam Screen Recorder 202.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964664.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Bigasoft Total Video Converter 5.0.9.5854 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964661.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Slimjet 7.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964586.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Free Studio 6.6.1.119 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964551.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Artweaver Free 5.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964545.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Google Chrome 48.0.2564.82 Stable Portable by PortableApps (Веб-устано�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964541.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Filter Forge 4.008 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964511.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ AVG AntiVirus 2016 16.31.7357 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964464.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Process Lasso Pro 8.9.3.4 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964463.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Soft Organizer 5.03 RePacK by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964443.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ AVG Internet Security 2016 16.31.7357 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964412.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Google Chrome 48.0.2564.82 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964397.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Dr.Web Remover 10.0.2.201506180 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964394.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Bigasoft Audio Converter 5.0.9.5854 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964392.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ CPU-Z 1.75.0 | MSI Gaming | ROG Version | Gigabyte G1 | Gigabyte OC | ASRock For
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964351.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964348.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ R-Studio 7.8 Build 160808 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964346.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964344.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ DriverPack Solution Online 17.3.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964334.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Vivaldi 2.11.1811.33 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964302.jpg" />
 </div>
 
 

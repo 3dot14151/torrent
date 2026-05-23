@@ -6,7 +6,7 @@ Infix PDF Editor Pro 6.43 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409254.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Calibre 2.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409249.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mirillis Action! 1.28.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409243.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PotPlayer 1.7.21295 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409234.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ ClubTimer 2.80 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_409229.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Foxit Reader 10.1.0.37527 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409228.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Red Giant Universe 3.3.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409200.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mozilla Thunderbird 60.2.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409187.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Auslogics Disk Defrag Free 8.0.17.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409184.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Electronik Sound Lab - 808 Bass Module III UPDATE 3.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409178.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Advanced SystemCare Pro 10.0.3.666 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409151.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Maxthon Cloud Browser 5.0.1.3000 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409146.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VirtualBox 5.0.8 r103449 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409133.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VirtualBox 5.0.8 r103449 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409132.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ O&O Defrag Professional 19.0 Build 99 Portable by KloneB@DGuY [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409120.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Boris Continuum Complete Adobe CS3-CS6 (32/64) 8.1.1 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_409104.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409093.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Advanced SystemCare Pro 10.0.3.666 Portable by FCPortables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409073.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Movavi Video Suite 16.0.1 Portable by Baltagy [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409063.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409060.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Java SE Runtime Environment 8.0 Update 66 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409045.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Theme Windows7 Diablo 3 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_409030.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ PingPlotter Pro 3.40.2p [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_409028.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Trial ключи для ESET NOD32 Smart Security v.5 от 11.10.2012
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_409025.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409003.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Process Lasso Pro 9.0.0.492 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409002.jpg" />
 </div>
 
 

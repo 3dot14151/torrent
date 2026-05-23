@@ -1,56 +1,3 @@
-###  Публикация: 744828   (513555) от 24.08.2015
-
-SMS Backup & Restore Pro v7.46 [Ru/Multi]  - создание резервных копий сообщений SMS
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-SMS Backup & Restore — утилита для создания резервных копий сообщений SMS и их восстановления. Возможно создание бекапов автоматически по расписанию. При создании резервной копии можно указать название файла. В настройках приложения вы можете изменить каталог, где сохраняются файлы резервных копий.Тип издания: Взломана / ПираткаРелиз состоялся: 20.08.2015Разработчик: Ritesh SahuПоддерживаемая ОС: Android 1.5+Язык интерфейса: Мульти / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19116B82E5EB3C9E971FAD4D3FA893334D2D612A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561660   (513527) от 06.07.2022
-
-JAVAD Mobile Tools v4.4.5 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Программа Javad Mobile Tools (J-Mobile) позволяет подключать приемники JAVAD GNSS к вашим устройствам с Android™ через Bluetooth® или WiFi. Так же возможно подключение через Интернет для управления удаленными базовыми станциями.
-J-Mobile разработана для ГНСС приемников JAVAD TRIUMPH-2, TRIUMPH-1/1M, ALPHA, SIGMA и новейших TRIUMPH-3 (необходима OAF-опция), TRIUMPH-OMEGA (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 11 июл. 2021 гРазработчик: JAVAD GNSS INCПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63A36CC44CDBE42329C283C01BF48C4D0252C61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561669   (513520) от 06.07.2022
 
 Сберометр: курс доллара завтра v1.26.1 [Ru]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513520.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513459.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ Shuttle+ Music Player 2.0.17 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512408.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ MarineTraffic v4.0.31 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512406.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ KReader PRO v3.4.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512368.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ BlackPlayer Music Player / BlackPlayer EX 20.61 Mod by Balatan, CMAPTOC [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512357.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512352.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ Aman VPN—Secure&Fast VPN Proxy v2.0.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512238.jpg" />
 </div>
 
 
@@ -272,7 +219,7 @@ Flat Equalizer - Bass Booster 4.2.8 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511480.jpg" />
 </div>
 
 
@@ -298,7 +245,7 @@ Weather Radar Live Tracker PRO v1.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511454.jpg" />
 </div>
 
 
@@ -324,7 +271,7 @@ Pulsar Music Player Pro 1.11.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511446.jpg" />
 </div>
 
 
@@ -350,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511441.jpg" />
 </div>
 
 
@@ -376,7 +323,7 @@ CCSWE App Manager (SAMSUNG) 6.2.0 Mod by Giacomino [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508953.jpg" />
 </div>
 
 
@@ -402,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508943.jpg" />
 </div>
 
 
@@ -428,7 +375,7 @@ Multi Parallel - Multiple Accounts & App Clone 1.6.30.1025 Mod by derrin [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508936.jpg" />
 </div>
 
 
@@ -454,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508881.jpg" />
 </div>
 
 
@@ -480,7 +427,7 @@ Zoetropic - движущееся фото 2.1.20 Mod by LunaDev [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508880.jpg" />
 </div>
 
 
@@ -506,7 +453,7 @@ Litchi for DJI Drones 4.22.1-g Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508874.jpg" />
 </div>
 
 
@@ -532,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508871.jpg" />
 </div>
 
 
@@ -559,7 +506,7 @@ LockMyPix - Шифратор для фото 5.2.3.7 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508057.jpg" />
 </div>
 
 
@@ -585,7 +532,7 @@ Edge Gestures 1.10.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507988.jpg" />
 </div>
 
 
@@ -611,7 +558,7 @@ Volume Panel Pro 21.19 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507976.jpg" />
 </div>
 
 
@@ -637,7 +584,7 @@ Deliveries - Трекинг Посылок 5.7.21 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507908.jpg" />
 </div>
 
 
@@ -663,7 +610,7 @@ PixaMotion - аниматор фото и редактор-синемаграф�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507898.jpg" />
 </div>
 
 
@@ -674,6 +621,58 @@ PixaMotion - создавайте живые фотографии, живые о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65CB6E4FA9103CEDF8F02DCD2AE05B485BF44615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562985   (507047) от 11.07.2022
+
+Termux 0.118 Mod by Идите Лесом + Plugins [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Termux - представляет собой полноценный эмулятор терминала Linux со всеми его возможностями. С Termux вы можете почувствовать себя владельцем самого настоящего карманного компьютера на Linux.  Среди основных функций приложения: оболочки bash и zsh, редактирование файлов через nano и vim, полноценный доступ и управление серверами через ssh, компилирование кода с помощью (   Читать дальше...   )Тип издания: Оригинал + МодификацииРелиз состоялся: 12.01.2022Разработчик: Fredrik FornwallПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583348517EED380830CC40C27689F40B21FD752E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562973   (507043) от 11.07.2022
+
+Parallel Space - Multi Accounts 4.0.9177 Mod by derrin, KirIif', GuanYinLite [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parallel Space - является приложением, которое может запустить несколько копий одного приложения в одно и то же время на разных аккаунтах. Нажмите на "+" в интерфейсе и выберите приложение, которое вам требуется клонировать. Второй аккаунт не будет влиять на основной аккаунт.Тип издания: Pro + Pro-Lite + ModРелиз состоялся: 31.03.2022Разработчик: LBE TechПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C81C6504C938971FC8052B4AE3A0E26C8B341A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ MInstAll v.21.09.2025 By Andreyonohov (Unpacked) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_456.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1355359   (983238) от 26.01.2020
-
-Path of Zen (2020) [En] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-«Path of Zen» - это приключение, которое приводит игрока к спокойной прогулке по парку, где он исследует, как его мысли могут влиять на восприятие реальности. Игра представляет собой небольшое введение в медитацию с помощью короткого дыхательного упражнения и призвана дать игроку осознанный взгляд на то, как он можем справляться со своими мыслями. Присоединяйтесь (   Читать дальше...   )Тип издания: LicenseРазработчик: Longest Road StudioЖанр: Приключения, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC4E4C1D9A94EF6A9B29C447D436994DB7004B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 195383   (983145) от 26.01.2020
 
 Invention Highway / Как решить проблему (200) [Ru] (1.0) License
@@ -32,7 +6,7 @@ Invention Highway / Как решить проблему (200) [Ru] (1.0) Licens
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983145.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Runner Heroes: The curse of night and day (2020) [Ru/Multi] (1.0) License HOODLU
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983142.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983137.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Antichamber [En] (Repack/1.0) 2013 | THETA
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982235.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Sims 3 Create-A-Pattern / The Sims 3 Редактор создания ст�
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982143.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Fieldrunners 2 [En] (RePack) 2013 | Scorp1oN
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982129.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Mythic Wonders: The Philosopher's Stone (2014) [En] Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981916.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Cargo! The Quest For Gravity / Эврика! [Ru/En/Multi9] (L) 2011 | PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980954.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ Poker Night at The Inventory [En] (P/1.0.0.1) 2010
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980948.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ Ghostbusters: The Video Game [Ru/En] (RePack) 2009 l R.G. Games
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980869.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ Lightmatter (2020) [Ru/Multi] (1.02) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980810.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ Last in Orbit (2020) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980759.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ Louisiana Adventure / Однажды в Луизиане [Ru] (RePack) 2013 | Se
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980461.jpg" />
 </div>
 
 
@@ -380,7 +354,7 @@ Darkarta. A Broken Hearts Quest / Darkarta: Поиск разбитого сер
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980422.jpg" />
 </div>
 
 
@@ -406,7 +380,7 @@ Hidden Expedition 10: The Fountain of Youth (2015) [En] Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980168.jpg" />
 </div>
 
 
@@ -432,7 +406,7 @@ Deponia: The Complete Journey (2014) [Ru/Multi] (3.3.0155) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979883.jpg" />
 </div>
 
 
@@ -458,7 +432,7 @@ Escape The Manor (2020) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979723.jpg" />
 </div>
 
 
@@ -484,7 +458,7 @@ Lightmatter (2020) [Ru/Multi] (1.05/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979706.jpg" />
 </div>
 
 
@@ -510,7 +484,7 @@ King Arthur: The Role-playing Wargame / Король Артур [Ru] (L) 2009
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979548.jpg" />
 </div>
 
 
@@ -538,7 +512,7 @@ Living Legends 8: The Crystal Tear (2020) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978726.jpg" />
 </div>
 
 
@@ -564,7 +538,7 @@ PILOT'S Microsoft Flight Simulator X Global Ultimate Europe & Africa (Add-on/Mes
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978654.jpg" />
 </div>
 
 
@@ -591,7 +565,7 @@ Mutazione (2019) [Ru/Multi] (1.7.5805) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978534.jpg" />
 </div>
 
 
@@ -617,7 +591,7 @@ Journey to the Savage Planet (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978452.jpg" />
 </div>
 
 
@@ -643,7 +617,7 @@ Lucius [Ru/En/Multi7] (L) 2012 | PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978316.jpg" />
 </div>
 
 
@@ -669,7 +643,7 @@ Deadlight [Ru/En/Multi7] (L) 2012 | PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978301.jpg" />
 </div>
 
 
@@ -683,6 +657,34 @@ Deadlight [Ru/En/Multi7] (L) 2012 | PROPHET
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84FCFB25E0937E955383D2798F3FDDD76303C8E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615215   (978261) от 07.02.2013
+
+Man of Prey / Мародер [En] (L) 2009 | PROPHET
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Мародер – это новая тактическая стратегия от студии Апейрон с использованием фирменной механики SPM и элементами РПГ. Сюжет игры создан по мотивам книги Беркема аль Атоми «Мародер».
+В стране пришли к власти проамериканские силы и в Россию были введены американские «миротворцы» для «наведения порядка и окончательного провозглашения демократии». На деле же, иноземцев интересовали лишь природные ресурсы. Поддержание порядка и благополучия гражданского населения не входило в задачи военного контингента. После самороспуска органов управления, военных и милиции большая часть населения провинциального уральского городка «Тридцатки» погрязла в кровопролитной гражданской войне.
+Игрок выступает в роли мародера Ахмета, которому предстоит выжить в сложившейся ситуации. Начав игру с двустволкой и кучкой патронов, игроку предстоит собрать «семью» (отряд от одного до четырех человек), вооружить её и выжить в условиях постоянной войны «всех против всех».(   Читать дальше...   )Тип издания: ЛицензияЖанр: Strategy / Real-time / Tactical / RPG / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:436A2309B2E5A8D8A9AED9886098D6CC082C9B1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

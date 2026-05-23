@@ -6,7 +6,7 @@ Multi Commander Full Edition 11.6 Build  2845 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582805.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ StartAllBack 3.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582804.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Winamp Essentials Pack 5.62 [Русский, английский] / (плюс 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582770.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Ultra Adware Killer 3.1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582735.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Strygools 0.0.3 [Ru] (Обновляемая авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582732.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Mozilla Firefox 5.0 TwinTurbo Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582716.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ MKVToolNix 8.2.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582698.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ WebcamXP 5.5.1.0 Build 33520 [ML/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582675.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ AutoPlay Media Studio 8.5.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582634.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Uniblue Powersuite 2015 4.3.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582562.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Advanced Driver Updater 2.7.1086.16665 Final RePack by KaktusTV [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582559.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Adobe Illustrator CC 2015 19.0.1 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582548.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Avast! Pro Antivirus v6.0.1203 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582517.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Avast! Free Antivirus 6.0.1203 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_582513.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Mozilla Firefox 49.0 beta 2 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582439.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ PicPick 4.1.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582421.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582301.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ DevID Agent 4.25 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582241.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Clipdiary 4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582232.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Microsoft Toolkit 2.6 Stable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582230.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Vivaldi 2.5.1525.41 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582200.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ UltraUXThemePatcher 3.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582170.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ ManyCam Virtual Webcam Free 5.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582163.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Ashampoo WinOptimizer 17.00.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582142.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ AAct 1.5 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582139.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Adobe Flash Player 32.0.0.192 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582095.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1155069   (537069) от 01.08.2017
-
-Myths of the World 11: The Black Sun (2017) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной мистической серии игр Myths of the World. На этот раз в городе начались беспорядки из-за ожившей статуи гигантской ящерицы, которая теперь способна превращать людей в камень. Командор вашего родного города пропал без вести, и вас призвали провести расследование. Странное создание перед исчезновением превратило вашего отца в камень. Это гонка (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5D674C2158867BC702E0E34829E7CA2D02E1E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556814   (537050) от 17.06.2022
 
 Card Shark (2022) [Ru/Multi] (1.2.2206160951) License GOG [Deluxe Edition]
@@ -32,7 +6,7 @@ Card Shark (2022) [Ru/Multi] (1.2.2206160951) License GOG [Deluxe Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537050.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Dungeons of Edera (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537046.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Flights Of Fancy: Two Doves / Полёты фантазии: Два голубя
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537039.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537025.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Kingdom Of Aurelia: Mystery Of The Poisoned Dagger / Королевство Ау
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536990.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Dark Realm 4: Guardian Of Flames (2017) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536981.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Green Moon 2. Children of the Moon / Зеленая Луна 2. Дети Лун�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536886.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Transformers: Devastation (2015) [Ru/En] (1.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535969.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Transformers: Devastation (2015) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535957.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Blades of Time / Клинки Времени [Ru/En] (RePack/u5) 2012 | R.G. Shi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535885.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ Hydrophobia: Prophecy [Multi9/Ru] (Steam-Rip/1.1) 2011 | R.G. GameWorks
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535878.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Blood Bowl 2 (2015) [Ru/Multi] (2.3.17.1/dlc) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535872.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ NECROPOLIS: A Diabolical Dungeon Delve (2016) [Ru/Multi] (1.1) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535857.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ Afterfall: Insanity Extended Edition / Afterfall: Тень прошлого Ра
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535755.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ Amaranthine Voyage 8. The Burning Sky (2017) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535316.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Punished Talents: Seven Muses / Наказанные талантом: Семь 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535263.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Titanfall 2 (2016) [En] (2.0.7.0) License CODEX [patch]
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534870.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ A Story About My Uncle (2014) [Ru/Multi] (build 3717) Repack R.G. Механик
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534823.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ MachiaVillain (2018) [Ru/Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534761.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Don't Play With Dolls (2018) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534758.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Rat Simulator (2017) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534744.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ Kayf-Life Remake 2017 (2017) [Ru] (1.0.0.0) Mod Antinomy Collective
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534740.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Lara Croft and the Temple of Osiris (2014) [Ru/En] (1.1.240.4/dlc) Repack R.G. �
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534689.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ Star Wars: The Clone Wars - Republic Heroes (2009) [Ru/En] Repack R.G. Меха�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534685.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ Flipping Death (2018) [Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534623.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ Flipping Death (2018) [Multi] (1.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D31E00B07320BD8748E41417CBF86FAC658C36C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207984   (534608) от 07.08.2018
+
+Monster Energy Supercross - The Official Videogame (2018) [Multi] (1.0/dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monster Energy Supercross - The Official Videogame - симулятор от Milestone S.r.l.. Игроку предлагается принять участие в профессиональных гонках по бездорожью, в лиге Supercross. В игре предлагается множество известных стадионов и трасс, а также огромное колличество лицензионных гоночных байков, мельчайшие детали которых разработчики воссоздали с высокой точностью.Тип издания: RepackРазработчик: Milestone S.r.l.Жанр: Racing, Simulation, SportsЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234511F4618C9D54628C88098626E1D5005ED1B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

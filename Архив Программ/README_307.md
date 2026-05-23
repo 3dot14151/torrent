@@ -6,7 +6,7 @@ OpenShot 2.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899926.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 10 Manager 3.2.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899925.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AOMEI Partition Assistant Technician Edition 8.7 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899924.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AOMEI Partition Assistant Standard Edition 8.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899923.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Windows 10 Manager 3.2.4.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899896.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ MEmu 7.1.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899826.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Topaz Video Enhance AI 1.2.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899814.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ HelpSmith 6.4.16.1107 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899641.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Total Uninstall 6.18.0 Professional Edition RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899639.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Replay Video Capture 8.8.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899634.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Phase One Capture One Pro 20 13.0.4.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899614.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Kaspersky Anti-Virus 2020 20.0.14.1085 (h) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899610.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Dr.Web Security Space 12.0.2.3110 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899598.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ CCleaner 5.65.7632 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899591.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ GoldWave 6.26 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899547.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Bulk Crap Uninstaller 3.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899543.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Avant Browser Ultimate 2017 build 02 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899525.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Mozilla Firefox 52.0 beta 3 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899523.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ TrayRadio 13.2.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899364.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Download Master 6.12.1.1541 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899359.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Punto Switcher 4.3.4 Build 1753 Final RePack by D!akov (03.02.2017) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899351.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Download Master 6.12.1.1541 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899257.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Total Uninstall 6.18.0 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899246.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ CDBurnerXP 4.5.7.6521 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899243.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Slimjet 13.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899227.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Replay Media Splitter 3.0.1702.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899195.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1691442   (3428) от 11.09.2025
-
-Реквием по мечте / Requiem for a Dream (2000) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit] [Director's Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Каждый стремится к своей заветной мечте. Сара Голдфарб мечтала сняться в известном телешоу, ее сын Гарольд с другом Тайроном — сказочно разбогатеть, подруга Гарольда Мэрион грезила о собственном модном магазине, но на их пути были всевозможные препятствия. Все они выбирают неочевидные пути достижения своих целей, и мечты по-прежнему остаются недостижимыми, а жизни (   Читать дальше...   )Производство: США / Artisan Entertainment, Thousand Words, Sibling ProductionsЖанр: драмаРежиссер: Даррен АронофскиАктеры: Джаред Лето, Марлон Уайанс, Дженнифер Коннелли, Эллен Бёрстин, Кристофер Макдональд, Луиза Лэссер, Марша Джин Кертц, Джанет Сарно, Сюзанн Шеперд, Джоэнн ГордонПеревод: Дублированный, профессиональный (многоголосый, закадровый), авторский (одноголосый)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (full x2), английскиеПродолжительность: 01:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29074415344E5AA02B97714238A308DE4C722F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173269   (3423) от 11.09.2025
-
-Помни / Memento (2000) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Леонард Шелби изысканно и дорого одет, ездит на новеньком «Ягуаре», но проживает в дешевых мотелях. Его цель в жизни — найти убийцу жены. Его проблема — редкая форма амнезии, потеря короткой памяти, помня все до убийства, он не помнит, что было пятнадцать минут назад.Производство: США / Newmarket Capital Group, Team Todd, I Remember ProductionsЖанр: Триллер, Детектив, Драма, КриминалРежиссер: Кристофер НоланАктеры: Гай Пирс, Кэрри-Энн Мосс, Джо Пантолиано, Марк Бун Джуниор, Russ Fega, Джоржа Фокс, Стивен Тоболовски, Харриет Сэнсом Харрис, Томас Леннон, Каллум Кит Ренни, Кимберли Кэмпбелл, Марианн Мюллерлейл, Ларри Холден, Базз ВисконтиПеревод: Дублированный («Мосфильм» по заказу компании «West»)Субтитры: Русские (6 вариантов), Английские (2 варианта)Продолжительность: 01:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D39B6C1DAADCB603B3DB953DBCF8AF133C9893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563959   (3394) от 11.09.2025
 
 Багровые реки 2: Ангелы апокалипсиса / Les rivieres pourpres II - Les anges de l'apocalypse (2003) BDRip [H.265/1080p] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3394.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3393.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3391.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3370.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3334.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3272.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3251.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3249.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3232.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3227.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3200.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3168.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3103.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3098.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3076.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3013.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3003.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2996.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2948.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2895.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2889.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2865.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2864.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2830.jpg" />
 </div>
 
 
@@ -671,6 +619,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B8F00A687D3E1D53D9C87913F43E88F160A2B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 157299   (2727) от 15.09.2025
+
+Из ада / From Hell (2001) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он — воплощение тьмы и ужаса. Он самый таинственный и знаменитый из всех серийных убийц, известных истории. Он погрузил Англию в атмосферу страха и породил массу слухов и домыслов. Убийца, который знает больше простого мясника или лаборанта. Убивая, он совершает чудовищный ритуал. Его прозвище — Джек-Потрошитель.
+Поймать его пытается инспектор Фред Эбберлайн (Джонни (   Читать дальше...   )Производство: США, Twentieth Century-Fox Film CorporationЖанр: Ужасы, Триллер, Криминал, Детектив, БиографияРежиссер: Альберт Хьюз /Albert Hughes/, Аллен Хьюз /Allen Hughes/Актеры: Джонни Депп /Johnny Depp/, Хизер Грэм /Heather Graham/, Ян Холм /Ian Holm/, Робби Колтрэйн /Robbie Coltrane/, Ян Ричардсон /Ian Richardson/, Джейсон Флеминг /Jason Flemyng/, Кэтрин Картлидж /Katrin Cartlidge/, Теренс Харви /Terence Harvey/, Сьюзэн Линч /Susan Lynch/, Пол Рис /Paul Rhys/Перевод: Дублированный, Ммногоголосый закадровый, Одноголосый закадровыйСубтитры: Русские, Английские, Датские, Немецкие, Финские, Голландские, Норвежские, Испанские, ШведскиеКачество: BDRip (720p)Продолжительность: 02:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:925231FEA13E1EE002D54C4E687F16425E68C55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375451   (2726) от 15.09.2025
+
+Из ада / From hell (2001) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он — воплощение тьмы и ужаса. Он самый таинственный и знаменитый из всех серийных убийц, известных истории. Он погрузил Англию в атмосферу страха и породил массу слухов и домыслов. Убийца, который знает больше простого мясника или лаборанта. Убивая, он совершает чудовищный ритуал. Его прозвище — Джек-Потрошитель.
+Поймать его пытается инспектор Фред Эбберлайн (Джонни (   Читать дальше...   )Производство: США, Twentieth Century-Fox Film CorporationЖанр: Ужасы, Триллер, Криминал, Детектив, БиографияРежиссер: Альберт Хьюз /Albert Hughes/, Аллен Хьюз /Allen Hughes/Актеры: Джонни Депп /Johnny Depp/, Хизер Грэм /Heather Graham/, Ян Холм /Ian Holm/, Робби Колтрэйн /Robbie Coltrane/, Ян Ричардсон /Ian Richardson/, Джейсон Флеминг /Jason Flemyng/, Кэтрин Картлидж /Katrin Cartlidge/, Теренс Харви /Terence Harvey/, Сьюзэн Линч /Susan Lynch/, Пол Рис /Paul Rhys/Перевод: Дублированный, Ммногоголосый закадровый, Одноголосый закадровыйСубтитры: Русские, Английские, Датские, Немецкие, Финские, Голландские, Норвежские, Испанские, ШведскиеФормат: MKVКачество: BDRip 1080p
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3665A0C55FDD7C46B08C9F0B2912DCC2A560E2C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Usher 2.0 RC [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018472.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Acon Digital Acoustica Premium Edition 7.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018471.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Cascadea 2.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018470.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Paste Queue (Multi Clipboard) 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018466.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ GoodTask 6.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018464.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ TinkerTool System 7 v7.2  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018462.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ One Switch 1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018454.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ SecuritySpy 5 v5.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018453.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Ocenaudio 3.10.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018440.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Live Home 3D Pro Edition 4.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018439.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ ScreenToGif 2.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018432.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Microsoft Edge 90.0.818.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018423.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Arturia Analog Lab V v5.2.0.1378 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018418.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Tetrarch - Unstable (2021) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Nu Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018412.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Calibre 5.17.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018408.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ K-Lite Codec Pack Update 16.1.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018400.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ PotPlayer 210428 (1.7.21483) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018378.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Cisco AnyConnect Secure Mobility Client for Mac 4.10.00093 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018376.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018306.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Sublime Text 4.0 Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018297.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Sound Control 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018294.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Magic Battery 5.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018289.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Privacy Eraser Free 5.11.0 Build 3883 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018278.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Advanced Installer 18.2 RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018268.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ TechTool Pro 14 v14.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018266.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Internet Download Manager 6.38 Build 22 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018252.jpg" />
 </div>
 
 

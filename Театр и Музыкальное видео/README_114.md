@@ -1,111 +1,3 @@
-###  Публикация: 1631000   (236904) от 03.05.2023
-
-МузЛофт / МузLoft. Анатолий Цой (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
-Наконец-то к нам в гости пришел артист, с которого начался Музлофт. Анатолий снова поразил всех своим вокалом, презентовал новые песни и эксклюзивно поделился свежими историями и инсайдами шоу-бизнеса.Производство: Россия | Y-GenerationЖанр: PopЯзык озвучки: РусскийПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C65C0B00116224E3B0F3792234E727C7D242391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631389   (236474) от 05.05.2023
-
-Дима Билан – Гладиатор. 25 лет для вас (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Вот уже четверть века один из самых ярких представителей российской эстрады Дима Билан радует поклонников своими хитами. Он единственный победитель «Евровидения» от России, семикратный победитель EMA, единственный обладатель 20 тарелок одной престижной музыкальной премии, лидер ротаций, чартов и музыкальных премий, заслуженный артист России, а теперь еще и главный (   Читать дальше...   )Производство: Россия | ВайТ МедиаЖанр: PopПродолжительность: 01:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A3AB90470FE27C96C30FAA7C722802FB58E433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458145   (235764) от 28.03.2021
-
-Квартирник НТВ у Маргулиса. Группа Операция Пластилин (27.03.2021) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-История рок-группы «Операция Пластилин» началась в нулевых: в 2005 был записан первый альбом, а в 2009 они ушли в творческий отпуск, но в 2010 вернулись на большую сцену и основательно взялись за дело, что позволило им встать в один ряд с другими талантливыми рокерами. Сегодня их музыка — это коктейль из рока, регги, ска, панка, стихов и new wave с добавлением текстов, (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D0F58BF6F5752A0F4EF0F4E263DF2EADCC1067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631736   (235753) от 07.05.2023
-
-Квартирник у Маргулиса. Группа «Город 312» (06.05.2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-312 — это телефонный код Бишкека, откуда родом участники поп-рок-группы, образованной в уже далеком 2001-м. Ая, Дим, Маша, Леон, Ник и Саша сами пишут песни, которые становятся хитами. Их композиции «Останусь», «Вне зоны доступа», «Обернись», «Фонари» и многие другие знают наизусть миллионы слушателей. В гостях у Евгения Маргулиса участники группы поделились интересными (   Читать дальше...   )00:00:05  Падай
-00:06:47  Твоею частью
-00:13:23  Простить
-00:21:43  Люди, которых нет(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD681FA716B256B4D62806FD328AE1391B8C83C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631800   (235684) от 07.05.2023
 
 Сергей Михалок - Акустика в «Молодости» (2021) WEBRip [AV1/1080p-LQ] [PR]
@@ -114,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235684.jpg" />
 </div>
 
 
@@ -143,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234785.jpg" />
 </div>
 
 
@@ -172,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234708.jpg" />
 </div>
 
 
@@ -198,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233799.jpg" />
 </div>
 
 
@@ -225,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233471.jpg" />
 </div>
 
 
@@ -251,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233394.jpg" />
 </div>
 
 
@@ -280,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233260.jpg" />
 </div>
 
 
@@ -309,7 +201,7 @@ Depeche Mode: 101 (1989) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232765.jpg" />
 </div>
 
 
@@ -335,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232034.jpg" />
 </div>
 
 
@@ -364,7 +256,7 @@ Joe Bonamassa - Live From The Royal Albert Hall (2009) DVD5 + DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231872.jpg" />
 </div>
 
 
@@ -391,7 +283,7 @@ ZZ TOP - Double Down Live 1980 * 2008 (2009) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231853.jpg" />
 </div>
 
 
@@ -420,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231460.jpg" />
 </div>
 
 
@@ -449,7 +341,7 @@ Joe Bonamassa "Live at rock palast" DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231235.jpg" />
 </div>
 
 
@@ -475,7 +367,7 @@ Joe Bonamassa - An Acoustic Evening At The Vienna Opera House (2013) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231161.jpg" />
 </div>
 
 
@@ -504,7 +396,7 @@ Lita Ford-The Complete Video Collection (2003) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230982.jpg" />
 </div>
 
 
@@ -534,7 +426,7 @@ ROCKPOP IN DORTMUND: Scorpions, Def Leppard, QuietRiot, Judas Priest, Ozzy Osbou
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230950.jpg" />
 </div>
 
 
@@ -560,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230764.jpg" />
 </div>
 
 
@@ -589,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230391.jpg" />
 </div>
 
 
@@ -615,7 +507,7 @@ Deep Purple: Around The World Live (2008) (4 DVD Box Set) 3*DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230250.jpg" />
 </div>
 
 
@@ -645,7 +537,7 @@ Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229852.jpg" />
 </div>
 
 
@@ -674,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229441.jpg" />
 </div>
 
 
@@ -700,7 +592,7 @@ DVJ Bazuka - Rock'n'Roll (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229407.jpg" />
 </div>
 
 
@@ -711,6 +603,123 @@ DVJ Bazuka - Rock'n'Roll (2012) [H.264/720p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3CBEF1E1B6337D3B9E9436BAE2AEDCF045ED58E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566351   (229323) от 18.12.2013
+
+Bob Marley - Concert tribute to Bob Marley(+бонус) (1999) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229323.jpg" />
+</div>
+
+
+###  Подробнее
+
+В концерте известные исполнители исполняют песни Боба Марли и если вам нравится Боб Марлей, то это точно для вас!01. Lauryn Hill - Turn the Lights Down Low
+02. Chrissie Hynde - Waiting in Vain
+03. Chrissie Hynde & Jimmy Cliff - Jammin'
+04. Erykah Badu - No More Trouble(   Читать дальше...   )Жанр: Концерт, ReggaeПродолжительность: 01:28:03(01:25:35+00:02:28)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90C3BEDA923CCE74CB60AD17D1C8736A1BBAA84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512827   (228900) от 26.11.2021
+
+ZZ Top - Live At Montreux 2013 (2014) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228900.jpg" />
+</div>
+
+
+###  Подробнее
+
+В релизе представлено выступление американской группы ZZ Top состоявшееся 10 июля 2013 года в зале Stravinski Auditorium во время традиционного джазового фестиваля в Монтрё.
+Альбом вышел в 2014 году в форматах DVD и Blu-ray. Группа, наряду с собственными хитами, исполнила три джаз-блюз трибьюта в память о создателе фестиваля Клоде Нобсе, который умер в январе 2013 (   Читать дальше...   )01. Got me under pressure
+02. Waitin' for the bus
+03. Jesus just left Chicago
+04. Gimme all your lovin'(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: Rock, Hard Rock, Blues RockПродолжительность: 01:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62DAF2787C5233D8A06BA67F95B28E81E705007E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267794   (227792) от 10.12.2018
+
+Юрий Кукин - Фестиваль памяти Юрия Визбора. Концерт в Омске (1995) VHS>DVD5 <Chanson>
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление на фестивале памяти Юрия Визбора в Омске. Концертный зал, 1995 год.01. Вступление
+02. За туманом
+03. Не так
+04. Говоришь, чтоб остался я(   Читать дальше...   )Производство: Россия, ГТРКЖанр: Музыка, ШансонАктеры: Юрий КукинЯзык озвучки: РусскийСубтитры: нетПродолжительность: 01:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A19072CBECE3620B86B8083A510BF6DBB04B5B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583767   (227672) от 16.10.2022
+
+Квартирник у Маргулиса. Группа «Йорш» (14.05.2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый альбом панк-рок-группы «Йорш» «Нет Богов!» вышел в 2006 году и сразу принес славу и популярность коллективу из подмосковного Подольска. Песни «По кругу» и «Города» стали настоящими хитами, а группе было суждено стать одной из самых известных команд в российском андеграундном панке. В гостях у Евгения Маргулиса участники группы «Йорш» поделились интересными (   Читать дальше...   )00:00:00 Квартирник у Маргулиса. Группа «Йорш»
+00:00:05 Летова
+00:06:12 Светлячки
+00:13:06 Молодость(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Панк-рок, альтернативный рокПродолжительность: 01:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2195144A2A934803BEC1CD06EBCFC56A4B4D04A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,138 +1,3 @@
-###  Публикация: 1215582   (756219) от 27.03.2018
-
-Франсишку Руиз Вассалло | Курсы электроники и микроэелектроники [3 книги] (2001) [PDF, DJVU] [PT]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-С проведением курса «Электроника и микроэлектроника» вы приобретете набор навыков, которые позволят выполнять автономно задачи, связанные с проектом. Приобретать, устанавливать, использовать, проводить обслуживание и ремонт в оборудовании, а именно - читать и интерпретировать схемы и спецификации элементарных электронных систем, проводить проектирование и ремонт (   Читать дальше...   )Жанр: Электроника и микроэлектроникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B2D4DEAB6637B20BEE0B7666F05BEF79E26CBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215960   (754607) от 28.03.2018
-
-М.М. Мирошников | Теоретические основы оптико-электронных приборов (2010) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Главной целью учебного пособия является последовательное изложение теоретических основ пассивных оптико-электронных приборов, т. е. приборов, воспринимающих либо собственное излучение объектов и фонов, либо отраженное ими излучение естественных источников.
-Основными разделами книги являются сканирование, растровая модуляция излучения, выделение оптического сигнала (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C13F834E3D99E0B8194F4EF7CCEF764D034EB43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523036   (753283) от 10.01.2022
-
-Брычков Ю.А. | Специальные функции. Производные, интегралы, ряды и другие формулы (2006) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В книге приведены производные, неопределенные и определенные интегралы, конечные суммы, ряды и другие формулы. Она включает в основном новые результаты и является ценным дополнением к существующим справочным руководствам.
-Некоторые известные формулы добавлены для полноты изложения. Особое внимание уделено формулам дифференцирования элементарных и специальных функций (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95FD39B7D36630C39B27B4B8959DC9C9E33BDB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523037   (753277) от 10.01.2022
-
-Прудников А.П. и др. | Таблицы неопределенных интегралов (1986) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Справочник содержит таблицы неопределенных интегралов от элементарных функций.
-
-Предназначен для студентов высших учебных заведений, инженеров, научных работников.
-Примеры страницЖанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:728B099D742F8CA0835EF167A22D7F91137191F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523032   (753158) от 10.01.2022
-
-Прудников А.П. и др. | Интегралы и ряды [3 книги] (2002 - 2003) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Второе издание трёхтомного справочника по функциям.Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8254667BCB7EEEFDD4958580BABA239C56822957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216301   (750942) от 30.03.2018
 
 А.Б. Алхасов | Возобновляемые источники энергии (2016) [PDF]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750942.jpg" />
 </div>
 
 
@@ -168,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750117.jpg" />
 </div>
 
 
@@ -196,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748294.jpg" />
 </div>
 
 
@@ -222,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748157.jpg" />
 </div>
 
 
@@ -248,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747626.jpg" />
 </div>
 
 
@@ -275,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746610.jpg" />
 </div>
 
 
@@ -302,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746600.jpg" />
 </div>
 
 
@@ -328,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746344.jpg" />
 </div>
 
 
@@ -354,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745312.jpg" />
 </div>
 
 
@@ -382,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745250.jpg" />
 </div>
 
 
@@ -408,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745238.jpg" />
 </div>
 
 
@@ -434,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743567.jpg" />
 </div>
 
 
@@ -462,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743550.jpg" />
 </div>
 
 
@@ -488,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742341.jpg" />
 </div>
 
 
@@ -514,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742238.jpg" />
 </div>
 
 
@@ -540,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742147.jpg" />
 </div>
 
 
@@ -566,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742048.jpg" />
 </div>
 
 
@@ -593,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742025.jpg" />
 </div>
 
 
@@ -619,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741953.jpg" />
 </div>
 
 
@@ -645,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740742.jpg" />
 </div>
 
 
@@ -672,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740128.jpg" />
 </div>
 
 
@@ -683,6 +548,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:797C0E6F2FE39B61C12257D83BBA812A4B4DC479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217987   (740120) от 07.04.2018
+
+В.В. Овчинников | Технология и оборудование контактной сварки: Лабораторно-практические работы (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены процессы формирования сварных соединений контактной сваркой. Приведены особенности нагрева и деформирования металла в процессе контактной сварки. Описаны технологии и оборудование для контактной сварки современных конструкционных материалов. Отмечены основные дефекты сварных соединений и причины их образования.
+Лабораторно-практические работы предназначены (   Читать дальше...   )Жанр: Сварочные работыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BADDA6A8E83294B6DA792BDFFB33DA36FF4A2E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217956   (740113) от 07.04.2018
+
+М.В. Соколов | Художественная обработка металла. Азы филиграни (2003) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740113.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены основные этапы развития искусства филиграни в Европе и становления сканного дела в России, подробно описаны разнообразные материалы, инструменты и приспособления, используемые для изготовления ювелирных изделий в технике филиграни. Даются практические рекомендации по ручному изготовлению различных видов филиграни, исправлению наиболее (   Читать дальше...   )Жанр: МеталлообработкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CFAF050851BABD03F690305D670ED48BE9D222B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283443   (739607) от 17.02.2019
+
+Г.А. Фокин | Принципы и технологии цифровой связи. Основы расчетов (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются методы модуляции и пространственной обработки сигналов в современных и перспективных системах мобильной связи с антенными решетками. Анализируются методы разнесенного приема и передачи, используемые для борьбы с замираниями сигналов в релеевских каналах, а также вопросы обработки сигналов в MIMOсистемах. Учебное пособие сформировано на основе зарубежной (   Читать дальше...   )Жанр: СвязьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E9441A8E8C7109D65EA6DAFD849B0D2189B64A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283510   (739601) от 17.02.2019
+
+А.В. Иоскевич | Введение в динамику сооружений с использованием программного комплекса SAP2000 (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное пособие представляет собой реализацию учебного курса «Динамика зданий и сооружений» в программном комплексе SAP2000. Пособие состоит из двух глав, в первой из которых рассматриваются системы с одной степенью свободы, а во второй — с n степенями свободы. В пособии рассматриваются задачи, связанные с определением собственных динамических характеристик систем, (   Читать дальше...   )Жанр: Строительство, компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F4506E79077B6BE632DC7C9B7374C46E5322D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283608   (739561) от 17.02.2019
+
+Р.Н. Сафиуллин и др. | Электротехника и электрооборудование транспортных средств (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой учебное издание, в котором с системотехнических позиций представлены конструктивные решения основных систем электрооборудования транспортных средств, закономерности функционирования и особенности их работы. Целью данного учебного пособия является обобщение, систематизация вопросов конструкции диагностирования и обслуживания современных электронных (   Читать дальше...   )Жанр: Электричество, автотранспортФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC11C285B032150D6515B13CE75D6C24A2F2DA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

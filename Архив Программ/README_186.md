@@ -6,7 +6,7 @@ GeoGebra 4.9.98 RC [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983156.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983135.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ SiSoftware Sandra Professional Home/Business 2010.1.16.26 Retail [Multi Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983117.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ PeaZip 4.8.1 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983062.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ AdwCleaner 5.028 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983020.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ HyperSnap 7.23.01 Portable by Valx [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982992.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ WinX DVD Ripper Platinum 7.0.0 Build on Jan 24 2013 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982991.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Mail.RU Agent 6.0.6037 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982980.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ WinUtilities Professional Edition 12.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982912.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Rainmeter 3.3.0 Build 2519 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982905.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Paint.NET 4.0.9 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982903.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ O&O DiskImage Professional 10.0 Build 90 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982900.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ GameSave Manager 3.0.290.0 Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982898.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Chromium 26.0.1403 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982893.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Glary Utilities Pro 2.53.0.1726 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982891.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Kaspersky Rescue Disk 10.0.31.4 (03.02.2013) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982886.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ CherryPlayer 1.2.7 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982885.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Coolutils Total Movie Converter 3.2.168 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982881.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Skype 7.17.32.106 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982800.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Startup Delayer 3.0 Build 327 Standard [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982791.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Benvista PhotoZoom Pro 5.0.6 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982785.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Magic Speed 3.8 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982693.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Mail.Ru Агент 6.0 Build 6035 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982689.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ R-Studio 7.8 Build 160654 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982684.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982618.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ ExtremeCopy PRO 2.3.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982531.jpg" />
 </div>
 
 

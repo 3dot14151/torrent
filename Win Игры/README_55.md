@@ -6,7 +6,7 @@ Fear of the Dark (2023) [Ru/Multi] (Build 10576095) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039218.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SuDoKu / Судоку (2018) [Ru/Multi] (1.3.0) License [Portable]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039199.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Living Legends Remastered 2: Frozen Beauty (2021) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038996.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Before We Leave (2020) [Ru/Multi] (1.0171) Repack xatab (обновляемая)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038926.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Perseus: Titan Slayer (2023) [Ru/Multi] (1.1.0) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038708.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Power of Ten (2023) [Multi] (1.1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038704.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Wanted: Dead (2023) [En] (9935321) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038699.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ JUSTICE SUCKS: Tactical Vacuum Action (2022) [Ru/Multi] (1.1.01-615-aa61ab1) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038298.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mad Games Tycoon (2016) [Ru/Multi] (1.171020ax) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038230.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Mahokenshi (2023) [Ru/Multi] (1.1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038224.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Living Legends 7: Fallen Sky / Живые легенды 7: Упавшее не�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038193.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Beatbuddy: Tale of the Guardians (2013) [Multi] (1.2.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038030.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Street Legal Racing: Redline (2016) [En] (2.3.1/dlc) Scene TiNYiSO
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037964.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Jurassic World Evolution 2 (2021) [Ru/En] (1.3.1/dlc) Repack R.G. Механик
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037960.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Battlefleet Gothic: Armada 2 / Battlefleet Gothic: Armada II (2019) [Ru/Multi] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037875.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Long Dark (2017) [Ru/Multi] (1.93) Repack xatab [Episode 1-3]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037865.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Samsara Room (2020) [Ru/Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037768.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Arcade Paradise (2022) [Ru/Multi] (1016/dlc) License GOG [Digital Deluxe Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037699.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Redemption Reapers (2023) [Ru/Multi] (1.0.2) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037694.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Horizon: Zero Dawn (2020) [Ru/Multi] (1.0.10/dlc) Repack =nemos= [Complete Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037618.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Tennis Manager 2022 (2022) [Multi] (2.3.4) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037432.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Vampires Dawn 3 - The Crimson Realm (2021) [Multi] (1.11g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037430.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ RUINER (2017) [Ru/Multi] (1.6c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037427.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Momodora: Reverie Under the Moonlight (2016) [Ru/Multi] (1.07) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037414.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Nebuchadnezzar (2021) [Ru/Multi] (1.4.7/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037151.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Punk Wars (2021) [Ru/Multi] (1.2.11/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037140.jpg" />
 </div>
 
 

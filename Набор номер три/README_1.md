@@ -1,30 +1,3 @@
-###  Публикация: 1864788   (1065327) от 14.04.2026
-
-В мессенджере Max нашли 213 уязвимостей — за них белые хакеры получили почти 22 млн рублей
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Белые хакеры выявили 213 уязвимостей в национальном мессенджере Max в рамках программы Bug Bounty, запущенной 1 июля 2025 года, пишет «Коммерсантъ» со ссылкой на заявление технического директора Positive Technologies по развитию государственного сектора Алексея Батюка на международной выставке «Связь-2026».
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865026   (1065257) от 15.04.2026
 
 "Фонд кино" опубликовал список ценностей, которым  должны соответствовать фильмы, снятые на госфинансы
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065257.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065186.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065178.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065094.jpg" />
 </div>
 
 
@@ -138,7 +111,7 @@ Telegram обновил протокол по противодействию ц�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065040.jpg" />
 </div>
 
 
@@ -164,39 +137,13 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064939.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Исторический программный код, который использовался в миссии Apollo 11 для полета к Луне, стал доступен всем желающим: его выложили в открытый доступ на GitHub. Код размещен в статусе public domain, то есть его можно свободно читать, скачивать и изучать.Речь идет сразу о двух основных наборах кода: Comanche055 для командного модуля и Luminary099 для лунного модуля. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864503   (1064853) от 13.04.2026
-
-Windows 11 вскоре лишится панели управления Win32
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Корпорация Microsoft в настоящее время ведет работу над удалением последних остатков классического пользовательского интерфейса Win32 в системе Windows 11, и компания может полностью удалить панель управления Win32 в одном из будущих обновлений.  (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064850.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064783.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064709.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064553.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064372.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064329.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064297.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064197.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ Telegram начнет помечать пользователей со стор�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064084.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063983.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ NASA объявило дату отправки людей на Луну в ра
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063865.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063779.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063731.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ Max получил лицензию на защиту конфиденциаль
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063685.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063615.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063577.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063446.jpg" />
 </div>
 
 
@@ -661,13 +608,65 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063404.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Мессенджер Telegram сможет обходить практически любые блокировки, включая отключение интернета, если в сервисе появится поддержка автономной сети Mesh. Об этом  рассказал эксперт по информационной безопасности (ИБ) и председатель совета по противодействию технологическим правонарушениям Координационного совета негосударственной сферы безопасности РФ (КС НСБ) Игорь (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863510   (1063276) от 05.04.2026
+
+Что на самом деле произошло с Telegram 1 апреля
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063276.jpg" />
+</div>
+
+
+###  Подробнее
+
+В полночь 1 апреля ТСПУ начали получать правила блокировки всех IP-подсетей Telegram. Не замедление – полная блокировка на уровне IP. Одновременно вендоры DPI выкатили новые эвристики, которые научились определять MTProxy в режиме Fake-TLS. Тысячи прокси-серверов по всей стране отвалились за минуты.То есть 1 апреля – не шутка. РКН действительно попытался положить (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863652   (1063258) от 05.04.2026
+
+Лазер вместо радио: лунный корабль передаёт данные на скорости до 260 Мбит/с по новой системе оптической связи
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063258.jpg" />
+</div>
+
+
+###  Подробнее
+
+NASA в течение двух дней продемонстрировало работу новой системы оптической связи, которая может стать ключевой для будущих миссий к Луне и Марсу.В отличие от традиционных радиоволн, данные передаются с помощью модулированного лазерного луча, направленного с космического корабля на приёмные станции на Земле на расстоянии в сотни тысяч километров.Главная особенность (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

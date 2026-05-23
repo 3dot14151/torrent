@@ -6,7 +6,7 @@ Screaming Frog SEO Spider 11.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580042.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580037.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Skype 7.7.0.102 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580010.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MailStyler Newsletter Creator Pro 1.3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580006.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Skype 7.7.0.102 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580001.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ doPDF 11.4.323 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579953.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ reaConverter Pro 7.725 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579944.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Sumatra PDF 3.4.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579938.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ EZ CD Audio Converter 3.1.0.1 Ultimate [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579934.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ ByClick Downloader Premium 2.3.27 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579892.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ VirusTotal Scanner 4.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579855.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ PcSchematic Automation 17.0.2.56 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579850.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Skype 7.7.32.102 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579841.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ mediAvatar HD Video Converter 6.5.5.0426Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_579819.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ PhotoLine 16.52 [ML + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579818.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Acoustica Mixcraft 7.1 Build 279 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579810.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Office Tab Enterprise 10.00 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579809.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ K-Lite Codec Pack 11.3.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579805.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Microsoft System Center 2012 R2 Endpoint Protection 4.8.204.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579804.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ WinRAR 5.30 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579801.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Internet Download Manager 6.07 Portable [2011,ML\RUS,x86\x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_579765.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ CloneCD 5.3.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579755.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Adblock Plus 1.9.1 for Google Chrome & Opera [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579753.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Wolfram Mathematica 10.2.0.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579751.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Microsoft .NET Framework 4.6 Final RePack by gora [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579738.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ UltraISO Premium Edition 9.6.5.3237 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579737.jpg" />
 </div>
 
 

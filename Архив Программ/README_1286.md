@@ -6,7 +6,7 @@ The KMPlayer 3.4.0.59 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384538.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Photo Slideshow Creator 4.25 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384534.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Recovery Partition for HP Pavilion M6-1062er / Windows 7 Home Premium (х64) SP1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384525.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ NETGATE FortKnox Personal Firewall 8.0.905.0 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384523.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ WPI v.6.6.2 by IceSlam PreFinal Edition [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384521.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ VMware Workstation 12 Pro 12.5.1 build 4542065 Lite RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384483.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Loaris Trojan Remover 2.0.22 RePack & Portable by 9649 (29.10.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384482.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ DNS Jumper 2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384413.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Edraw Max Pro 8.7.0.588 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384409.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 10.2017 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384394.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ QuickTime 7.7.3 Pro [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384384.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Photodex ProShow Producer 5.0.3296 [Rus] Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384382.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VMware Workstation 9.0.1 Build 894247 Lite + VMware-tools 9.2.2 by qazwsxe [Ру
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384378.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ VMware Workstation 9.0.1 Build 894247 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384376.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ DICOM Viewer RadiAnt 1.1.8 [Мульти\Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384369.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ GridinSoft Anti-Malware 3.0.61 RePack & Portable by 9649 (29.10.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384348.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384268.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Stardock CursorFX Plus 2.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384263.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ MAGIX Vegas Pro 14.0 Build 178 RePack by PooShock [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384257.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Album Player 2.109 (30.10.2016) Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384255.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Winstep Xtreme 10.9 RePack [RuS + Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384128.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Microsoft Windows 10 Technical Preview (x86, x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384064.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Opera GX 90.0.4480.86 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383831.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Aiseesoft Screen Recorder 2.5.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383829.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Opera 90.0.4480.84 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383755.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Glary Utilities Pro 5.194.0.223 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383748.jpg" />
 </div>
 
 

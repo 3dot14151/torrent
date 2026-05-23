@@ -1,82 +1,3 @@
-###  Публикация: 1075207   (320787) от 22.11.2016
-
-Джон Гришэм | Серая гора (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Саманте Кофер казалось, что ей обеспечена блестящая карьера в солидной юридической фирме на Уолл-стрит, однако когда разразился кризис, ее мгновенно выкинули на улицу. И теперь единственная предложенная ей вакансия – это место юриста в затерянном в горах шахтерском городке Брэйди… Саманта, решив сменить обстановку и «отсидеться» в провинции в нелегкие времена, думала, (   Читать дальше...   )Жанр: ТриллерПродолжительность: 17:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A134A379BB3A9299FADC0612AB4BAAC8D11C5B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582618   (320780) от 10.10.2022
-
-Наталья Щерба | Фениста (Книга 1). Сонный дом (2021) [MP3, Алексей Багдасаров, Юлия Яблонская]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Трудно быть самой младшей! У Фини эталонная старшая сестра и крутейший старший брат, а от самой Фини сплошные проблемы. Одно слово, непутевая. А еще у Фини есть необыкновенная странность – она может заснуть и проснуться только через несколько дней, а то и недель. Доктора разводят руками, родители приходят в отчаяние. И никто не знает, что во сне Фини подвластна любая (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 17:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA2D17528692462F64B8E39490483C6BCF49D97B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582685   (320756) от 10.10.2022
-
-Робин Хобб | Мир Элдерлингов. Сага о Фитце и Шуте (Книга 3). Судьба убийцы (2022) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фитц уверен, что его дочь уже не вернуть, и мечтает лишь о мести.
-Ему еще только предстоит узнать, что она жива. Даже ее похитители не догадываются, какая судьба ей уготована, но Би никогда не сдается. Ее везут в Клеррес, обитель Слуг, и туда же стремятся Фитц и его спутники. И когда все пути сойдутся на загадочном Белом острове, тайное станет явным и пророчества (   Читать дальше...   )Жанр: Зарубежное фэнтезиПеревод: Наталья АллунанПродолжительность: 40:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350633494194EF0412E80FE33B0CBB64344C5ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582702   (320753) от 10.10.2022
 
 Робин Хобб | Мир Элдерлингов. Хроники дождевых чащоб (Книга 2). Драконья гавань (2022) [MP3, Сергей Кирсанов]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320753.jpg" />
 </div>
 
 
@@ -113,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320741.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320649.jpg" />
 </div>
 
 
@@ -165,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320642.jpg" />
 </div>
 
 
@@ -191,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320598.jpg" />
 </div>
 
 
@@ -217,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320578.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320557.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320457.jpg" />
 </div>
 
 
@@ -296,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320104.jpg" />
 </div>
 
 
@@ -322,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319808.jpg" />
 </div>
 
 
@@ -348,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319796.jpg" />
 </div>
 
 
@@ -374,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319700.jpg" />
 </div>
 
 
@@ -400,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319445.jpg" />
 </div>
 
 
@@ -426,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319431.jpg" />
 </div>
 
 
@@ -452,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319405.jpg" />
 </div>
 
 
@@ -478,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319325.jpg" />
 </div>
 
 
@@ -504,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319306.jpg" />
 </div>
 
 
@@ -530,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319256.jpg" />
 </div>
 
 
@@ -556,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319205.jpg" />
 </div>
 
 
@@ -582,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319130.jpg" />
 </div>
 
 
@@ -609,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319127.jpg" />
 </div>
 
 
@@ -635,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319122.jpg" />
 </div>
 
 
@@ -662,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319121.jpg" />
 </div>
 
 
@@ -673,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:785649145EC9E8B490F6A66A15E0D07AA31AEFAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259522   (319040) от 04.11.2018
+
+Дарья Плещеева | Блудное чадо (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Середина XVII века. Боярин Афанасий Ордин-Нащокин, выполняя ответственные поручения царя Алексея Михайловича, ведет переговоры с иностранными дипломатами. А его единственный избалованный сын – Воин, наслушавшись баек о просвещенной Европе, в один прекрасный день удирает в Польшу, увезя с собой секретные письма государя. В погоню отправляются подьячий Посольского (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 12:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F661A0D6F6A92E97C0C6562135D481FC398A4FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958236   (319011) от 23.11.2015
+
+Глеб Бобров | Эпоха мертворожденных (2013) [OGG]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ближайшее будущее. Русофобская политика «оранжевых» разрывает Украину надвое. «Западенцы» при поддержке НАТО пытаются силой усмирить Левобережье. Восточная Малороссия отвечает оккупантам партизанской войной. Наступает беспощадная «эпоха мертворожденных»… Время действия романа «Эпоха мертворожденных» необозначено. Оно происходит на фоне раскола Европейского Союза (   Читать дальше...   )Жанр: Фантастика, постапокалипсисПродолжительность: 10:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF809B3E6FADFC268F5A61EDDEB4E2621EB5AFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182171   (318969) от 09.11.2017
+
+Давид Лагеркранц | Миллениум (Книга 5). Девушка, которая искала чужую тень (2017) [MP3, Игорь Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданное продолжение легендарной серии MILLENNIUM Стига Ларссона! Новые опасности угрожают жизни легендарной «девушки с татуировкой дракона». Стало реальностью то, о чем Лисбет давно догадывалась: она узнала, что значительная часть ее жизни – чей-то жестокий эксперимент. Много лет назад группа шведских ученых затеяла широкомасштабное и крайне секретное исследование. (   Читать дальше...   )Жанр: Триллер, ДетективИздательство: АудиокнигаПродолжительность: 12:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA8B168EE0B648E4A88AA0E90F860164F7877BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

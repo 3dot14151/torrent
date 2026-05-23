@@ -1,107 +1,3 @@
-###  Публикация: 577860   (358546) от 19.11.2012
-
-Гайтана - My everything (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA2682DA467BC9AA2725630D3D2C313D7E801DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577502   (358544) от 19.11.2012
-
-Ludacris - Representin (Explicit) ft. Kelly Rowland (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4459BA3506CE17F6F6AA113080EFD5E2A8A65C94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577507   (358366) от 19.11.2012
-
-Ludacris - Rest Of My Life ft. Usher, David Guetta (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:254813806A3B1877851BD23F68D52FCCDBE3EE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577689   (358356) от 19.11.2012
-
-Nelly Furtado - Parking Lot (2012) [H.264/1080p]  HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R'N'B
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476216F79F2C2E8CBEC31896C820B6F8FEC6060F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577878   (358348) от 19.11.2012
 
 Прохор Шаляпин - Дубинушка (2012)  [H.264/1080p] WEB-DLRip
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358348.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358345.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ Kelly Clarkson - Catch My Breath (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358335.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ Nelly Furtado - Spirit Indestructible (2012) [H.264/1080p]  WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358229.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ Alloise - Love me or leave me (2012) [H.264/1080p]  HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358221.jpg" />
 </div>
 
 
@@ -240,7 +136,7 @@ Robbie Williams - Candy (2012) [1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358213.jpg" />
 </div>
 
 
@@ -266,7 +162,7 @@ Pitbull - Get It Started ft. Shakira (2012) [H.264/1080p]  WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358211.jpg" />
 </div>
 
 
@@ -292,7 +188,7 @@ Celebrating Jon Lord. Live at The Royal Albert Hall (2014) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358124.jpg" />
 </div>
 
 
@@ -321,7 +217,7 @@ No Doubt - Push And Shove ft. Busy Signal, Major Lazer (2012) [H.264/1080p] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358056.jpg" />
 </div>
 
 
@@ -347,7 +243,7 @@ Kelly Rowland - ICE (Explicit) ft. Lil Wayne (2012)  [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358052.jpg" />
 </div>
 
 
@@ -373,7 +269,7 @@ Madonna - Turn Up The Radio (Explicit) (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358044.jpg" />
 </div>
 
 
@@ -399,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358040.jpg" />
 </div>
 
 
@@ -425,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358038.jpg" />
 </div>
 
 
@@ -451,7 +347,7 @@ Jennifer Lopez - Goin' In ft. Flo Rida (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358028.jpg" />
 </div>
 
 
@@ -477,7 +373,7 @@ Tiesto x Melanie Iglesias - Sounds Of The Night (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357663.jpg" />
 </div>
 
 
@@ -503,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357632.jpg" />
 </div>
 
 
@@ -532,7 +428,7 @@ Metallica и Симфонический оркестр Сан-Франциско
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357552.jpg" />
 </div>
 
 
@@ -558,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357517.jpg" />
 </div>
 
 
@@ -584,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357513.jpg" />
 </div>
 
 
@@ -619,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357402.jpg" />
 </div>
 
 
@@ -645,7 +541,7 @@ LOBODA - 40 ГРАДУСОВ (Нравится) (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357396.jpg" />
 </div>
 
 
@@ -671,7 +567,7 @@ Money Trump - Boss In My City (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357388.jpg" />
 </div>
 
 
@@ -682,6 +578,114 @@ Money Trump - Boss In My City (Uncensored) (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36A429A398A9220B521F5E7E6D1207F94EA584B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577609   (357004) от 19.11.2012
+
+Tarja Turunen - Act 1 (2012) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_357004.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Act I" представляет собой первый концертный диск, запечатлевшим выступления экс-вокалистки NIGHTWISH Tarja Turunen в ее роково-металлической обработке - вероятно, ее самый захватывающий выпуск когда-либо. Основное содержание было снято и записано на шоу в Росарио в Аргентинском Teatro El Crculo, проходившим 30 и 31 марта соответственно в красивом и захватывающем духе театральной постановки.
+С его тщательно продуманным tracklisting, Act I предоставляет ценность для любого фаната Тарьи. Tracklisting состоит из самых больших сольных треков Тарьи, некоторой классики Nightwish, Nemo, или кавер-версий Over The Hills And Far Away (Gary Moore) и Phantom Of The Opera (Andrew Lloyd Webber). Blu-Ray также включает песню Tired Of Being Alone, которую Тарья написала с Шиллером.Жанр: Symphonic MetalПродолжительность: 01:48:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577289   (356891) от 18.09.2022
+
+Квартирник у Маргулиса. «Мураками» (18.05.2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок-группа «Мураками» не нуждается в представлении: они пустили свои корни в российской рок в ноябре 2004-го, а спустя всего три месяца сыграли свой первый сольный концерт. С тех пор прошло 18 лет. За почти два десятилетия они выпустили внушительное количество альбомов и видеоклипов, выступали и выступают на главных фестивалях страны и становятся победителями различных (   Читать дальше...   )00:00:05 Королева без короля
+00:04:54 Нулевой километр
+00:13:33 Мосты
+00:20:05 Носки(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: РокПродолжительность: 01:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83CC56709C631FAE05611CEBCB801C0C0D41F257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256307   (356675) от 21.10.2018
+
+Квартирник на НТВ у Маргулиса. Обе две (10.20.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356675.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису группа «Обе две» - российская музыкальная поп-группа. в состав которой входят Катя Павлова и Дмитрий Емельянов. Хозяин «Квартирника» разузнал у своей гостьи Кати Павловой, сколько ей было лет, когда та начала выступать. Евгений поинтересовался, откуда пошло название коллектива, а Катя вспомнила, что создала группу вместе со своей сестрой, (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3DA872F32C2A549FF0E717A18C3EFE38EB73981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256299   (356558) от 21.10.2018
+
+Чолпон - утренняя звезда (1959) VHSRip [фильм-балет]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм — балет по мотивам киргизского балета «Чолпон». В основу положена национальная легенда, повествующая о верной и всепобеждающей любви. Оригинальность хореографии, глубоко народная музыка, костюмы и декорации, высший класс режиссёрской работы и точность монтажа — всё выявило и донесло до зрителя гуманистическую мысль древней сказки.Производство: СССР, Ленфильм, Фрунзенская киностудияЖанр: Фильм-балетРежиссер: Роман ТихомировАктеры: Рейна Чокоева, Уран Сарбагишев, Нурдин Тугелов, Бибисара Бейшеналиева, Сапар АбдужалиловСубтитры: отсутствуютПродолжительность: 01:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C6CD197062D94A4C8C34B61AC18F48B66E1FC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 971890   (984772) от 04.01.2016
-
-VA - Fantasy Chillout Selection (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Shin Elto - Deep Mundo [04:49]
-02. XM Ensemble - Dark & Blonde [03:47]
-03. Reverb Time - Beautiful You [03:32]
-04. Double T Project - Behind the Mirror [04:17](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7253E9002D64BDECE182817B536325ED1E19387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971799   (984654) от 04.01.2016
 
 VA - Water Show: Matrix Bass (2016) [MP3|320 кб/с] <Dubstep, DnB>
@@ -35,7 +6,7 @@ VA - Water Show: Matrix Bass (2016) [MP3|320 кб/с] <Dubstep, DnB>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984654.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Уголовочка от радио Шансон. Часть 6 (2015) [MP3
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984643.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Explosion Samples Tropic House (2016) [MP3|230-320 кб/с] <Tech House, So
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984594.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Top 100 Deep House (December) (2016) [MP3|302-320 кб/с] <House, Indie Da
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984587.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Новогодний душевный шансон (2015) [MP3|256 кб/с]
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984557.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - EuroHit Top 40 - Итоговый выпуск (2015) [MP3|320 кб/с] <Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984376.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Resident Advisor Top 100 Charted Tracks Of 2015 (2016) [MP3|245-320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984367.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - The All Time Greatest Movie Songs (4CD) (2010) [MP3|256 кб/с]<pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984191.jpg" />
 </div>
 
 
@@ -273,7 +244,7 @@ VA - Сборник энергичных хитов от Русского Рад
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983941.jpg" />
 </div>
 
 
@@ -308,7 +279,7 @@ VA - German Top 100 Single Charts 24.01.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983613.jpg" />
 </div>
 
 
@@ -337,7 +308,7 @@ VA - Chill and Lounge Volume 1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983592.jpg" />
 </div>
 
 
@@ -366,7 +337,7 @@ VA - Record Super Chart 622 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983531.jpg" />
 </div>
 
 
@@ -395,7 +366,7 @@ VA - The Dance Space Innovative (2016) [MP3|192-320 кб/с] <Club, Hands Up, Vo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983512.jpg" />
 </div>
 
 
@@ -424,7 +395,7 @@ VA - Super Bomb Electro 56 (2015) [MP3|320 кб/с] <Electro House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983502.jpg" />
 </div>
 
 
@@ -453,7 +424,7 @@ VA - Classical Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983437.jpg" />
 </div>
 
 
@@ -482,7 +453,7 @@ VA - After Workout Chillout Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983432.jpg" />
 </div>
 
 
@@ -511,7 +482,7 @@ VA - Royalty - Free Nu School Deep & Garage (2015) [MP3|223-320 кб/с] <House,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983422.jpg" />
 </div>
 
 
@@ -540,7 +511,7 @@ VA - Winter Music (2016) [MP3|320 кб/с] <Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983284.jpg" />
 </div>
 
 
@@ -569,7 +540,7 @@ VA - Radio DFM Top D-Chart Январь 2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983134.jpg" />
 </div>
 
 
@@ -598,7 +569,7 @@ VA - Итоговый Record Super Chart 2015 (27.12.2015) [MP3|128-320 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982901.jpg" />
 </div>
 
 
@@ -627,7 +598,7 @@ VA - Лучшие танцевальные шлягеры 50х-60-х, [4 CD] (20
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982501.jpg" />
 </div>
 
 
@@ -662,7 +633,7 @@ VA - Top 50 Progressive Trance (Paradise) (2015) [MP3|320 кб/с] <Progressive 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982068.jpg" />
 </div>
 
 
@@ -691,7 +662,7 @@ Gary Moore - As The Years Go Passing By... (2020) (2CD Compilation) [MP3|320 Kbp
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982042.jpg" />
 </div>
 
 
@@ -720,7 +691,7 @@ Calypso - We Move The Jumpin' Hype! (1996) Digitally Remastered [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982000.jpg" />
 </div>
 
 
@@ -749,7 +720,7 @@ VA - Secret Massive Presets Control (2016) [MP3|212-320 кб/с] <Club, Bigroom,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981998.jpg" />
 </div>
 
 
@@ -763,6 +734,35 @@ VA - Secret Massive Presets Control (2016) [MP3|212-320 кб/с] <Club, Bigroom,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D30147BA4EAC7C93E65E148F9C9DC4E814B03D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972642   (981997) от 06.01.2016
+
+VA - Huge Uplifting Trance Midi & Spire (2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Retek & Dbaste - Bianca (Alexandrians Remix) 07:39
+02. Kuno - Olymp (Original Mix) 08:08
+03. Ian Hamill - Myrmidon 07:32
+04. Pedro Del Mar & Udm - Boundless (Original Mix) 07:49(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 09:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F63F5A7272E5F91D1C70A5D62E66CB8DD6E9C5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

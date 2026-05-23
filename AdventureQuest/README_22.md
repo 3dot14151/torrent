@@ -1,29 +1,3 @@
-###  Публикация: 1200842   (794656) от 22.01.2018
-
-The Fall of Lazarus (2017) [En/Es] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В The Fall of Lazarus Вы окажитесь на дрейфующем грузовом космическом корабле USSC Lazarus. Вы вышли из крио-сна без памяти и даже имени, кроме Вас на борту есть только один Hybris - искусственный интеллект, управляющий кораблем...Тип издания: LicenseРазработчик: No Wand StudiosЖанр: Adventure, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652315754A91104AB03B0EEE285B6C82CD879F20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509325   (794613) от 12.11.2021
 
 Slice of Sea (2021) [Ru/Multi] (1.0.0) License DARKSiDERS
@@ -32,7 +6,7 @@ Slice of Sea (2021) [Ru/Multi] (1.0.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794613.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ PLAY WITH ME (2018) [En/Pl] (1.20.6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794524.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Rusty Lake Paradise (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794514.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ N.E.R.O.: Nothing Ever Remains Obscure (2016) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794347.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ N.E.R.O.: Nothing Ever Remains Obscure (2016) [Ru/Multi] (5.3.2.14600335) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794293.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Motherland (2021) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793637.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Pilot Brothers: Trilogy / Братья Пилоты: Трилогия (1997-2004
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793493.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Vesta (2018) [En/Es] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793492.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Paradigm / Парадигма (2017) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793026.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Subnautica (2018) [Ru/Multi] (59783) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792594.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Quiet Apocalypse (2021) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792560.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Shantae and the Seven Sirens (2020) [Ru/Multi] (701355) License GOG (обнов�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792298.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_792289.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Sparklite (2019) [Multi] (1.6.8) License GOG (обновляемая)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791867.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Nerved (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791745.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ When They Arrived (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790871.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Decay: The Mare (2015) [Ru/Multi] (1.1.1) Repack Other s [Chapter 1-3]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790310.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ American Hero (2021) [En] (0.0.30) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789146.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Catherine Classic (2019) [Multi] (1.0.1151) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788852.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Grow: Song of the Evertree (2021) [Ru/Multi] (1.0.0) License FAIRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788749.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Cloudpunk (2020) [Ru/Multi] (6861751/dlc) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788743.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Candleman The Complete Journey (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788526.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Catherine Classic (2019) [Ru/Multi] (1.0.1151) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788393.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Starship Titanic (1998) [Multi] (1.0.0.42c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788287.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Medium (2021) [Ru/Multi] (1.2b7162431/dlc) License CODEX [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788278.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ The Medium (2021) [Ru/Multi] (1.2b7162431/dlc) License CODEX [Deluxe Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07883FA1C72AA58DF5D84DB99D19BD033134DDEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276581   (787947) от 16.01.2019
+
+Gray Dawn (2018) [Ru/Multi] (1.0) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в ужасное приключение в роли священника, обвиняемого в ритуальном убийстве мальчика. Gray Dawn - психологический триллер, наполненный религиозными элементами и сочетающий сюжетные квесты с художественным опытом.Тип издания: RepackРазработчик: Interactive StoneЖанр: Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03EAD1775A77C436FC3FE6C27707D6D933C8E3E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

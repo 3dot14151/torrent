@@ -1,29 +1,3 @@
-###  Публикация: 1695402   (120303) от 29.01.2024
-
-Ms. Holmes 5: The Milverton Plot / Мисс Холмс 5: Заговор Милвертона (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической серии игр Ms. Holmes. Шарлотта Холмс всегда гордилась тем, что пошла по стопам своего знаменитого дяди. Однако в одной из газет появилась статья, поставившая под сомнение ее репутацию! Таинственный информатор утверждает, что располагает доказательствами того, что великий Шерлок Холмс на самом деле был преступником-мошенником. Неужели он и (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:515E0A98D93C9DF62E44A3852553E8900AFA6E55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695785   (120220) от 30.01.2024
 
 The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9v) License GOG
@@ -32,7 +6,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9v) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120220.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ I'm counting to 6... (2024) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120202.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Cub (2024) [Multi] (Build 13219220) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120059.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Cris Tales (2021) [Ru/Multi] (1.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120022.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Cub (2024) [Ru] (19.01.2024) Unofficial Team RIG [Русификатор]
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120003.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Hidden Object Chronicles: Poisoned Truth (2024) [En] (1.0) Unofficial [Collector
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119994.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.26/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119915.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Death Stranding (2022) [Ru/Multi] (1.004/dlc) Repack dixen18 [Director's Cut]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119902.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Lunacid (2023) [En] (1.2.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119709.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Reflections of Life 12: The Shattered Timeline (2024) [En] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119632.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Elder Scrolls V: Skyrim (2021) [Ru/En] (1.6.1170.0.8/dlc) Repack Other s [An
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119584.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Fishing: North Atlantic (2020) [Ru/Multi] (1.8.1151.18467/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119581.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ COCOON (2023) [Ru/Multi] (13127050) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119575.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Floating Life 2 (2023) [Multi] (1.0.2.58) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119572.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Long Gone Days (2023) [Ru/Multi] (20240130) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119562.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ RIN: The Last Child (2024) [Ru/Multi] (221) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119415.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119397.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Shards of Chaos (2024) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119394.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119390.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Last Worker (2023) [Ru/Multi] (1.0.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119249.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (1.04.59290/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119240.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Magical Girl Celesphonia (2022) [Multi] (5/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119054.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Spells and Secrets / Spells & Secrets (2023) [Multi] (1.0.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119010.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Not Another Weekend (2021) [Multi] (1.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118971.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ BeachHead (2024) [En] (1.3.25) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118895.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ BeachHead (2024) [En] (1.3.25) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E4D9B01C9D6CA323AD60296C81514B53C80A84C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697537   (118866) от 07.02.2024
+
+Y. Village - The Visitors (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бату, мучимый повторяющимися кошмарами о неизвестной деревне, обнаруживает, что его жизнь переворачивается с ног на голову из-за загадочного письма, оставленного у его двери однажды. В письме содержится мрачное сообщение: "Хотите освободиться от ваших кошмаров? Мы ждем вас...".Тип издания: RepackРазработчик: Batuhan Gündüz, Latif GüngörЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: ТурецкийЯзык субтитров: Русский, Турецкий, Английский, Французский и другиеЯзык интерфейса: Русский, Турецкий, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA96A79603881B54FBA0500E1D7266EB81D0910
 ```
 
 https://mybot314.ru/tekegram_catalog/

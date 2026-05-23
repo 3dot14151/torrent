@@ -1,29 +1,3 @@
-###  Публикация: 1661811   (7403) от 17.08.2025
-
-Stellar Monarch 2 (2022) [En] (1.24/dlc) License GOG
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Stellar Monarch 2 - это глобальная стратегия в научно-фантастическом сеттинге, где игрокам потребуется построить настоящую космическую империю и завоевать межгалактическое господство. Почувствуйте себя настоящим императоров, ведь в вашем подчинении окажутся бароны и герцоги, а вам придется поддерживать хорошие отношения с дворянскими домами, чтобы не нарваться на (   Читать дальше...   )Тип издания: LicenseРазработчик: Silver Lemur GamesЖанр: СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BADEA987AAC59189172E2E904309AA9E774E752F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765758   (7400) от 17.08.2025
 
 КЛЕТЬ (2024) [Ru/Multi] (0.3.6) Repack Pioneer [Early Access]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7400.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Disaster Report 4: Summer Memories (2020) [Multi] (1.05(a)/dlc) License GOG [Dig
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7395.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Intravenous + Intravenous 2 (2021-2024) [Ru/Multi] (1.5.1/1.4.3/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7394.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Boxville 2 (2025) [Ru/Multi] (2.17.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7388.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Echoes of the End (2025) [Ru/Multi] (Build 19563242) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7381.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Arctic Motel Simulator (2025) [Ru/Multi] (3.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7379.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Darkest Files (2025) [Multi] (1.0.8.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7377.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.42553.0/dlc) Repack Wanterlud
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7376.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.001.110650/dlc) Repack FitGirl [Premiu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7369.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ ORDER 13 (2025) [Ru/Multi] (1.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7368.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0.0.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7362.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Tales and Tactics / Tales & Tactics (2023) [Multi] (1.2 Build 19453510) Scene Te
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7352.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7347.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (build 19595286) Repack seleZen 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7336.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ DREADZONE (2025) [Ru/Multi] (1.4.5.2) Repack AIexandro [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7332.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (cs36928) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7319.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Somerville (2022) [Ru/Multi] (Patch 4 Build 11993672) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7317.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7312.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (2.0.889.0) Repack FitGirl [Defi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7297.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ World War Z VR (2025) [Ru/Multi] (1.0) Scene Rune [VR]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7173.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Survive the Fall (2025) [Ru/Multi] (1.1.4.2506/dlc) License GOG [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7166.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (HotFix 3/dlc) Licen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7162.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7146.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ A Fistful Of Yankees (2025) [Ru/Multi] (1.42) Repack AIexandro
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7143.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.13/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7138.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Empyrion - Galactic Survival – это приключение с выживан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C483885B0D341FF8BA3388FF56F19ACAE5CFDEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813089   (7119) от 18.08.2025
+
+Inkshade (2025) [En] (1.0.004) Repack AIexandro
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существо за столом настаивает, чтобы вы сыграли в их деревянную настольную игру. В этой игре вы - капитан, ищущий таинственное царство, известное как Бездна. Чтобы достичь этого места, вам нужно будет завоевать континент, раздобыть дирижабль и отправиться в проклятые небеса. Или, скорее, собрать команду и поручить им сделать это. Потребуется не одна попытка, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: Studio VezelleЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C142AF1A5AF0644C867D798F0D23EBF6643E0A8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

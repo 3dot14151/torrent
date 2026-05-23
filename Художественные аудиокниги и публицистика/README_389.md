@@ -1,85 +1,3 @@
-###  Публикация: 1535879   (682183) от 08.03.2022
-
-Анатолий Дроздов | Малахольный экстрасенс (Книга 1). Малахольный экстрасенс (2021) [MP3, Максим Суслов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Анатолий Фёдорович Дроздов – известный писатель-фантаст, пишущий в разных жанрах. Представляем в аудиоформате первый роман из его новой серии о попаданце, который очутился в девяностых годах прошлого века и обрёл экстрасенсорные способности.
-
-После смерти пенсионер оказывается в теле молодого человека, который обладает необычным даром. Как все помнят, в девяностые (   Читать дальше...   )Жанр: Героическая фантастика, Историческая фантастика, ПопаданцыИздательство: 1С-ПаблишингПродолжительность: 10:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC46D9BBA6435B247DFDC466DB50EE0B02877EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535890   (682177) от 08.03.2022
-
-Александра Лисина | «Изоморф» Книга 3. Маг (2022) [MP3, Радион Нечаев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Маг – фантастический роман Александры Лисиной, третья книга цикла «Изоморф», жанр фэнтези, приключения, попаданцы.
-
-Когда я соглашался на сделку с собирателем душ, то даже подумать не мог, что не просто очнусь в другом мире, а окажусь в теле зверя, от которого тут же захотят избавиться. Но я выжил. Справился. Даже сумел снова стать человеком. Однако, решив одни проблемы, (   Читать дальше...   )Жанр: Городское фэнтези, ПопаданцыПродолжительность: 09:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:902232CA72F315C8A376AB92FAC7C056AD5E1246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535857   (682174) от 08.03.2022
-
-Ян Бадевский | «Корректировщик» Книга 1. Корректировщик (2021) [MP3, Евгений Лебедев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ярослав – потомственный волхв, умеющий оборачиваться медведем, прорицать будущее и заклинать стихии. Он принадлежал Ордену Неясыти, сражался с порождениями тьмы, вторгшимися в его родной мир, сумел победить и запечатать врата, через которые проникало зло. Бесконечная война превратила Ярослава в совершенное оружие, колдуна «вне категорий», умеющего с легкостью манипулировать (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 10:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CC3AF79A59DDC7A2A7E91297F600C70D773883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029284   (682131) от 26.06.2016
 
 Василий Ян | Голубая сойка Заратустры,Ватан,Демон горы и др.рассказы (2016) [MP3]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682131.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682114.jpg" />
 </div>
 
 
@@ -140,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682005.jpg" />
 </div>
 
 
@@ -168,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681956.jpg" />
 </div>
 
 
@@ -195,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681892.jpg" />
 </div>
 
 
@@ -224,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681826.jpg" />
 </div>
 
 
@@ -250,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681410.jpg" />
 </div>
 
 
@@ -276,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681396.jpg" />
 </div>
 
 
@@ -303,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681350.jpg" />
 </div>
 
 
@@ -330,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681194.jpg" />
 </div>
 
 
@@ -356,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681193.jpg" />
 </div>
 
 
@@ -382,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_681142.jpg" />
 </div>
 
 
@@ -411,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681096.jpg" />
 </div>
 
 
@@ -437,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681088.jpg" />
 </div>
 
 
@@ -464,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681075.jpg" />
 </div>
 
 
@@ -490,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680955.jpg" />
 </div>
 
 
@@ -517,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680937.jpg" />
 </div>
 
 
@@ -543,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680925.jpg" />
 </div>
 
 
@@ -569,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680922.jpg" />
 </div>
 
 
@@ -595,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680814.jpg" />
 </div>
 
 
@@ -621,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680809.jpg" />
 </div>
 
 
@@ -647,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680653.jpg" />
 </div>
 
 
@@ -673,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680637.jpg" />
 </div>
 
 
@@ -684,6 +602,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B63B97B470C1D5BD8926698AC79CA8E6D0C68152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222864   (680568) от 01.05.2018
+
+Александр Конторович | Купец (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попав в поле зрения спецслужб, человек уже не принадлежит себе. Никто не обязан учитывать его желания и считаться с его запросами. Чтобы обеспечить покой своей жены и еще не родившегося сына, Беглец соглашается вернуться в «Зону-31». На этот раз – уже не в роли Бродяги, ему поставлена задача, которую невозможно выполнить в одиночку. В команду Петра входят серьёзные (   Читать дальше...   )Жанр: Боевая фантастика, Альтернативная история, ПостапокалипсисПродолжительность: 08:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B37A09AA538C4E2F851B95BD929980BE57F482D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135171   (680537) от 19.05.2017
+
+Терри Пратчетт | Плоский мир. Ведьмы (Книга 1). Творцы заклинаний (2017) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем известно, что в Плоском мире волшебниками могут быть только мужчины. Более того, волшебный посох может быть передан только восьмому сыну восьмого сына. Но в этот раз произошла серьезная ошибка….. Посох оказался у девочки. Впервые представительнице слабого пола суждено переступить порог Незримого Университета в Анк-Морпорк, где до этого никогда не училась ни (   Читать дальше...   )Жанр: ФэнтезиИздательство: ИД СОЮЗПродолжительность: 08:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7D6E3A692A9CEA09FE56AB559EB909BAECCAA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535951   (680389) от 09.03.2022
+
+Иван Любенко | Клим Ардашев (Книга 20). Путешествие за смертью (Том 1). Могильщик из Таллина (2022) [MP3, Сергей Уделов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680389.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Таллине, в церкви Святого Олафа, в спину органиста вонзается стрела, а в музее братства Черноголовых пропадает складной золотой алтарь работы Яна ван-Эйка. Климу Ардашеву придётся разобраться, что объединяет четыре ноты, дописанные в партитуру погибшего музыканта, древнеримскую эпитафию на старом склепе и сражение времён Ливонской войны. Расследование осложняется (   Читать дальше...   )Жанр: Исторические детективыПродолжительность: 06:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488E9BA896D49E4FE550EA899D4D86615D1081A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

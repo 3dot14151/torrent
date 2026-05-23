@@ -1,55 +1,3 @@
-###  Публикация: 717514   (390010) от 02.11.2013
-
-Сироп / Syrup (2012) BDRip [720p] [Line]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Амбициозный молодой человек, сотрудник крупной компании, производящей газированные напитки, придумывает блестящий план на миллион американских долларов. План заключается в разработке и продвижении нового напитка, который сделает его значительно богаче и продвинет на самую вершину карьерной лестницы. Однако на пути у осуществления этого великолепного плана есть одно (   Читать дальше...   )Производство: США |  Lila 9th Productions, Windward EntertainmentЖанр: Драма, Мелодрама, КомедияРежиссер: Арам РаппапортАктеры: Эмбер Хёрд, Шайло Фернандес, Келлан Латс, Бриттани Сноу, Хуан Луис Асеведо, Кёрсти Элли, Джолин Андерсон, Макс Бэрри, Кэти Блейк, Закари Бут ...Перевод: Дублированный (Чистый звук)Язык субтитров: Русский, Английский (Full, SDH)Продолжительность: 01:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4EEC881934EAB64B5D3FCEB9C2ADD808C49B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717005   (389965) от 02.11.2013
-
-Заклятие / The Conjuring (2013) Blu-Ray [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В основе картины лежит реальная история семьи Перрон, которые утверждали, что жили в окружении привидений, как добрых, так и злых. Духи населяли дом на Род-Айленде, в котором Перроны проживали в семидесятых годах XX века.Производство: США / Evergreen Media Group, New Line Cinema, Safran CompanyЖанр: Ужасы, Триллер, БиографияРежиссер: Джеймс ВанАктеры: Вера Фармига, Патрик Уилсон, Рон Ливингстон, Лили Тейлор, Шэнли Касвелл, Хейли МакФарланд, Джои Кинг, Маккензи Фой, Кайла Дивер, Шэннон Кук-ЧунПеревод: ДублированныйЯзык субтитров: Английский (PGS), Арабский (PGS), Китайский (PGS), Чешский (PGS), Греческий (PGS), Иврит (PGS), Итальянский (PGS), Корейский (PGS), Польский (PGS), Португальский (PGS), Румынский (PGS), Русский (PGS), Испанский (PGS), Тайский (PGS), Турецкий (PGS)Продолжительность: 01:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A808E88B0CA839814FFB830CA629CEF34FD4F5E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570620   (389938) от 05.11.2012
 
 16 желаний / 16 Wishes (2010) [H.264] BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389938.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389936.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389908.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389899.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389797.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389795.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389790.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389789.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389729.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389551.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389520.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389513.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389506.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389490.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389428.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389384.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389310.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389268.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389267.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389262.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389257.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389234.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389223.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389189.jpg" />
 </div>
 
 
@@ -669,6 +617,62 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:283E149D1A4B42D9816FA835ED0C71CE04C79E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 718227   (389177) от 03.11.2013
+
+Инопланетное вторжение: Битва за Лос-Анджелес / Battle Los Angeles (2011) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Землю пытается захватить инопланетная цивилизация, истребляя все живое на своем пути. По всему миру начинается широкомасштабное сражение человечества за выживание. Отряду морских пехотинцев поручено во что бы то ни стало освободить осажденный город ангелов от таинственных и смертоносных тварей...Производство: США / Columbia Pictures, Relativity Media, Original FilmЖанр: фантастика, боевикРежиссер: Джонатан ЛибесманАктеры: Аарон Экхарт, Мишель Родригес, Бриджет Мойнэхэн, Майкл Пенья, Рамон Родригез, Уилл Ротхаар, Кори Хардрикт, Джим Пэррак, Джино Энтони Песи, Шаффер СмитПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced), Английский (Full)Продолжительность: 01:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D56A025FCE2571E6596419AA89291661CD96CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571343   (389160) от 06.11.2012
+
+Честь и ярость / Rage and Honor (1992) DVD-5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389160.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ходе полицейской операции против торговцев наркотиками погибает один из стражей порядка. Через информатора в полиции преступники узнают, что в операции принимал участие полицейский из Австралии Престон, работающий в Лос-Анджелесе под прикрытием.
+
+Дело обставляется так, чтобы взвалить вину за убийство на него. Однако случайный свидетель заснял все на видеокамеру. О кассете узнают обе противоборствующие стороны и парню приходится обратиться за помощью к своему учителю восточных единоборств Крис.
+
+Выясняется, что у нее есть и личные причины ненавидеть главаря наркомафии — он когда-то убил ее сенсея. Кассета все-таки попадает в руки мафии и ее используют в качестве приманки для австралийского агента и бесстрашной каратистки.Жанр: Боевик, драма, криминалРежиссер: Теренс Х. УинклессАктеры: Синтия Ротрок, Ричард Нортон, Терри Триз, Брайан Томпсон, Кэтрин Бах, Стивен Дэвис, Алекс Дэтчер, Патрик Мэлоун, Тоширо Обата, Тим Де Зарн, Джон Ван Несс, Мэтт О’Тул, Питер Каннингэм, Роджер Йуан, Фэйт Минтон, Кэти Лонг, Пол Д. Фау, Джефф Уинклесс, Шивонн Деркин, Ральф Сеймур, Лилли Руле, Кристофер Эдмондс, Стивен РичПеревод: Профессиональный одноголосыйЯзык субтитров: АнглийскиеПродолжительность: 01:32:50
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

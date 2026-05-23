@@ -6,7 +6,7 @@ Chief Architect Premier X8 18.1.1.4 [En] Portable (X64) by Duero
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834072.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chief Architect Premier X8 18.1.1.4 [En] (x64)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834064.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Your Universal MultiBoot Installer 2.0.2.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_834011.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mail.Ru Облако 15.06.0081 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_834009.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Error Lookup 2.1.1247 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_834007.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Avast Free Antivirus 2016 11.2.2261 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_834002.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Double Commander 0.4.5.2 beta [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833945.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Kaspersky Virus Removal Tool 15.0.19.0 (07.04.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833927.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ The Foundry MODO 10.0v1 Build 109580 + Content [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833919.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Chromodo Browser 48.12.18.254 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833912.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Image Uploader 1.2.5 build 3266(21.04.2010) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833898.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ AVS Document Converter 1.0.3.158 [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833885.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Epic Privacy Browser 48.0.2553.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833868.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Viber 6.0.0.3669 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833867.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Wondershare Filmora 7.0.2 RePack by FoXtrot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833852.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Kaspersky Rescue Disk 10.0.32.17 (08.04.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833849.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Easy UserBar 1.0 [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833838.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Wuala 16.12.2010 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833827.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Avast Internet Security 2016 11.2.2261 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833783.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Avast Premier 2016 11.2.2260 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833782.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Google Chrome 49.0.2623.112 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833779.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ FBackup 9.2.420 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833740.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833694.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Foxit PhantomPDF Business 7.3.6.321 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833680.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ GeoGebra 6.0.670.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833653.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ FileZilla 3.56.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833651.jpg" />
 </div>
 
 

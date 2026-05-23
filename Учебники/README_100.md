@@ -1,133 +1,3 @@
-###  Публикация: 1596032   (173895) от 08.12.2022
-
-Д.Ю. Нечипуренко | Экспериментальные методы в биофизике (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Конспект лекций по курсу "Экспериментальные методы в биофизике".Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98215475FE446E6B7B48191383B8695E0F26928A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596044   (173805) от 08.12.2022
-
-Н.В. Кленов | Современные экспериментальные исследования основ квантовой механики (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Конспект содержит 12 лекций по современным экспериментальным исследованиям основ квантовой механикиЖанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F3E419CB2EBDFAFEFE59B7F5CF9DC65339CF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596059   (173695) от 08.12.2022
-
-В.С. Захаров | Физика Земли (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Конспект лекций по предмету "Физика земли".Жанр: Геология, физикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF01123AB11BCED83370E997E34B289A2FBB7E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596053   (173678) от 08.12.2022
-
-А.В. Марков | Теория эволюции (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Конспект лекций по курсу "Теория эволюции"Жанр: БиологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20EC4570C5FD288A3C21BFF4213BB418D10B9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596020   (173660) от 08.12.2022
-
-И.А. Биленко, С.П. Вятчанин | Радиофизика (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит 14 лекций по радиофизике.Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4920A8C8963DA0E028A537F967D7D7E11FFA7263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518691   (173602) от 12.10.2023
 
 А.В. Ефимов (ред.) | Сборник задач по математике для втузов [4 книги] (1986 - 1990) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173602.jpg" />
 </div>
 
 
@@ -165,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173589.jpg" />
 </div>
 
 
@@ -191,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172935.jpg" />
 </div>
 
 
@@ -217,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172916.jpg" />
 </div>
 
 
@@ -243,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172816.jpg" />
 </div>
 
 
@@ -269,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172796.jpg" />
 </div>
 
 
@@ -295,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172244.jpg" />
 </div>
 
 
@@ -321,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171838.jpg" />
 </div>
 
 
@@ -347,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171817.jpg" />
 </div>
 
 
@@ -373,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171695.jpg" />
 </div>
 
 
@@ -400,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171178.jpg" />
 </div>
 
 
@@ -426,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170884.jpg" />
 </div>
 
 
@@ -453,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170822.jpg" />
 </div>
 
 
@@ -480,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170742.jpg" />
 </div>
 
 
@@ -507,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170488.jpg" />
 </div>
 
 
@@ -535,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170409.jpg" />
 </div>
 
 
@@ -561,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170388.jpg" />
 </div>
 
 
@@ -587,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170160.jpg" />
 </div>
 
 
@@ -613,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169777.jpg" />
 </div>
 
 
@@ -641,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169705.jpg" />
 </div>
 
 
@@ -667,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169604.jpg" />
 </div>
 
 
@@ -679,6 +549,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4E2A5F139BB05985077A998535A2DC296AE4970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430690   (169567) от 11.12.2020
+
+В.В. Зайцев и др. | Элементарная математика. Повторительный курс (1974) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой повторительный курс элементарной математики в том смысле, что она рассчитана на читателя, уже изучавшего предмет, но желающего пополнить, укрепить и систематизировать свои знания (например, с целью подготовки в вуз).Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA2E736D1F7044176162DE035272C733702BBA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596439   (169547) от 10.12.2022
+
+Е.А. Троицкая, Л.А. Артюшина | WEB-программирование (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются вопросы, связанные с инструментальными средствами создания web-сайтов, основными понятиями и принципами их функционирования. Даются общий обзор языка jаvascript и основы технологии программирования на PHP. Разработано в соответствии с программой дисциплины «WEB-программирование».
+Предназначено для студентов бакалавриата очной и заочной форм обучения (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731BF575E8A48A4E72FF1E133E9FD77F409974B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430966   (169407) от 11.12.2020
+
+Сергей Козлов | Наружное наблюдение. Учебно-практическое пособие (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее учебно-практическое пособие подготовлено на основе многолетнего практического опыта ветеранов отечественных спецслужб.
+Благодаря представленным в пособии материалам читатель не только сможет ознакомиться с организацией и тактикой наружного наблюдения в различных условиях, но и получит наглядный и эффективный практикум по выявлению такого наблюдения, а также (   Читать дальше...   )Жанр: Учебник, БезопасностьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD4C2E9497FA50183E36ABC4D1B645AD807870C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596573   (169013) от 11.12.2022
+
+В.И. Верескун, А.С. Сафонов | Электротехника и электрооборудование судов (1987) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169013.jpg" />
+</div>
+
+
+###  Подробнее
+
+В соответствии с программой рассмотрены основы теории электрических к магнитных цепей, электромагнитных устройств и электрических измерений. Приведены схемы судового электрооборудования - автоматизированных электростанций и электроприводов.
+Предназначена для студентов не электротехнических специальностей, а также инженерно-технических работников, занимающихся проектированием (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2A26FF87B46D5ADA815FEB59B25562AAB3D8B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596556   (169005) от 11.12.2022
+
+Г.Б.Редько | Учебное телевидение на уроках физики (1986) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие посвящено различным аспектам теории и практики применения учебного телевидения на уроках физики в средней школе.
+На основе результатов многолетних исследований и практического опыта автор приводит разработки уроков с учетом использования телеинформации и дает методические рекомендации по использованию учебных телепередач для повышения качества обучения физике (   Читать дальше...   )Жанр: физика, пособие для учителейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D82539A576D004E8C4F11CE05C3EF148A4337FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

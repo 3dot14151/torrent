@@ -6,7 +6,7 @@ Fridrik Karlsson - Total Chillout (2009) [APE|image+.cue]<New Age, Instrumental,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283946.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Michael Heemskerk - Angels (2016) [MP3|320 Kbps] <New Age, Meditation>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283033.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jill Garcia - Shine (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283029.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Nanda Re - Shaman Earth Dance (2015) [MP3|320 Kbps] <New Age, Enigmatic, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282910.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Enigmatic I & II (2006) [FLAC (tracks+.cue)|Lossless]<New Age, Enigmatic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282849.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tom Holkenborg aka Junkie XL - Distance Between Dreams / Расстояние м
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282795.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tom Holkenborg aka Junkie XL - Distance Between Dreams / Расстояние м
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282686.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jake Butineau - Dune Sea (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282582.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Niall & Juliana - Angelic Reiki (2012) [MP3|320 кб/с]<New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282427.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Labrinth - Euphoria / Эйфория (Original Score from the HBO Series) (2019)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282202.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Two Steps From Hell - Vanquish (2016) [FLAC|Lossless|WEB-DL|tracks]<Neo Classica
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282141.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ David Thomas - Samsara, Vol. 13 (Ethnic Opera) (2015) [MP3|320 кб/с]<New age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282104.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Labrinth - Euphoria / Эйфория (Original Score from the HBO Series) (2019)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282064.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Paul Mauriat - The Russian Album (1993) [FLAC|Lossless]<Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281862.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281089.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dr. Mary Anderson - Meditations for the Journey Within (2016) [MP3|320 Kbps] <Ne
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280909.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Christmas Shooting Stars: The Finest Chillout and Lounge Music (2016) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280899.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Steven Price - The Aeronauts / Аэронавты (Original Motion Picture Sound
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280808.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Tyler Bates, VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280802.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280676.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Tyler Bates, VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280671.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music fro
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280668.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Maryada Ram - Eternal Tibet (2017) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280601.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Gregorian - Holy Chants (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280435.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music fro
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280327.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Steven Price - The Aeronauts / Аэронавты (Original Motion Picture Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280324.jpg" />
 </div>
 
 

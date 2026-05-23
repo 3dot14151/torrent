@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168720.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Everything 1.4.1.1002 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168718.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ZWCAD 2024 SP1 Professional [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168713.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ simplewall 3.0.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168688.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ SoftMaker Office Professional 2021 rev. S1060.1203 (x64) Portable by 7997 [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168685.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v13 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168671.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ IrfanView 4.62 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168669.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ AMD Radeon Software Adrenalin 2020 Edition 19.12.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168668.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Adobe Character Animator 2020 3.1.0.49 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168640.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ WinRAR 7.00 Beta 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168631.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Adobe Media Encoder 2023 23.1.0.81 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168614.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Adobe Audition 2023 23.1.0.75 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168594.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Foxit PDF Editor Pro 2023.2.0.21408 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168592.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ ThisIsMyFile 3.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168584.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Hard Disk Sentinel PRO 5.61.13 Build 11463 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168580.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Victoria 5.22 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168578.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v13 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168563.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Unreal Commander 3.57 Build 1495 + Portable + GraphXPackv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168557.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Auslogics BoostSpeed 13.0.0.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168533.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ UltraUXThemePatcher 4.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168521.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Microsoft Activation Scripts (MAS) 2.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168511.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Visual Studio Code 1.52.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168475.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Auslogics Windows Slimmer 3.0.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168443.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Windows 10, Version 1909 with Update [18363.535] AIO 20in2 (x86-x64) by adguard 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168441.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Psiphon 3 build 159 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168435.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ FurMark 1.24.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168414.jpg" />
 </div>
 
 

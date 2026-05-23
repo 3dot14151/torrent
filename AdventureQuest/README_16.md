@@ -1,29 +1,3 @@
-###  Публикация: 1105153   (877549) от 16.02.2017
-
-The Book of Unwritten Tales 2 (2015) [Multi] (4.6.1.182341/dlc) License GOG [Almanac Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Уже первые встречи со старыми героями настраивают на знакомый ироничный лад. Принцесса Иво, которую против ее воли хотят выдать замуж, обнаруживает, что она… беременна. Причем, судя по всему, от святого духа - ведь Иво толком даже не знает, что такое секс, и консультируется по этому поводу то с птичкой, то с говорящим справочником по эльфийской медицине. Над Вильбуром, (   Читать дальше...   )Тип издания: LicenseРазработчик: KING ArtЖанр: AdventureЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C518E28A53036C3A2083B548AD6EFBA29867C546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105086   (877535) от 16.02.2017
 
 Drizzlepath: Glass (2017) [Ru/Multi] (1.0.0) License HI2U
@@ -32,7 +6,7 @@ Drizzlepath: Glass (2017) [Ru/Multi] (1.0.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877535.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Dagger of Amon Ra (1992) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876271.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Colonel's Bequest (1989) [En] (1.000.046) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876213.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Wardrobe (2017) [En/It] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875880.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Little Nightmares II (2021) [Ru/Multi] (1160/dlc) License GOG [Echanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874211.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ GRIS (2018) [Ru/Multi] (1.0/upd3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874018.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ White Night (2015) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873100.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Shelter 2: Mountains (2015) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872961.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ In Other Waters (2020) [En] (1.0.2) License GOG (обновляемая)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872167.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Wanderlust: Transsiberian (2020) [En] (1.1.13.2003271410) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870250.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Mask of Mists (2020) [Ru/Multi] (1.0.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870227.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Call of Cthulhu (2018) [Ru/Multi] (4.15.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867724.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Those Who Remain (2020) [Ru/Multi] (1.0191) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866214.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Don't Forget Me (2021) [Ru/Multi] (1.1.3) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866069.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Don't Starve (2013) [Ru/En] (1.168028/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865720.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Barrow Hill: Curse of the Ancient Circle (2006) [Multi] (bh1-gog2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865303.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Barrow Hill: The Dark Path (2016) [Multi] (bh2-gog1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865168.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Herald: An Interactive Period Drama - Book I & II (2017) [En] (1.0.2) License HI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863797.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Republique Remastered (2015) [Ru/Multi] (1.0) License CODEX [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863724.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Mooseman / Человеколось (2017) [Ru/En] (1.0) Repack R.G. Мех�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863665.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Republique Remastered (2015) [Ru/Multi] (1.0) Repack bosenok [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862182.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Nelly Cootalot: The Fowl Fleet (2016) [En/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862180.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Day of the Tentacle Remastered (2016) [En/Multi] (1.1.6) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862061.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Republique Remastered (2015) [Ru/En] (1.0) Repack xatab [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861974.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Boogeyman 2 (2017) [Ru/Multi] (1.4.1) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861788.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Boogeyman 2 (2017) [Ru/Multi] (1.4.1) License HI2U
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFAFD3F423AABA36A9CB9F4A62EE321D747F53E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375852   (861456) от 16.04.2020
+
+Sunwards (2020) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sunwards — это сложная приключенческая игра основанная на снах, которые всегда появляются во время борьбы с депрессией. Впечатления от некоторых снов фрагментируются в памяти, и объединяются, чтобы в седующий раз сформироваться в единый уникальный мир – сон волшебника. У каждого человека в сердце живет свой волшебник, это фантастическое и грустное путешествие в мире (   Читать дальше...   )Тип издания: RepackРазработчик: 黑鸦BlackCrowЖанр: Adventure, Action (Slasher), RPG, 3rd Person, 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806874984655672AA72EF91C4935BE6A1CAA9C3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

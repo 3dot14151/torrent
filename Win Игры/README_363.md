@@ -1,29 +1,3 @@
-###  Публикация: 1674751   (160727) от 06.11.2023
-
-Parking Tycoon: Business Simulator (2023) [Ru/Multi] (2021.3.16.5719) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Parking Tycoon: Business Simulator - стратегия, погружающая в мир управления автомобильными парковками. С самого начала вы получаете в свое распоряжение огромный участок земли, на котором создаете шумную парковочную империю. Вы начинаете свой путь со стратегического планирования, строительства и постоянной модернизации, чтобы ваши парковки не только привлекали клиентов, (   Читать дальше...   )Тип издания: SceneРазработчик: GeekonЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836540FCE4123DF51CC1568AD77D25D72C570801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674636   (160719) от 06.11.2023
 
 HighFleet (2021) [Ru/En] (1.163d) License GOG
@@ -32,7 +6,7 @@ HighFleet (2021) [Ru/En] (1.163d) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160719.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Moviehouse - The Film Studio Tycoon (2023) [Ru/Multi] (1.6.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160712.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Tiny Thor (2023) [Multi] (6125) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160710.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Incredible Dracula 10: Dark Carnival / Невероятный Дракула 10:
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160529.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ DreamWorks All-Star Kart Racing (2023) [Multi] (1.0/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160501.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Company of Crime (2020) [Ru/Multi] (1.0.5.1178) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160347.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ City of Stories: Stephan's Journey / Город Историй: Путешест
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160127.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Racine (2023) [Multi] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160049.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Lillusion (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160040.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ IXION (2022) [Ru/Multi] (1.0.2.3) Repack dixen18
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159941.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.06) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159915.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Frozen Cortex (2015) [En] (2.0.0.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159758.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Christmas Fables: Holiday Guardians / Рождественские Притчи:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159735.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Alexey's Winter: Night Adventure (2021) [Ru/Multi] (Build 10121369) Repack Other
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159709.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Attentat 1942 (2017) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159530.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Svoboda 1945: Liberation (2021) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159515.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Molten Horn (2023) [En] (1.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159487.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ GUNHEAD (2023) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159428.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159422.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Grim Tales 24: All Shades of Black (2023) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159233.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Cursed Fables 2: Twisted Tower / Проклятые предания 2: Двул
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159201.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Alluna and Brie (2019) [En] (1.0) Scene TinyIso
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159186.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Space Tail: Every Journey Leads Home (2022) [Multi] (1.0.2r9/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159149.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ GUNHEAD (2023) [Multi] (1.2) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159146.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Project Lazarus (2023) [Ru/Multi] (7.1) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159118.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Project Lazarus является смесью упрощенного рогал�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F562182B2E62F823FB1FE856169FBE5FEB13842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676078   (159100) от 11.11.2023
+
+DYSMANTLE (2021) [Ru/Multi] (1.3.0.55/dlc) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло много лет, и вы, наконец, покидаете свое убежище. Но дивный старый мир уже не такой, как прежде. Теперь он полон отвратительных и жутких существ. В этом мире, похоже, нет места человеку, ведь в нем властвует природа. И со временем все станет только хуже. Вам предстоит найти способ выбраться с этого проклятого острова. Но до тех пор наслаждайтесь сладостью (   Читать дальше...   )Тип издания: SceneРазработчик: 10tons LtdЖанр: Ролевая игра, Survival, Open WorldЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Китайский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A48E4756B42A8266188902AF110D271A3AECA64
 ```
 
 https://mybot314.ru/tekegram_catalog/

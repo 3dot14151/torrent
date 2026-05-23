@@ -6,7 +6,7 @@ TranslucentTB 2022.1 Portable (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137193.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Blackmagic Design DaVinci Resolve Studio 16.1.2.026 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137180.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137166.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ MInstAll StartSoft 51-2018 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137162.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Reg Organizer 9.10 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137159.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Psiphon 3 build 176 (DC 31.12.2022) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137135.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ iTubeGo 7.2.0 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137100.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ OpenVPN 2.6.8 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137043.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ FL Studio Producer Edition 20.9.2 (Build 2963) RePack by Soul Storm [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137000.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ MediaHuman YouTube Downloader 3.9.17 (1410) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136989.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ O&O Defrag Professional 30.0 Build 1065 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136988.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Skype 8.67.0.99 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136684.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Wise Care 365 Pro 5.6.2.558 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136665.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Microsoft PowerToys 0.29.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136618.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ BELOFF [dp] 2020.12.4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136616.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ IObit Driver Booster Pro 8.2.0.308 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136612.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136607.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Reg Organizer 8.60 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136590.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Realtek High Definition Audio Driver 6.0.9071.1 WHQL (Unofficial) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136589.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ R-Studio Network Edition 8.15 Build 180125 RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136579.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ AOMEI Partition Assistant Technician Edition 9.1.0 [DC 31.12.2020] RePack by Kpo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136574.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ EZ CD Audio Converter 1.0.4 Ultimate [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136483.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Data Flow Accelerator 4.5.3.37 Beta [Русский, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136473.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Driver Genius 12.0.0.1211 Portable by punsh [Английский / Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136438.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Internet Download Manager 6.14.2 Final RePack by KpoJIuK [Русский / Ан�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136437.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ TeamViewer 8.0.16642 Final + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136393.jpg" />
 </div>
 
 

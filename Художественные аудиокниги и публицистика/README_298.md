@@ -1,84 +1,3 @@
-###  Публикация: 1012217   (794729) от 30.04.2016
-
-Андрей Молчанов | Схождение во ад (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Если нам суждено быть побежденными в этой войне, наше поражение будет окончательным. Наши враги провозгласили свои цели таким образом, что у нас не остается никаких иллюзий относительно их намерений. Евреи, русские большевики и тьма шакалов, идущих за ними и тявкающих у их ног - ни один из них, мы знаем это, не сложит оружия до тех пор, пока они не разрушат и не (   Читать дальше...   )Жанр: ДетективПродолжительность: 11:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF9D341435578F7B60490F4D6B9E2AA3EC2FBB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012315   (794725) от 30.04.2016
-
-Иван Рак | Чего не говорил Заратустра. (2007) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«…Керсаспа своими собственными руками изготовил боевую палицу и отправился искать злого змея Сэрвару. Это было рогатое чудовище, из пасти которого струею бил желтый яд, отравляя все вокруг. Рассказывали, что у Сэрвары зубы длиной с человеческую руку, каждое ухо величиной в четырнадцать одеял, каждый глаз величиной с колесо, а рога как ветвистые деревья. И теперь (   Читать дальше...   )Жанр: МифологияПродолжительность: 08:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F90FC79D4C9DEF60A185A6BA130D5327E6D2A1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012322   (794718) от 30.04.2016
-
-Пётр. Краснов | Русско-японская война (2007) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Русско-японская война
-
-Будучи военным корреспондентом на этой войне. Краснов принимал непосредственное участие в боях. Перед нами захватывающее повествование о героизме наших солдат в битвах с противником, превосходящим русских и числом и оснащением.На внутреннем фронте
-(   Читать дальше...   )Жанр: ИсторияПродолжительность: 06:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D297EFB9517B822FBEEBC2573361C856B12EF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939395   (794659) от 12.11.2021
 
 С улыбкой по Свету! (2015) [MP3, Виктор Коклюшкин, Светлана Рожкова и др.]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794659.jpg" />
 </div>
 
 
@@ -114,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794575.jpg" />
 </div>
 
 
@@ -140,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794568.jpg" />
 </div>
 
 
@@ -166,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794567.jpg" />
 </div>
 
 
@@ -192,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794468.jpg" />
 </div>
 
 
@@ -218,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794464.jpg" />
 </div>
 
 
@@ -244,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794430.jpg" />
 </div>
 
 
@@ -270,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794329.jpg" />
 </div>
 
 
@@ -296,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794268.jpg" />
 </div>
 
 
@@ -322,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_794196.jpg" />
 </div>
 
 
@@ -348,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794020.jpg" />
 </div>
 
 
@@ -375,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794010.jpg" />
 </div>
 
 
@@ -402,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793974.jpg" />
 </div>
 
 
@@ -428,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793966.jpg" />
 </div>
 
 
@@ -454,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793895.jpg" />
 </div>
 
 
@@ -483,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793894.jpg" />
 </div>
 
 
@@ -509,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793824.jpg" />
 </div>
 
 
@@ -535,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793819.jpg" />
 </div>
 
 
@@ -561,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793807.jpg" />
 </div>
 
 
@@ -587,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793742.jpg" />
 </div>
 
 
@@ -613,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793736.jpg" />
 </div>
 
 
@@ -639,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793684.jpg" />
 </div>
 
 
@@ -666,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793579.jpg" />
 </div>
 
 
@@ -680,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:070ECD22F29DB61B1EDBAC902D82E2E7DB0AA8D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386686   (793560) от 30.05.2020
+
+Бетти Смит | А наутро радость (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бруклин 1927 года. Анни и Карл так юны и влюблены. Все против их брака: родители, друзья, даже декан факультета, где учится Карл. Брак может сломать жизнь, любовь еще никому не приносила пользы – вот что твердят кругом. Но разве это может быть правдой, когда люди искренне любят друг друга? Когда они молоды, когда у них есть мечты? Анни и Карл полны решимости преодолеть (   Читать дальше...   )Жанр: КлассикаПродолжительность: 10:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1DFCB898ECDE50E0E9E8388BEB482305C2556E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509531   (793543) от 13.11.2021
+
+Айзек Азимов | Основание (Книга 1). Академия (2021) [MP3, Максим Суханов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество покорило космос, Земля уже давно перестала быть центром Вселенной. Огромные размеры Галактической Империи явно не пошли ей на пользу – уязвимость отдельных планет и неэффективное управление угрожают разрушить все, что было создано с таким трудом. Сможет ли Гэри Сэлдон – ученый, основатель науки «психоистория», восстановить человеческую культуру после (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 09:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888E1D8C2020B16C722C3DD392C5F5C0418CBB67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122611   (793504) от 06.04.2017
+
+Жюльетта Бенцони | Три властелина ночи (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Казанова, Картуш, Калиостро… Соблазнитель, разбойник и чародей, три знаменитые личности XVIII века, чьи подлинные биографии удивительнее, чем самые смелые фантазии романистов. Более всех известно имя Казановы, прославившегося своими любовными подвигами, но мало кто знает о том, каким образом он ступил на этот путь. Биография Калиостро скорее напоминает легенду. Здесь (   Читать дальше...   )Жанр: ПриключенияПродолжительность: 07:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD17FB0E6EA8EAFAF3631F2DDC50FD0D62DF6C07
 ```
 
 https://mybot314.ru/tekegram_catalog/

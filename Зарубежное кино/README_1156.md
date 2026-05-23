@@ -1,56 +1,3 @@
-###  Публикация: 547147   (474271) от 15.09.2012
-
-И дождь омоет наши души / Dazd pada na nase duse (2002) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Молодой парень Джоко бежит из тюрьмы. По дороге он крадет машину, на заднем сидении которой обнаруживает маленькую Кику. Девочка напугана, но постепенно ее страх перед Джоко сменяется боязнью за беглеца. Кика становится «соучастницей» побега.
-Тем временем Джоко и Кика объявляются в розыск. Время работает против них. Джоко пытается достать денег, чтобы они могли куда-нибудь уехать…Жанр: драмаРежиссер: Владо БалкоПродюсер: Патрик ПассАктеры: Кристина Сваринска, Эрик Олле, Стано Данчак, Александра Заборска, Ивана НоваковаПеревод: многоголосый закадровый (профессиональный)Продолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C145F90CC845D964BCE897D5BDF62AB506D878A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567175   (474240) от 02.08.2022
-
-Детектив К: Тайна демона - вампира / Joseon myeongtamjeong: heuphyeolgwimaui bimil / Detective K: Secret of the Living Dead (2018) WEBRip [H.265/1080p-LQ] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В Чосоне снова неспокойно. Некто выкапывает обгоревшее тело женщины и оживляет её с помощью крови. После этого в округе начинают происходить очень странные дела - люди воспламеняются прямо на улице и сгорают заживо. Самое время детективу Ким Мину с верным помощником взяться за расследование. Но вот ещё одна странность - куда бы они ни пошли, везде натыкаются на загадочную (   Читать дальше...   )Производство: Южная Корея / DMZ Comics, Showbox/MediaplexЖанр: комедия, детектив, приключенияРежиссер: Ким Сог-юнАктеры: Ким Мён-мин, О Даль-су, Ким Джи-вон, Ким Бом, Пак Кын-хён, У Хён, Ли Мин-ги, Нам Сон-джин, Ан Нэ-сан, Хён УПеревод: Одноголосый любительский (Кинозал Мааниша)Язык озвучки: РусскийСубтитры: Русские (forced - только на текст)Продолжительность: 01:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF7F3B7F463AE3DEB865FBFEBE33731F6CCB2DCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560401   (474234) от 02.08.2022
 
 Садист / Bully (2001) WEBRip [H.265/1080p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474234.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474172.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474145.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474118.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474068.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474059.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474053.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474045.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474042.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473959.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473954.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473940.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473936.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473923.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473899.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473895.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473880.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473878.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473869.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473848.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473835.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473834.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473755.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473751.jpg" />
 </div>
 
 
@@ -670,6 +617,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FBCC51C523F2ADBD620FD371150FBD3C8585FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245267   (473748) от 05.09.2018
+
+8 подруг Оушена / Ocean's Eight (2018) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пять лет, восемь месяцев, 12 дней… и далее. Именно столько Дебби Оушен разрабатывала план величайшего ограбления своей жизни.
+Она точно знает, что для него потребуется, — команда лучших в своем деле, начиная с ее давней сообщницы Лу Миллер. Вместе они собирают команду уникальных специалистов. Их цель — неотразимые 150 миллионов долларов в бриллиантах — в бриллиантах (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: боевик, триллер, комедия, криминалРежиссер: Гэри РоссАктеры: Сандра Баллок, Кейт Бланшетт, Гриффин Данн, Дирдри Гудвин, Энн Хэтэуэй, Минди Кейлинг, Рианна, Даниэлла Раббани, Брайан Дж. Картер, Сара Полсон, АквафинаПеревод: Дублированный (Лицензия EUR)Субтитры: Русские, английскиеПродолжительность: 01:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6406490D081F205CA1FC5FE554C8CED9756B834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245263   (473745) от 05.09.2018
+
+8 подруг Оушена / Ocean's Eight (2018) UHD Blu-ray [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit] [EUR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пять лет, восемь месяцев, 12 дней… и далее. Именно столько Дебби Оушен разрабатывала план величайшего ограбления своей жизни.
+Она точно знает, что для него потребуется, — команда лучших в своем деле, начиная с ее давней сообщницы Лу Миллер. Вместе они собирают команду уникальных специалистов. Их цель — неотразимые 150 миллионов долларов в бриллиантах — в бриллиантах (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: боевик, триллер, комедия, криминалРежиссер: Гэри РоссАктеры: Сандра Баллок, Кейт Бланшетт, Гриффин Данн, Дирдри Гудвин, Энн Хэтэуэй, Минди Кейлинг, Рианна, Даниэлла Раббани, Брайан Дж. Картер, Сара Полсон, АквафинаПеревод: Дублированный (Лицензия EUR)Субтитры: Русские, английские, арабские, китайские, датские, французские, итальянские, корейские, португальские, испанские, шведские, тайскиеПродолжительность: 01:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0985B76B0373FA2144BDA830905805C1BD45426
 ```
 
 https://mybot314.ru/tekegram_catalog/

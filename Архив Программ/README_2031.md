@@ -6,7 +6,7 @@ RJ TextEd 16.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117203.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PeaZip 9.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117197.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Privacy Eraser Free 6.3.3 Build 4839 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117195.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Microsoft .NET 6.0.27 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117193.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Monkey's Audio 10.50 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117180.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Sante DICOM Editor 10.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117179.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ CyberLink PowerDirector 2024 Ultimate 22.1.2.2605.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117116.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Devious Machines - Everything Bundle 02.2024 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117093.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ DesktopDigitalClock 5.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117090.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ XYplorer 25.50.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117061.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ QOwnNotes 24.2.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117044.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ VMware Workstation 17 Pro 17.5.0 Build 22583795 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116983.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ JetBrains PhpStorm 2023.3.4 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116933.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ OneCommander Pro 3.69.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116931.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Topaz Gigapixel AI 7.0.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116917.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ FreeFileSync 13.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116912.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Draw.io 23.1.5+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116911.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ FBackup 9.9.855 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116910.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Darktable 4.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116905.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Text Editor Pro 28.4.2 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116887.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Adobe InDesign 2024 19.2.0.46 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116817.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ MSI Afterburner 4.6.6.16831 Beta 3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116796.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ DefenderKiller 11.2 Portable by Vlado [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116774.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Bandicam 7.1.0.2151 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116766.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Firefox Browser ESR 115.8.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116756.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Windows 11 Debloater 2.0.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116753.jpg" />
 </div>
 
 

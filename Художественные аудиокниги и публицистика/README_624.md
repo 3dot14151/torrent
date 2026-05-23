@@ -1,84 +1,3 @@
-###  Публикация: 1074193   (323437) от 21.11.2016
-
-Шолом-Алейхем | Заколдованный портной (1989) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В настоящее издание произведений Шолом-Алейхема (1859 - 1916), приуроченное к 125-летию со дня рождения писателя, вошли его избранные повести ("Тевье-молочник", "Мальчик Мотл" и др.) и рассказы ("Рябчик", "Горшок", "Три головки" и др.).
-
-Шолом-Алейхем | Заколдованный портной [2011]Жанр: Классика, повесть, рассказПродолжительность: 24:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB4CD832F0C7E41568135562E925A9C0E763355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073909   (323433) от 21.11.2016
-
-Александр Боханов | Последний царь (2007) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представлен исторический роман «Последний царь». Эта книга, по словам её автора, посвящена «Правде Последнего Царя» Российской империи - Николая II...Жанр: Историческая проза, романПродолжительность: 22:26:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0FE84C7F52D051800960C905B1AB4657769CB48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582491   (323355) от 09.10.2022
-
-Фёдор Достоевский | Записки из подполья (2015) [MP3, Михаил Горевой]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Повесть «Записки из подполья» занимает особое место среди величайших произведений Фёдора Михайловича.
-«Записки из подполья» — произведение, открывшее новый этап в творчестве Достоевского. В центре повести характерный образ «идеолога», мыслителя, носителя хотя и странной, «парадоксальной», но в то же время теоретически замкнутой системы взглядов. Не будучи единомышленником (   Читать дальше...   )Жанр: Классическая проза, ПовестьПродолжительность: 05:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F587F04D3B746930A195A7512643C4D7EF5B3BC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582451   (323348) от 09.10.2022
 
 Антон Чиж | Варвара Ванзарова (Книга 2). Не верь зеркалам (2022) [MP3, Полина Войченко]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323348.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323310.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323309.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323308.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323306.jpg" />
 </div>
 
 
@@ -217,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323301.jpg" />
 </div>
 
 
@@ -244,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323296.jpg" />
 </div>
 
 
@@ -270,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323294.jpg" />
 </div>
 
 
@@ -296,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323194.jpg" />
 </div>
 
 
@@ -322,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323189.jpg" />
 </div>
 
 
@@ -348,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323173.jpg" />
 </div>
 
 
@@ -374,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323172.jpg" />
 </div>
 
 
@@ -402,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323160.jpg" />
 </div>
 
 
@@ -430,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323154.jpg" />
 </div>
 
 
@@ -456,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323153.jpg" />
 </div>
 
 
@@ -482,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323140.jpg" />
 </div>
 
 
@@ -508,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322999.jpg" />
 </div>
 
 
@@ -536,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322996.jpg" />
 </div>
 
 
@@ -562,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322990.jpg" />
 </div>
 
 
@@ -589,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322986.jpg" />
 </div>
 
 
@@ -616,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322937.jpg" />
 </div>
 
 
@@ -642,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322856.jpg" />
 </div>
 
 
@@ -668,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322794.jpg" />
 </div>
 
 
@@ -679,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C9AD28AD827C0F7B6B8D27F555FBE17B73506F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331568   (322777) от 16.10.2019
+
+Майкл Коннелли | «Линкольн» для адвоката (2019) [MP3, Олег Новиков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микки Холлер – адвокат по уголовным делам. Его офис – заднее сиденье «линкольна», в котором он путешествует между судами Лос-Анджелеса; клиенты – шулеры, драчуны, пьяные водители и тому подобная братия. Для циника Холлера, в общем-то, не важно, виновен или нет его подзащитный. Разве правосудие – не тот же торг? Но наконец в этой мутной водице Микки вылавливает крупную (   Читать дальше...   )Жанр: ДетективПродолжительность: 15:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDBA85044FD6456938405FF84A47A05C93AB3973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073859   (322776) от 21.11.2016
+
+Вячеслав Шалыгин | Путь с небес (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересы правителя Каллисто князя Сергея Преображенского никогда не выходили далеко за пределы лун Юпитера, ну, максимум – Солнечной системы. Но, как известно, человек предполагает… Судьба явилась к князю в виде загадочного китайского купца, предсказавшего появление в далеком космосе таинственного Рубежа, который привёл к гибели множества обитаемых миров. Сергей (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 16:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB1A1E9394AC4E41D0782ED0D40AF944C16E4F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331487   (322646) от 16.10.2019
+
+Макс Фрай | Неизвестным для меня способом (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте себе человека, который сначала сам, по собственному желанию залезает в сундук и закрывает крышку. А потом начинает в этом сундуке задыхаться. И когда приступ клаустрофобии доводит его до полного истощения, он вдруг открывает глаза и понимает: сундука-то нет! Он исчез, и человек просто лежит на полу. Все рассказы в аудиокниге примерно про это. Ну или для (   Читать дальше...   )Жанр: Фэнтези, МистикаПродолжительность: 07:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEB664A5283936984B2C23D8884C2E10DF6DD51
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1279326   (766042) от 29.01.2019
-
-Chimeras 9: Wailing Waters (2019) [En] (Beta) Unofficial
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение красочной мистической серии игр Chimeras преподнесет вам череду загадочных убийств и необъяснимых эпидемий. Вас будет бросать то в прошлое, то в хитросплетенные авантюры, где каждый шаг может оказаться для вас последним. Будьте внимательны! Кто-то хочет помешать вашим расследованиям.Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55092E25B4F1F1BF7A7E53224E9F456E03E0F87C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279318   (766033) от 29.01.2019
 
 Halloween Chronicles: Monsters Among Us (2018) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Halloween Chronicles: Monsters Among Us (2018) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766033.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Save Jesus (2016) [En] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766006.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Wild Eternal (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765998.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Paranormal Files: Fellow Traveler / Паранормальные явления:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765956.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Asura (2017) [En/Ch] (1.0.27251) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765946.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ On The Road - Truck Simulation (2017) [En/De] (0.52) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765943.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Mr Shifty (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765942.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Haydee (2016) [Ru/Multi] (1.09.1) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765940.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Moonfall (2017) [Ru/Multi] (1.00) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765929.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ The Catch: Carp & Coarse (2020) [Ru/Multi] (1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765893.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765874.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765839.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Greed 3: Old Enemies Returning / Жадность 3: Старые враги в�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765713.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Attack on Titan 2 - A.O.T.2 (2018) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765624.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ PC Building Simulator (2019) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765060.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Homefront: The Revolution (2016) [Ru/Multi] (1.0781467) SteamRip Let'sPlay [Free
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765041.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Tank Warfare: Tunisia 1943 (2017) [Ru/En] (11.30.21/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765004.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Tower of Time (2018) [Ru/Multi] (1.4.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764999.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ UNSIGHTED (2021) [Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764954.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Distance (2014) [En] (1.0.6009) Repack Mizantrop1337
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764783.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Assault Gunners HD Edition (2018) [Multi] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764779.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Shadowplay 3: The Forsaken Island (2018) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764390.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Wanderlust: What Lies Beneath / Жажда странствий: Что утаи
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764387.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ PuppetShow 15: Porcelain Smile (2019) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764373.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764304.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFFDADD4A7B48C39118EC6C016E338D88ED8D27C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279941   (764224) от 31.01.2019
+
+Lumo (2016) [Ru/Multi] (1.11.08) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lumo, волшебный платформер повышенной степени уютности. Иногда для приключения не нужен повод, во всяком случае – серьезный. В самом деле, не все же время спасать миры!Тип издания: RepackРазработчик: Triple Eh?Жанр: Adventure (Puzzle), 3D, IsometricЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD69BD27FF346A685B40960C4E16A43D9BEC971
 ```
 
 https://mybot314.ru/tekegram_catalog/

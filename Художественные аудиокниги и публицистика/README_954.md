@@ -1,85 +1,3 @@
-###  Публикация: 410816   (101591) от 08.10.2025
-
-Константин Симонов | Русский вопрос (Радиоспектакль) (2010) [MP3, Валентин Гафт и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр FM с Мариной Багдасарян. Из архива «Гостелерадиофонда».
-Константин (Кирилл) Михайлович Симонов (1915–1979) – русский советский писатель, поэт, общественный деятель.
-«Русский вопрос» это первая послевоенная пьеса К. Симонова, написана в 1946 году, в 1947 году удостоена Государственной премии СССР. В этой пьесе Симонов рассказывает о «пересмотре сложившихся (   Читать дальше...   )Жанр: Русская литература, классика, военная проза, пьесаВ ролях: Валентин Гафт, Владимир Кенигсон, Валерий Еремичев и др.Издательство: Радио «Культура», ГостелерадиофондПродолжительность: 02:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468AB2DDF2C68842ED8136AB462981A20A2A4239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 410286   (101589) от 08.10.2025
-
-Константин Симонов | Жди меня (Радиоспектакль) (2009) [MP3, Олег Ефремов, Марина Неёлова и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр FM с Мариной Багдасарян. Из архива «Гостелерадиофонда».
-Константин (Кирилл) Михайлович Симонов (1915–1979) – русский советский писатель, поэт, общественный деятель. Герой Социалистического Труда (1974). Лауреат Ленинской (1974) и шести Сталинских премий (1942, 1943, 1946, 1947, 1949, 1950). С началом войны был призван в армию, работал в газете «Боевое (   Читать дальше...   )Жанр: Русская литература, классика, пьесаВ ролях: Олег Ефремов, Марина Неёлова, Ростислав Плятт и др.Продолжительность: 02:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C76539E882FDB88FAB1C7856388E0BEAE8739FC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 410290   (101588) от 08.10.2025
-
-Константин Симонов | Парень из нашего города (Радиоспектакль) (1978) [MP3, Виктор Проскурин, Олег Янковский и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр FM с Мариной Багдасарян. Из архива «Гостелерадиофонда».
-Константин (Кирилл) Михайлович Симонов (1915–1979) – русский советский писатель, поэт, общественный деятель. В 1936 в журналах «Молодая гвардия» и «Октябрь» были напечатаны первые стихи К.М. Симонова. В 1940 написал свою первую пьесу «История одной любви», в 1941 – вторую «Парень из нашего (   Читать дальше...   )Жанр: Русская литература, классика, пьесаВ ролях: Виктор Проскурин, Олег Янковский, Всеволод Ларионов и др.Продолжительность: 01:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE755FF6E03BB1298A62E2E20B6FE8AC072608B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822813   (101577) от 08.10.2025
 
 Константин Симонов | Мы не увидимся с тобой (1981) [MP3, Михаил Глузский, Константин Райкин и др.]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101577.jpg" />
 </div>
 
 
@@ -117,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101573.jpg" />
 </div>
 
 
@@ -144,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101534.jpg" />
 </div>
 
 
@@ -172,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101519.jpg" />
 </div>
 
 
@@ -199,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101471.jpg" />
 </div>
 
 
@@ -227,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101466.jpg" />
 </div>
 
 
@@ -255,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101390.jpg" />
 </div>
 
 
@@ -281,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101382.jpg" />
 </div>
 
 
@@ -308,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101346.jpg" />
 </div>
 
 
@@ -334,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101339.jpg" />
 </div>
 
 
@@ -360,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101293.jpg" />
 </div>
 
 
@@ -388,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101267.jpg" />
 </div>
 
 
@@ -415,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101262.jpg" />
 </div>
 
 
@@ -441,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101075.jpg" />
 </div>
 
 
@@ -468,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101073.jpg" />
 </div>
 
 
@@ -494,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101072.jpg" />
 </div>
 
 
@@ -520,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101067.jpg" />
 </div>
 
 
@@ -546,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101066.jpg" />
 </div>
 
 
@@ -572,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101064.jpg" />
 </div>
 
 
@@ -598,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101056.jpg" />
 </div>
 
 
@@ -624,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101054.jpg" />
 </div>
 
 
@@ -650,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101053.jpg" />
 </div>
 
 
@@ -676,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101052.jpg" />
 </div>
 
 
@@ -687,6 +605,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF6B113C353D7272F2780966410661E221BF5AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822411   (101049) от 06.10.2025
+
+Наталья Александрова | Медальон Распутина (2024) [MP3, Нина Медникова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Григорий Распутин играл значительную роль в российском обществе: он мог назначать и снимать министров, влиять на внешнюю и внутреннюю политику государства. Он якобы обладал сверхъественными способностями, и в этом ему помогал магический медальон… В наши дни капитану полиции Лебедкину и его напарнице попался весьма капризный потерпевший Аркадий Херувимский. Он уверял, (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 08:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65CB5FBA1843D4BD92B022C17E65B2B4C75C1DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822310   (101048) от 06.10.2025
+
+Иван Иванов (exe081) | Тихая охота (2025) [MP3, Роман Ефимов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир погиб, уничтоженный эпидемией, превратившей людей в опасных тварей. Но росток цивилизации не так просто затоптать. И вот- мёртвые просторы страны вновь тревожат звук топора, пилы, рев двигателей. Все вроде прекрасно, синее небо, чистый воздух. И темные тучи на горизонте... Там , за тонкой границей растет новая угроза. Но Трое из леса - учёный, следопыт-бродяга (   Читать дальше...   )Жанр: фантастика, ПостапокалипсисИздательство: Аудиокнига своими рукамиПродолжительность: 39:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB04B6971D883578BB35722B7210C9F9ECD5B4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822324   (101046) от 06.10.2025
+
+Павел Кожевников | Архил (Книга 1) (2025) [MP3, Максим Суслов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Сергей погибает в авиакатастрофе и возрождается в другом мире как лич, то есть маг-некромант ставший нечистью. Используя своё магическое могущество, он решает вернуться в родной мир, в Россию, но попадает не в нашу современность, а во времена Великой Отечественной войны. Здесь у него появляется реальная возможность принести большую пользу своей стране (   Читать дальше...   )Жанр: Фантастика, фэнтезиИздательство: 1С ПаблишингПродолжительность: 08:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2458339A790BC08F2B72E04F0BF21FC3047C6D2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

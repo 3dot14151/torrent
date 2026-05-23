@@ -6,7 +6,7 @@ OCCT 7.0.4 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339583.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinToHDD 4.8 Technician/Enterprise/Professional/Free RePack (& Portable) by Doda
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339572.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VueScan Pro 9.5.91 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339512.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Anvide Seal Folder 5.24 + Skins Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339477.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ RandPass Pro 1.4 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339475.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PDF Annotator 5.0.0.511 RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339468.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BotRadio 1.3.0.1 + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339465.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339457.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ R-Studio Network Edition 8.14 Build 179693 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339456.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Adobe Bridge CC 2018 8.0.0.262 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339274.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Boris FX Continuum 11.0.0.1724 AE&PrPro RePack by PooShock [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339272.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ AAct 3.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339267.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ DiskDigger 1.8.0.1701 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339238.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Anvide Таймер выключения 1.9 + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339236.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.30.5500 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339209.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Adobe Illustrator CC 2018 v22.0.1 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339158.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Nero Burning ROM & Nero Express 2018 19.1.1005 RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339151.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ WSUS Offline Update 10.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339121.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Destroy Windows 10 Spying 1.5 Build 648 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339115.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ HitmanPro 3.7.10 Build 251 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339103.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Loaris Trojan Remover 1.3.8.9 Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339099.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Sandboxie 5.58.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338994.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Process Lasso 9.3.0.74 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338989.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338981.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ GoldWave 6.43 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338980.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ TeamSpeak 3 Client 3.0.18.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338975.jpg" />
 </div>
 
 

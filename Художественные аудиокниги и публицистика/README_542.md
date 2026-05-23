@@ -1,81 +1,3 @@
-###  Публикация: 1407969   (459781) от 10.09.2020
-
-Александра Маринина | Анастасия Каменская (Книга 34). Безупречная репутация. Том 2 (2020) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Такого странного дела в практике Анастасии Каменской не было давно. Неизвестному писателю Андрею Кислову крупно повезло. По его единственному роману, изданному за свой счет, хотят снять сериал и предлагают солидный гонорар. Разумеется, тот с радостью соглашается. А потом внезапно объявляет, что не подпишет договор ни на каких условиях. На кону большие деньги, и к (   Читать дальше...   )Жанр: Современные детективыПродолжительность: 10:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFDCB50C0925F2DD43074A7E7BCD875EC2E72EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407825   (459771) от 10.09.2020
-
-Евгений Щепетнов | Господин Севера (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На Земле Вася Звягинцев был успешным менеджером по продажам. Близорукий и абсолютно индифферентный к спорту, он вёл достаточно спокойную жизнь. Но, попав в мир Машрум, Вася вынужден был пройти через череду смертельных испытаний. Сейчас он уважаемый господин Манагер, богач и, возможно, сильнейший шаман этого мира. Казалось бы, чего ещё можно желать? Но спокойная жизнь (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 10:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A3754B800476108BD7FF796E6328A696FAEE4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568678   (459761) от 09.08.2022
-
-Наталья Александрова | Реставратор Дмитрий Старыгин (Книга 9). Шкатулка Люцифера (2022) [MP3, Ирина Воробьёва]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-С начала времен Люцифер играет в свою великую игру. Короли и священники, аристократы и простолюдины, миллионеры и нищие – все они танцуют под дудку Хозяина один и тот же танец – Пляску Смерти! В прежние времена он заказывал ее изображение художникам и скульпторам, теперь в моде актуальное искусство. И сотни знаменитых и безвестных художников нового времени творят (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E074466282515E2DD4ECE31DC1162CC096D616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059933   (459695) от 05.10.2016
 
 Сергей Смирнов | Империя Здоровья (2006) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459695.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459666.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459577.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459574.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459455.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459355.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459272.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459191.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459187.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459144.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_459134.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459072.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459056.jpg" />
 </div>
 
 
@@ -426,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458938.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458810.jpg" />
 </div>
 
 
@@ -479,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457939.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457914.jpg" />
 </div>
 
 
@@ -531,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457852.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457805.jpg" />
 </div>
 
 
@@ -584,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457797.jpg" />
 </div>
 
 
@@ -610,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457768.jpg" />
 </div>
 
 
@@ -637,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457741.jpg" />
 </div>
 
 
@@ -663,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457680.jpg" />
 </div>
 
 
@@ -674,6 +596,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB480400E74F2BEA15EB9C02F0B615CE01AD0CAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941874   (457637) от 29.09.2015
+
+Стивен Хантер | Боб Ли Суэггер (Книга 9). Честь снайпера (2015) [MP3, Stix37]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457637.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом произведении от автора бестселлеров Боб Ли Суэггер узнаёт, почему величайший снайпер Второй Мировой Войны был стёрт из истории и почему её исчезновение до сих пор имеет большое значение. Людмила «Милли» Петрова когда-то была самой преследуемой женщиной на Земле, вызвав ярость двух мощнейших лидеров с обеих сторон: Иосифа Сталина и Адольфа Гитлера. Но Кэти (   Читать дальше...   )Жанр: Детектив, боевик, триллерПродолжительность: 11:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A0524F8FD2B30DC38B0B344B7ABE7F22442ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942128   (457635) от 29.09.2015
+
+Патрик Ли | Тайна Бреши (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аномальное явление под названием Брешь – то ли коридор во времени, то ли туннель в пространстве – самый охраняемый секрет правительства США. Но внутри этого секрета скрыт еще один – о котором знают лишь единицы. И он гораздо опаснее… Во время обращения президента США к нации, по Белому дому был нанесен успешный ракетный удар. Записка, найденная на законсервированном (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 11:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C8E5F798066DCACBB7323F411F096E4F272B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060092   (457561) от 06.10.2016
+
+Василий Немирович-Данченко | Скобелев (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена выдающемуся русскому полководцу - генералу М. Д. Скобелеву, особо отличившемуся в освободительной войне болгарского народа против Турции в 1877- 1878 гг.
+В повествовании ярко, достоверно, выразительными литературными средствами отображены события, очевидцем которых был автор - русский писатель, брат известного театрального деятеля Владимира Ивановича (   Читать дальше...   )Жанр: Воспоминания; Военная прозаПродолжительность: 10:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A52D7976261DAB350B339A3DC8767FA681765ED8
 ```
 
 https://mybot314.ru/tekegram_catalog/

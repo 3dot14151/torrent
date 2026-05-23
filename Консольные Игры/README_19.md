@@ -1,112 +1,3 @@
-###  Публикация: 1016587   (769490) от 15.05.2016
-
-Shovel Knight (2015) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [En]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Shovel Knight - это классическая приключенческая игра с великолепным геймплеем, 8-битной графикой и запоминающимися, харизматичными персонажами.
-
-В ней вы найдёте зубодробительную смесь того, что накопил в себе этот жанр за долгие годы существования. Вам предстоит играть за маленького, но храброго рыцаря, перед которым стоит большая и серьёзная задача! Ему нужно (   Читать дальше...   )Тип издания: eShopРазработчик: Yacht Club GamesЖанр: Arcade (Platform)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB946D893EFC8194A8A6C9F85202C26BCE7DDA6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016966   (769476) от 15.05.2016
-
-Lone Survivor Director's Cut (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [En/Gr/Fr]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Lone Survivor является survival horror’ом, однако за крупными пикселями скрывается скорее печальная повесть, граничащая с безумием и реальным миром, и часто вы будете задумываться: «а то, что видит герой — реальность или сон?». Разработчики очень тонко играют на восприятии, частенько подбавляя пищу для размышлений. Атмосфера одиночества и депрессии передана настолько (   Читать дальше...   )Тип издания: eShopРазработчик: Curve StudiosЖанр: Action, Horror, AdventureЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57A2BD93AB7706B0C7103C3C2A1FF17F5661265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016980   (769468) от 15.05.2016
-
-Swords & Soldiers II (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [En]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Принципы Swords & Soldiers II просты: стройте здания и создавайте армию, состоящую из разных отрядов. У каждого отряда будет своя роль, но все они начинают атаковать автоматически. Лишь одним касанием сенсорного экрана можно воплотить в жизнь свои тактические схемы. Восстанавливайте войска, призывайте молнии и метеоритный дождь простым касанием экрана. В разгар (   Читать дальше...   )Тип издания: eShopРазработчик: Ronimo GamesЖанр: Action, StrategyЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BAD42DE7F13B2D82C033C4F92A6DA6D039FD993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016779   (769451) от 15.05.2016
-
-Don't Starve: Giant Edition (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [En]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Don’t Starve: Giant Edition — это бескомпромиссная игра на выживание в глуши, полная науки и магии.
-
-Вы играете за Уилсона, неустрашимого учёного, пойманного демоном и перенесённого в загадочный дикий мир.
-(   Читать дальше...   )Тип издания: eShopРазработчик: Klei Entertainment Inc. / BlitWorksЖанр: Action, AdventureЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D69ED5C8D2175F385DBFA582A96A7146F37DDE7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016692   (769431) от 15.05.2016
 
 Pokken Tournament (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Repack] [En]
@@ -115,7 +6,7 @@ Pokken Tournament (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Repack] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769431.jpg" />
 </div>
 
 
@@ -141,7 +32,7 @@ Monster Hunter 3 Ultimate (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack / 1.0
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769429.jpg" />
 </div>
 
 
@@ -169,7 +60,7 @@ Call of Duty: Black Ops II (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Mu
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769428.jpg" />
 </div>
 
 
@@ -197,7 +88,7 @@ SteamWorld Dig 2 (2017) [PSVita] [EUR] 3.65 [NoNpDrm] [License] [Ru/Multi]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768747.jpg" />
 </div>
 
 
@@ -223,7 +114,7 @@ Sword Art Online: Hollow Realization (2016) [PSVita] [USA] 3.65 [NoNpDrm] [Licen
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767977.jpg" />
 </div>
 
 
@@ -249,7 +140,7 @@ Oceanhorn: Monster of Uncharted Seas (2017) [PSVita] [USA] 3.65 [NoNpDrm] [Licen
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767975.jpg" />
 </div>
 
 
@@ -275,7 +166,7 @@ Bodycount (2011) [PS3] [EUR] 3.55 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767581.jpg" />
 </div>
 
 
@@ -301,7 +192,7 @@ Monster Hunter Freedom (2006) [PSP] [EUR] 6.31 [License] [Multi]
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767439.jpg" />
 </div>
 
 
@@ -329,7 +220,7 @@ Escape Plan Collection (2012) [PSVita] [EUR] 3.60 [HENkaku] [PSN] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766818.jpg" />
 </div>
 
 
@@ -357,7 +248,7 @@ Fight Night Round 4 (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765007.jpg" />
 </div>
 
 
@@ -383,7 +274,7 @@ KKnD: Krossfire (1999) [PS1] [EUR] [Unofficial] [Ru]
 >>PS1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763499.jpg" />
 </div>
 
 
@@ -409,7 +300,7 @@ Just Dance 2018 (2017) [Wii] [EUR] 4.2 [Softmod] [License] [Multi]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_762744.jpg" />
 </div>
 
 
@@ -437,7 +328,7 @@ Batman: Arkham Origins Blackgate (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762400.jpg" />
 </div>
 
 
@@ -464,7 +355,7 @@ Pikmin 3 (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762396.jpg" />
 </div>
 
 
@@ -491,7 +382,7 @@ Splatoon (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762382.jpg" />
 </div>
 
 
@@ -518,7 +409,7 @@ Donkey Kong Country: Tropical Freeze (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [R
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762333.jpg" />
 </div>
 
 
@@ -545,7 +436,7 @@ Tom Clancy’s EndWar (2008) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [Lice
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761686.jpg" />
 </div>
 
 
@@ -571,7 +462,7 @@ Earth Defense Force Insect Armageddon (2011) [PS3] [USA] 3.56  [Cobra ODE / E3 O
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760569.jpg" />
 </div>
 
 
@@ -597,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760146.jpg" />
 </div>
 
 
@@ -623,7 +514,7 @@ The Wonderful 101 (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758909.jpg" />
 </div>
 
 
@@ -649,7 +540,7 @@ Mario vs. Donkey Kong: Tipping Stars (2015) [WiiU] [USA] 5.3.2 [Loadiine GX2] [e
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758835.jpg" />
 </div>
 
 
@@ -677,7 +568,7 @@ Rayman Legends (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758819.jpg" />
 </div>
 
 
@@ -688,6 +579,115 @@ Rayman Legends (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0892535D46EF3E608ACC8FAAA5D63ACE0F94FFBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018046   (757161) от 19.05.2016
+
+Just Dance 2016 (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En/Multi]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы представляем вам Just Dance 2016 – продолжение популярной серии игр и совершенно новый подход к игровому процессу! Теперь вам не нужно дополнительное оборудование, чтобы включить Just Dance 2016, достаточно лишь загрузить Just Dance Controller App на ваш смартфон и подключить его к консоли нового поколения.Тип издания: LicenseРазработчик: Ubisoft Paris, Ubisoft MilanЖанр: Music, Party, DanceЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF04EEA658B363CED82B1F483F148B9EF01DDE85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018233   (757075) от 19.05.2016
+
+Project Zero: Maiden of Black Water / Fatal Frame: Maiden of Black Water (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Project Zero: Maiden of Black Water - леденящий душу хоррор, созданный специально для консоли Nintendo Wii U.
+
+Действие игры разворачивается на горе Хиками, ставшей печально известной благодаря участившимся случаям суицида и паранормальным явлениям. Легенды гласят, что здесь обитают души давно усопших, которые очень не любят, когда их тревожат...
+(   Читать дальше...   )Тип издания: LicenseРазработчик: Koei Tecmo Holdings, Nintendo Software Planning and DevelopmentЖанр: Adventure, HorrorЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCC3081CE6F33AC084E89D5F9742DD33870B1CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215575   (755898) от 27.03.2018
+
+Disney Epic Mickey 2: The Power of Two (2013) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/Multi]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Играйте за Микки Мауса и, впервые в истории, за счастливого кролика Освальда – первую звезду мультфильмов компании Уолта Диснея. Вас ждут захватывающие приключения и открытия.
+
+В игре «Disney Epic Mickey. Две легенды», созданной гением видеоигр Уорреном Спектором и студией Junction Point, Микки Маус и кролик Освальд попадут в Хламляндию, страну забытых героев и парков (   Читать дальше...   )Тип издания: LicenseРазработчик: Blitz Games Studios, Junction Point StudiosЖанр: Arcade, Adventure, Platformer, 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2CEC34009346F67AFFCF894C1A546FB8E8538FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781398   (755687) от 28.04.2014
+
+Cabela's Dangerous Hunts 2013 [PS3] [USA] [4.21] [Cobra ODE / E3 ODE PRO ISO] (2012)
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симулятор охоты на наиболее опасных животных нашей планеты, вам предстоит встреча с медведями, носорогами, волками, крокодилами, слонами и многими другими. Небольшой обучающий курс стрелковой подготовки и захватывающая охота. По мере прохождения игры вам будут открываться новые континенты, новые виды животных и охотничье вооружение, арсенал которого достаточно большой, (   Читать дальше...   )Тип издания: ПираткаРазработчик: ActivisionЖанр: Action / Sport / SimulatorЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BFC95C1F3DECECBDF64259B318470EB92564048
 ```
 
 https://mybot314.ru/tekegram_catalog/

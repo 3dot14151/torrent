@@ -1,29 +1,3 @@
-###  Публикация: 947216   (419621) от 16.10.2015
-
-Dungeons 2: A Game of Winter (2015) [En] (1.5.1.392/dlc) License CODEX
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лорд Подземелья возвращается! В Dungeons 2 вам придется уступить ненасытной жажде мести Лорда Подземелья и собрать страшных новых монстров со всех уголков подземного мира, чтобы выполнить его злую волю. В этот раз покорить подземный мир недостаточно - сейчас Лорд Подземелья распространит свое влияние на жалких людишек и попытается завоевать верхний мир!Тип издания: ЛицензияРазработчик: Realmforge StudiosЖанр: Add-on / Strategy (Manage/Busin. / Real-time) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B929B60238A27A2EA8EF48BE5735944E1F51739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243036   (419284) от 30.09.2018
 
 HYPERGUN (2018) [Ru/Multi] (1.1.0.6) License GOG
@@ -32,7 +6,7 @@ HYPERGUN (2018) [Ru/Multi] (1.1.0.6) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419284.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Jurassic World Evolution (2018) [Ru/En] (1.4.3.37142/dlc) Repack R.G. Механ
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419279.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Myths Of The World 12: Fire Of Olympus / Мифы народов мира 12: О
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419104.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Transformers: Fall of Cybertron / Трансформеры: Падение Ки�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419085.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Don't Knock Twice (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418915.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ ECHO (2017) [En/Fr/Ge] (1.0) Unofficial CoolGames
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418900.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Dark City 3: Vienna (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418672.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Alicia Quatermain 4: Da Vinci and the Time Machine / Алисия Квотерм
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418477.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Misadventures of P.B. Winterbottom [Ru/Multi6] (RePack) 2010 | NSIS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418408.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Saints Row (2022) [Ru/Multi] (1.1.2.4376604/dlc) License FAIRLIGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418345.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0.gogp180619) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418153.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Octave (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418029.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ Alice's Wonderland 4: Festive Craze / Алиса в стране чудес 4: �
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417825.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Keep Talking and Nobody Explodes (2015) [En] (1.0.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417439.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Medal of Honor (2010) [Ru/En] (1.0.75.0) Rip =nemos= [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417414.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ WRC 7 FIA World Rally Championship (2017) [Ru/Multi] (1.4/dlc) Repack R.G. Catal
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417269.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Prodigy Tactics (2017) [En/Fr] (0.8.9) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417136.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Unravel Two (2018) [En] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417133.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) Repack CoolGames [Epi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416643.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Maze of Realities 2: Reflection of Light / Лабиринт Реальносте
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416494.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ ECHO (2017) [En/Ge/Fr] (1.0) License RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416448.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Transformers: Fall Of Cybertron / Трансформеры: Падение Ки�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416434.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Darkwood (2017) [Ru/En] (1.1 Hotfix 4) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416314.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Need for Speed: The Run (2011) [Ru] (1.1.0.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416302.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Noelle Does Her Best (2022) [Multi] (2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416079.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Noelle Does Her Best - пиксельная японская ролевая иг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7A62D28863342347484DA9F5820ABF26CF62268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572937   (416073) от 29.08.2022
+
+Starless (2022) [Ru/En] (1.0) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Starless — это стелс-экшен, где вы в роли одной из колонисток пробираетесь по мрачным коридорам космического ковчега. Ваши главные союзники — осторожность и расчётливость. Если колонистка погибнет, её место займет следующая, но количество людей на борту ограничено. Каждая смерть — это серьёзная угроза для миссии флотилии, так как малое количество людей не сможет (   Читать дальше...   )Тип издания: RepackРазработчик: Petr SapozhnikovЖанр: Stealth-Action, Puzzle, Arcade, 2DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78B0B55F5A1F6D883F06E0BBD9FEF5190447033
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,81 +1,3 @@
-###  Публикация: 211298   (765836) от 29.01.2019
-
-Принцесса на бобах (1997) DVD9
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Бизнесмен из «новых русских» Димa Пупкoв с помощью фиктивного брака решает поменять свою неблагозвучную фамилию на престижную. Его знакомят с... посудомойкой Ниной, которая, как выяснилось, принадлежит к знаменитому роду Шереметьевых. Она с трудом перебивается на нескольких работах и, как кажется Диме, легко согласится на выгодное предложение. Однако оказалось, что (   Читать дальше...   )Жанр: Мелодрама, КомедияРежиссер: Виллен НовакАктеры: Мамука Кикалейшвили, Владимир Конкин, Сергей Жигунов, Елена Сафонова, Антон Бондаренко, Владислав Дружинин, Владислав Галкин, А. Кузьменков, Ульяна Лаптева, Борис Молодан, Александра НазароваСубтитры: русскиеПродолжительность: 01:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2513C3BBED8731F3092C7C04C5FFAA1A991BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523444   (751269) от 11.01.2022
-
-Серебряные коньки (2020) DVD9 [Custom]
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1899 год, рождественский Петербург. Яркая праздничная жизнь бурлит на скованных льдом реках и каналах столицы. Накануне нового столетия судьба сводит тех, кому, казалось бы, не суждено было встретиться. Люди из совершенно разных миров, Матвей — сын фонарщика, его единственное богатство — доставшиеся по наследству посеребренные коньки; Алиса — дочь крупного сановника, (   Читать дальше...   )Производство: Россия / Централ Партнершип, ГПМ КИТ, Кинослово, Студия ТритэЖанр: Мелодрама, приключения, драмаРежиссер: Михаил ЛокшинАктеры: Федор Федотов, Софья Присс, Алексей Гуськов, Северия Янушаускайте, Кирилл Зайцев, Юра Борисов, Тимофей Трибунцев, Юрий Колокольников, Сергей Колтаков, Василий КопейкинПеревод: Не требуется (Русский)Субтитры: Русские (forced, full (SDH)), итальянскиеПродолжительность: 02:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EDE2FA24A2AC77A5FE5039343F334B0F02CEC3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 206303   (750529) от 01.06.2010
-
-И была война (2009) DVD5 (1-3 серии из 3)
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Июнь 1941. Два молодых деревенских парня застигнуты врасплох начавшейся войной. Один из них получает повестку в военкомат (он уже достиг призывного возраста), хотя вовсе не горит желанием идти на фронт. Другой, ярый комсомолец, несмотря на свои 17 лет идет в ополчение добровольно. Ускоренные военные курсы, оборвавшаяся первая любовь — и взвод ополченцев с нашими (   Читать дальше...   )Производство: Россия, Z-синематикЖанр: ВоенныйРежиссер: Алексей ФеоктистовАктеры: Анна Ковальчук, Алексей Панин, Алексей Булдаков, Анатолий Кузнецов, Борис Клюев, Анатолий Котенев, Виктор Проскурин, Сергей РубекоСубтитры: отсутствуютПродолжительность: 02:13:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 314575   (725861) от 13.02.2022
 
 Кукушка (2002) DVD9
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725861.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715872.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714589.jpg" />
 </div>
 
 
@@ -165,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712332.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708660.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702788.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695410.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695408.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695407.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695358.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687568.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681798.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681277.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_679912.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_674427.jpg" />
 </div>
 
 
@@ -479,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672533.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670429.jpg" />
 </div>
 
 
@@ -531,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667435.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_651156.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_642745.jpg" />
 </div>
 
 
@@ -610,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639042.jpg" />
 </div>
 
 
@@ -636,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637315.jpg" />
 </div>
 
 
@@ -662,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637147.jpg" />
 </div>
 
 
@@ -673,6 +595,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7DD7F9FCF6AC45EB47F64F5DB20BD929C8EC38E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908064   (635142) от 13.06.2015
+
+Территория (2014) DVD5
+
+>>След.
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Территория — это место, где люди проверяются на прочность. Необозримые пространства, где тундра встречается с ледяными торосами Ледовитого океана. Суровый русский север, которому способны бросить вызов немногие. Геолог Илья Чинков, одержимый идеей найти легендарное золото Территории, собирает команду смельчаков, готовых поставить на карту все, включая собственные (   Читать дальше...   )Производство: Россия / Кинокомпания «Андреевский флаг»Жанр: Драма, приключенияРежиссер: Александр МельникАктеры: Константин Лавроненко, Григорий Добрыгин, Егор Бероев, Ксения Кутепова, Евгений Цыганов, Владислав Абашин, Герасим Васильев, Константин Шелестун, Константин Балакирев, Олег ШапковПеревод: Не требуется (русский) лицензияСубтитры: ОтсутствуютПродолжительность: 02:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F78B2FF8C6A46482A808B63BCB69E67C332F2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519671   (634701) от 07.07.2012
+
+Питер-FM (2006) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маша — диджей на популярном питерском радио, Максим — молодой архитектор. Маша готовится к свадьбе с бывшим одноклассником Костей, Максим победил в международном конкурсе архитекторов, и теперь его зовут на работу в Германию. Но оба они не уверены, что им нужно именно это.
+
+Максима удерживает в Питере любовь к девушке, которая его оставила, а Маша чувствует, что (   Читать дальше...   )Жанр: Комедия, МелодрамаРежиссер: Оксана БычковаАктеры: Екатерина Федулова, Евгений Цыганов, Владимир Машков, Андрей Краско, Татьяна Кравченко, Александр Баширов, Ирина РахмановаСубтитры: отсутствуютПродолжительность: 01:24:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 802531   (626362) от 06.07.2014
+
+Обнаженная в шляпе (1991) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотожурналиста, специализирующегося на эротике и расследующего дело о сутенерах, похищают люди в противогазах. Ключом к разгадке похищения является найденная фотография обнаженной девушки в шляпе.Она снята со спины, лица не видно, но хорошо заметна родинка, по которой можно опознать девушку. Правда, эта примета находится на такой части тела, которую принято скрывать (   Читать дальше...   )Производство: СССРРежиссер: Александр ПолынниковАктеры: Алексей Серебряков  (Игорь Кошкин), Анна Назарьева  (Наташа), Эвелина Архангельская  (танцовщица Алёна), Олег Штефанко  (Зуев), Александр Берда  (милиционер Соломин), Андрей Смоляков  (Костя Телегин), Светлана Акимова  , Екатерина БеликоваСубтитры: нетФормат: MPEG-PSКачество: DVD5Продолжительность: 01:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85110875E3B47AC912BB50D2667A7349B60556E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

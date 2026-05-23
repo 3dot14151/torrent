@@ -6,7 +6,7 @@ BlueHarvest 8 v8.0.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245612.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lil Revive - Grim Peaks (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245611.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ DxO PhotoLab 5 ELITE Edition 5.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245606.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Airwave - Believe (2016) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245603.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Sumatra PDF 3.5.15371 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245598.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Process Lasso Pro 12.1.0.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245595.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Nik Collection 4 by DxO 4.3.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245594.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Artweaver Plus 7.0.13.15546 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245593.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ OCRKit 16.9.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245592.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245585.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ FoneDog Toolkit – iOS Data Recovery 2.1.52 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245583.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Easy Data Transform 1.22.0 CR2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245575.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Viber 19.7.0.2 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245574.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ pdfFactory Pro 8.35 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245573.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Keep It 2.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245567.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Bandicam 5.4.1.1914 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245559.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ iStat Menus 6 v.6.63 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245557.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ IceCream Ebook Reader Pro 6.28 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245556.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Revo Uninstaller Pro 5.0.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245553.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Photo Supreme 2023.1.1.4870 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245550.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Nik Complete 4 Collection by DxO v4.3.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245547.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ WinSnap 6.0.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245543.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ FanControl V151 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245540.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ WhatsApp 2.2102.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245538.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ HWiNFO 7.43 Build 5080 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245536.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Photo Supreme 2023.1.1.4877 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245528.jpg" />
 </div>
 
 

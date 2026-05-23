@@ -6,7 +6,7 @@ DLL Care 1.0.0.2247 RePack (& Portable) by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753330.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office 2016 Standard 16.0.4366.1000 RePack by KpoJIuK (2016.05) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753315.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tixati 2.74 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753305.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AnyDesk 6.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753301.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CyberLink AudioDirector Ultra 12.1.2415.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753292.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BandLab - Cakewalk 2021.12 (Build 102) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753289.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Macrorit Partition Expert Server Edition 5.3.7. [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753250.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ SQLite Expert Professional 5.3.2.379 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753249.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Skype 8.38.0.161 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753248.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ YTD Video Downloader PRO 5.9.10.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753247.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Wavesfactory TrackSpacer 2.5.4 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753242.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Infix PDF Editor Pro 7.3.3 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753239.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Mirillis Splash v2.3.0.0 (FREE for everyone!) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753237.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Java SE Runtime Environment 8.0 Update 45 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753218.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Adobe Photoshop Lightroom Classic 9.3.0.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753172.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Total Uninstall 6.27.0.565 PRO Portable by FoxxApp (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753123.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Adguard Премиум 5.10.2019.6293 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753070.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ HomeBank 5.5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753053.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Antivirus Removal Tool 2022.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753052.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Freemake Video Converter 4.1.13.114 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753051.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ CyberLink PowerDirector Ultimate 20.1.2424.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753049.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Reg Organizer 8.82 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753038.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Ableton - Live Suite 10.0.6 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753014.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ DriverPack Solution 15.4.12 + Драйвер-Паки 15.04.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752961.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Java SE Runtime Environment 7.0 Update 79/80 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752959.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ NVIDIA GeForce Desktop 350.12 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752958.jpg" />
 </div>
 
 

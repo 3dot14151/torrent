@@ -6,7 +6,7 @@ Stirring Abyss (2020) [Ru/Multi] (1.06.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225798.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Last Oricru (2022) [Ru/Multi] (9708472) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224969.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Knights of Braveland (2023) [Ru/Multi] (1.1.4.50/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224434.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Eastward (2021) [Multi] (1.1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223991.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hard West 2 (2022) [Ru/Multi] (1.0.2.0.4192) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220990.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220284.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Queen's Wish 2: The Tormentor (2022) [En] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219952.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Paranoia: Happiness is Mandatory (2019) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219032.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/Multi] (1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218938.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Edge of Space (2013) [En] (0.3.81E) Repack Табличка
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216902.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Armored Xpress (2021) [En] (1.0.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216712.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dynasty Warriors 7: Xtreme Legends (2018) [En/Ja/Ch] (1.0) License CODEX [Defini
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216642.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216612.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Griftlands (2021) [Ru/Multi] (484799) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216513.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Tangledeep (2018) [Multi] (1.53a/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216111.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Shieldwall Chronicles: Swords of the North (2018) [En] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214906.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Vikings - Wolves of Midgard (2017) [Ru/Multi] (2.1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214728.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Al-Qadim: The Genie's Curse (1994) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214191.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Lightracer Spark (2023) [Multi] (1.2.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213989.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ The Triumphant Return of Diabolos (2022) [Multi] (3/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212767.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ World of Haiku (2022) [En] (1.0.0f5) License TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211329.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ NeverHome - Hall of Apathy (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211031.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Monster Hunter Rise (2022) [Ru/Multi] (13.0.0.1/dlc) License EMPRESS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208126.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Legend of Grimrock (2012) [En] (1.3.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208105.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Spells of Gold / Заклятие (2002) [Ru/En] (1.042) Repack/Mod Foxx164
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207954.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ StarCrawlers (2017) [En] (1.1.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207920.jpg" />
 </div>
 
 

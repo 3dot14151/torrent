@@ -1,128 +1,3 @@
-###  Публикация: 1758575   (103377) от 03.11.2024
-
-Квартирник у Маргулиса. Бранимир (26.10.2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В гостях у Евгения Маргулиса — музыкант, автор и исполнитель песен Бранимир. Новый альбом Бранимира «Ждут домой» пропитан духом и магией плацкартных путешествий. Герои этих песен — люди неудивительных, но и непростых судеб. Сам Бранимир регулярно гастролирует по стране на поездах и в дороге общается с огромным количеством разных людей. Помимо Бранимира на огонек (   Читать дальше...   )00:00:05  Вахтовик звонит домой
-00:05:17  Великая жизнь
-00:12:00  Провожал я друга на войну
-00:18:23  Торпедорубин(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Бард-рок, дарк-фолкСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7127E2A5B56E89586DC55F7780BCE316C9EB95B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764385   (102713) от 07.12.2024
-
-Rihanna feat. Mikky Ekko - Stay (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Stay» — песня барбадосской певицы Рианны, записанная при участии Микки Экко, для её седьмого студийного альбома Unapologetic (2012). Музыкальное видео, сопровождающее песню показывает то, как Рианна сидит в ванне, которая заполнена мутной водой, в то время, как Микки Экко поет в отдельной ванной комнате. Видео было выпущено на официальном Vevo-аккаунте артистки (   Читать дальше...   )Жанр: Поп, R&BПродолжительность: 00:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179345DD2DD5EC0C8937313EA9EB57AD5C27F89A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491080   (102672) от 02.05.2012
-
-Deep Purple & Orchestra: Live at Montreux (2011) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Концерт легендарных британских хард-рокеров1. Orchestral Intro
-2. Highway Star
-3. Hard Loving Man
-4. Maybe I’m A Leo
-5. Strange Kind Of Woman
-6. Rapture Of The Deep
-7. Woman From Tokyo
-8. Contact Lost
-9. When A Blind Man Cries
-10. The Well Dressed Guitar(   Читать дальше...   )Жанр: Hard RockАктеры: Ian Paice, Don Airey, Steve Morse, Ian Gillan, Roger GloverПеревод: Не требуетсяПродолжительность: 01:52:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490116   (102245) от 30.04.2012
-
-Dream Theater - Live at Budokan (2004/2011) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Концерт в токийском Ниппон Будокане 26 апреля 2004 года. Релиз Eagle Rock в Blu-ray формате 18 октября 2011 года.01. As I Am
-02. This Dying Soul
-03. Beyond This Life
-04. Hollow Years
-05. War Inside My Head
-06. The Test That Stumped Them All
-07. Endless Sacrifice
-08. Instrumedley
-09. Trial of Tears
-10. New Millennium(   Читать дальше...   )Жанр: Progressive RockАктеры: John Petrucci, John Myung, Mike Portnoy, James LaBrie, Jordan RudessПеревод: ОтсутствуетПродолжительность: 02:56:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489690   (102082) от 29.04.2012
 
 Joe Satriani: Satchurated - Live in Montreal (2010/2012) BDRip [720p]
@@ -131,7 +6,7 @@ Joe Satriani: Satchurated - Live in Montreal (2010/2012) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102082.jpg" />
 </div>
 
 
@@ -162,7 +37,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102051.jpg" />
 </div>
 
 
@@ -192,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101962.jpg" />
 </div>
 
 
@@ -221,7 +96,7 @@ B.o.B feat. Hayley Williams of Paramore - Airplanes (2010) WEB-DLRip [H.265/2160
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101555.jpg" />
 </div>
 
 
@@ -247,7 +122,7 @@ Alicia Keys feat. Kendrick Lamar, Pharrell Williams - It's On Again (2014) WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101553.jpg" />
 </div>
 
 
@@ -273,7 +148,7 @@ Coldplay - A Sky Full Of Stars (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101549.jpg" />
 </div>
 
 
@@ -299,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99257.jpg" />
 </div>
 
 
@@ -325,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98968.jpg" />
 </div>
 
 
@@ -351,7 +226,7 @@ INNA - WOW (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98957.jpg" />
 </div>
 
 
@@ -377,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98113.jpg" />
 </div>
 
 
@@ -405,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96840.jpg" />
 </div>
 
 
@@ -434,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_95522.jpg" />
 </div>
 
 
@@ -464,7 +339,7 @@ Celia ft. Shaggy - Dame (2011) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94904.jpg" />
 </div>
 
 
@@ -490,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94645.jpg" />
 </div>
 
 
@@ -519,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94506.jpg" />
 </div>
 
 
@@ -545,7 +420,7 @@ Dekolte - Без тебя (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94209.jpg" />
 </div>
 
 
@@ -571,7 +446,7 @@ Pretenders - Loose in L.A. (2003/2012) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91070.jpg" />
 </div>
 
 
@@ -606,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90867.jpg" />
 </div>
 
 
@@ -632,7 +507,7 @@ Chloe Agnew (Celtic Woman) Walking In The Air (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90425.jpg" />
 </div>
 
 
@@ -667,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89736.jpg" />
 </div>
 
 
@@ -696,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89683.jpg" />
 </div>
 
 
@@ -725,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89414.jpg" />
 </div>
 
 
@@ -739,6 +614,120 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B8DDE1A5814D57935ED5553B519909D8F3B25B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484682   (89269) от 18.04.2012
+
+Людмила Гурченко. Песни военных лет (1980) TVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальная композиция по песням войны в исполнении Людмилы Гурченко. Авторы композиции Л.Гурченко и В.Давыденко.01. Где же вы теперь, друзья-однополчане
+02. Казак уходил на войну
+03. Прощайте, скалистые горы
+04. Заветный камень(   Читать дальше...   )Производство: СССР, , Главная редакция муз. программ ЦТЖанр: Фильм-концерт, моноспектакльПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3808FD808B554357CC29692C2D32C32BBF6B48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483762   (89015) от 17.04.2012
+
+Горе от ума (2002) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Телеспектакль, комедияРежиссер: Сергей ЖеновачАктеры: Юрий Соломин, Глеб Подгородинский, Ирина Леонова, Элина Быстрицкая, Александр Вершинин, Виктор Низовой, Инна Иванова, Светлана Аманова, Дмитрий Зеничев, Дмитрий Кознов, Татьяна Короткова, Ирина Тельпугова, Анна Жарова, Алена Охлупина, Виктор Павлов, Татьяна Панкова, Евгений Самойлов, Сергей Тезов, Василий Дахненко, Геннадий Сергеев, Наталья БоронинаПродолжительность: 02:32:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483263   (88840) от 16.04.2012
+
+Best of Mtv / Mtv 2012 (2012) 720p 1080p WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов от Mtv1. Chris Brown - Turn Up The Music (4:17)
+2. David Guetta - Turn Me On ft. Nicki Minaj (3:30)
+3. Demi Lovato - Skyscraper (4:05)
+4. Drake - The Motto (Edited) ft. Lil Wayne, Tyga (4:01)(   Читать дальше...   )Жанр: Dance,Pop,RnB,HipHop,OtherРежиссер: MtvАктеры: Chris Brown, David Guetta, Evanescence, Flo Rida, Rihanna, Katy Perry ...Перевод: ОтсутствуетПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F247843CE9640E991C261681516D81ECDBA80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483814   (88747) от 16.04.2012
+
+Сурганова и Оркестр  [03.04.2012] концерт в Ижевске <Rock> CamRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная Светлана Сурганова после долгого перерыва приехала в Ижевск, чтобы представить свой новый сольный альбом «Увидимся скоро», который вышел в свет осенью прошлого года.
+Концерт в Ижевске чуть не оказался под срывом. Рейс, на котором должна была прилететь Светлана, задержали. И 6,5 часа группа «Сурганова и оркестр» провела в аэропорту, ожидая следующего рейса. (   Читать дальше...   )01.Интро (муз. С.Сургановой)
+ 02.Увидимся скоро (муз. П.Малаховский, сл. К. Хохловой)
+ 03.Хвала (сл. Т. Хмельник)
+ 04.SanctumSanctorum (муз. и сл. П.Малаховский)(   Читать дальше...   )Жанр: RockПродолжительность: 01:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F3F7363BFFBF18081AB2275FB511BD06339EE92
 ```
 
 https://mybot314.ru/tekegram_catalog/

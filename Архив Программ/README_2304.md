@@ -6,7 +6,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.44.35026.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22084.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Firefox Browser 137.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22079.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PotPlayer 250404 (1.7.22517) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22062.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5737 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22027.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Rufus 4.7 (Build 2231) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22026.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22023.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22022.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ iDownerGo Video Downloader 10.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22016.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.65.7400 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22008.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ IObit Driver Booster Pro 12.4.0.571 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22001.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ IObit Driver Booster Pro 12.4.0.571 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21997.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Vivaldi 7.3.3635.9 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21996.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Microsoft Visual Studio 2022 Enterprise 17.13.6 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21987.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21983.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ UltraSearch Professional 4.6.4.1107 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21982.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Display Driver Uninstaller 18.1.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21981.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.46 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21952.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Firefox Browser 137.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21947.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Tablacus Explorer 25.4.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21938.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ AOMEI Partition Assistant Technician Edition 10.8.0 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21930.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Windows 7 SP1 7601.27670 x64 3in1 by OneSmiLe [10.04.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21927.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.65.7400 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21919.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ MassTube Ultra 20.1.4.128 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21877.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Wondershare PDFelement 11.4.13.3417 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21875.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ PDF24 Creator 11.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21871.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ SoundSwitch 6.13.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21856.jpg" />
 </div>
 
 

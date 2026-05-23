@@ -6,7 +6,7 @@ SamDrivers 22.09 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381326.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mirillis Action! 4.12.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381293.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ ByClick Downloader Premium 2.3.31 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381287.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Microsoft PowerToys 0.62.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381277.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ MediaHuman YouTube Downloader 3.9.9.46 (0910) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381270.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ HiBit Uninstaller 2.5.45 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381269.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ W10Privacy 3.2.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381249.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Movavi Video Editor 15 Plus 15.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381241.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Norman Malware Cleaner 2.06.01 (2012.11.08) Portable [Англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_381230.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Athentech Perfectly Clear WorkBench 3.11.0.1858 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381186.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Notepad++ 8.4.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381176.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Telegram Desktop 2.4.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381162.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ jv16 PowerTools 5.0.0.832 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381158.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ CoolUtils PDF Combine 5.1.0.113 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381156.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ SMPlayer 17.10.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381151.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ SamDrivers 18.10 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381148.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Avast Free Antivirus 18.7.2354 (build 18.7.4041.0) Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381137.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ USB Boot-Flash Windows Release by StartSoft 26-2018 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381133.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ NETGATE Spy Emergency 11.0.405.0 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_381109.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ CoolUtils Total PDF Converter 6.1.0.140 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381061.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Internet Download Manager 6.38 Build 5 Final + Retail + Themes
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381040.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381037.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Balabolka 2.15.0.756 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381035.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Telegram Desktop 2.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381034.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381032.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ IObit Driver Booster Pro 8.0.2.192 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381029.jpg" />
 </div>
 
 

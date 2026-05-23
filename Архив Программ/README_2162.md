@@ -6,7 +6,7 @@ HashTools 4.8.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54698.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BalenaEtcher 1.19.21 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54691.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ImgDrive Pro 2.1.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54684.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Google Chrome 125.0.6422.142 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54682.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sumatra PDF 3.6.16318 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54670.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Brave Browser 1.66.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54668.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Google Chrome 125.0.6422.142 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54654.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ MInstAll v.31.05.2024 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54653.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ iTop VPN 5.5.0.5240 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54652.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ MInstAll v.31.05.2024 By Andreyonohov (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54643.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v18 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54629.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v18 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54612.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jetbrains WebStorm 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54606.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ JetBrains PyCharm Professional 2024.1.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54600.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Jetbrains IntelliJ IDEA Ultimate 2024.1.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54598.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Antivirus Removal Tool 2024.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54593.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ JetBrains PhpStorm 2024.1.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54589.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ MKVToolNix 85.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54582.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ USB Device Tree Viewer 4.2.6.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54573.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ SRWare Iron 125.0.6350.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54565.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Balabolka 2.15.0.871 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54564.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ WinRAR 7.01 RePack (& Portable) by elchupacabra (01.06.2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54530.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Cent Browser 5.1.1130.122 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54507.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ The KMPlayer 4.2.3.10 repack by cuta (build 5) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54502.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Topaz Video AI 5.1.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54484.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Maxthon Browser 7.1.8.9001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54476.jpg" />
 </div>
 
 

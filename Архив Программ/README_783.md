@@ -6,7 +6,7 @@ Display Driver Uninstaller 15.3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653207.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Flash Player 18.0.0.162 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653202.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Unreal Commander 2.02 Build 1078 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653201.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ HWiNFO 4.64-2530 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653198.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AkelPad 4.9.4 + Portable + All Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653197.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ TeamViewer 10.0.43174 Free | Corporate RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653195.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Maelstrom 42.0.1.13 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653193.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ jv16 PowerTools X 4.0.0.1494 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653191.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ AIMP 3.60 Build 1495 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653190.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Xara Designer Pro X v8.1.0.22207 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_653124.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NVIDIA GeForce Desktop 302.82 WHQL (Windows 8) [Multi+Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_653120.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ TeamViewer Server Enterprise 10.0.43174 + Portable by PortableAppz [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653100.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Wise Care 365 Pro 3.71.329 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653096.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ SRWare Iron 43.0.2300.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653090.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ WinRAR 5.40 Beta 3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653060.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ All in One Runtimes 2.3.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653057.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ FolderSizes 8.2.137 Enterprise Edition (x86) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653051.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Scanner 2.12 [Eng/Рус/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_653034.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Skype 7.5.0.102 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653006.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Nitro Pro 10.5.1.17 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652997.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ CyberLink PowerDVD Ultra 15.0.1727.58 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652995.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652991.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Ashampoo WinOptimizer 14.00.02 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652967.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Phase One Capture One Pro 9.2.0.118 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652955.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_652914.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ WinXP SoftPack Twilight Angel Edition 2012.06 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_652852.jpg" />
 </div>
 
 

@@ -1,81 +1,3 @@
-###  Публикация: 1083864   (218908) от 19.12.2016
-
-Наталья Нестерова | Бабушка на сносях (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-У Киры Анатольевны все идет ровно и без потрясений: муж, который живет отдельно, любимый мужчина, который не может уйти из семьи, прекрасный сын, обожаемая невестка и верная подруга, всегда готовая броситься на помощь. Оставалось ждать внука, который вот-вот порадует своим появлением на свет. Однако бабушка-красавица сама оказалась на сносях и вопреки здравому смыслу (   Читать дальше...   )Жанр: РоманПродолжительность: 12:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E5E1BCB0835145B35196D0BDF215514A43292E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514183   (218880) от 02.12.2021
-
-Денис Барин | Хаос. Выжившие (2021) [MP3, Дмитрий Хазанович]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Город содрогается под серией мощнейших взрывов, в результате которых столицу охватывает неизвестная эпидемия, превращающая людей в настоящих монстров. Силовики не в состоянии сдержать натиск инфекции, и население вынуждено эвакуироваться самостоятельно, забивая потоком автомобилей все основные дороги. В самом центре событий оказывается небольшая группа людей, готовые (   Читать дальше...   )Жанр: Фантастика, ПостапокалипсисПродолжительность: 06:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC81322C1258248E18F0B2ED71E0BEFF06FF2DCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083667   (218874) от 19.12.2016
-
-Екатерина Боярская | Боярские. Театральная династия (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – документальная повесть о знаменитой семье петербуржцев, давших городу и стране династию театральных актеров, насчитывающую уже более десятка представителей этой сложной и загадочной профессии. Здесь ведется интригующий рассказ о людях театра и их непростой «публичной» жизни, о странной и закрытой от зрителей жизни театрального закулисья. А также – о корнях (   Читать дальше...   )Жанр: Документальная повестьПродолжительность: 17:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D564519DAC3398E8F334BC6368F17B3ACE3EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084204   (218835) от 19.12.2016
 
 Знаменитые сыщики. Нат Пинкертон (2013) [MP3, Александр Бордуков]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218835.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218791.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218789.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218773.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218758.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218708.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218659.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218631.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218523.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218287.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218186.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218143.jpg" />
 </div>
 
 
@@ -397,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218126.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217979.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217786.jpg" />
 </div>
 
 
@@ -477,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217714.jpg" />
 </div>
 
 
@@ -503,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217702.jpg" />
 </div>
 
 
@@ -529,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217698.jpg" />
 </div>
 
 
@@ -555,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217689.jpg" />
 </div>
 
 
@@ -582,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217644.jpg" />
 </div>
 
 
@@ -609,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217626.jpg" />
 </div>
 
 
@@ -635,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217619.jpg" />
 </div>
 
 
@@ -661,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217555.jpg" />
 </div>
 
 
@@ -672,6 +594,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A60F9580F4C244A2BB1823320EA8CDF47F0766BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083722   (217510) от 19.12.2016
+
+Артем Каменистый | Горечь пепла (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гигран – парадоксальный мир разделенный Срединным хребтом. Мир, где отдельные северные страны дошли до эпохи технической революции, а юг о сложной технике даже не помышляет. Зачем она, если там не забыли магию? С ее помощью собирают богатые урожаи на полях, ведут корабли по океанам и даже осваивают Крайний Юг – самое негостеприимное место на свете, где до сих пор (   Читать дальше...   )Жанр: Боевое фэнтезиПродолжительность: 13:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33E7F50C061F99F54827E4486E5C1015F4C5B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514429   (217317) от 03.12.2021
+
+Джек Лондон | Мартин Иден (2019) [MP3, Вячеслав Манылов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217317.jpg" />
+</div>
+
+
+###  Подробнее
+
+В романе «Мартин Иден» писатель рассказывает о том, как трудно молодому человеку, одаренному литературным талантом, выбиться в люди, заставить поверить в свои силы других и себя. Наконец, чтобы доказать любимой девушке, что он достоин ее.
+Массу испытаний пришлось пройти Мартину, прежде чем его стали публиковать. А когда слава, известность и деньги приходят к нему, (   Читать дальше...   )Жанр: КлассикаПродолжительность: 20:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817BEC964644319B38DCF12A5E23192837DAB9B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151413   (217296) от 06.12.2019
+
+Дмитрий Глуховский | Текст (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217296.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Текст» – первый реалистический роман Дмитрия Глуховского, автора «Метро», «Будущего» и «Сумерек». Эта книга на стыке триллера, романа-нуар и драмы, история о столкновении поколений, о невозможной любви и бесполезном возмездии. Действие разворачивается в сегодняшней Москве и ее пригородах.
+Телефон стал для души резервным хранилищем. В нем самые яркие наши воспоминания: (   Читать дальше...   )Жанр: криминальная драма, психологический детективПродолжительность: 12:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A0FEFB2200EEDB839F8B52E27EF62BDEDEEBA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

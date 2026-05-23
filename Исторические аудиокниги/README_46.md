@@ -1,57 +1,3 @@
-###  Публикация: 1751243   (42603) от 23.09.2024
-
-Яков Канторович | Средневековые процессы о ведьмах (2024) [MP3, Роман Ильин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Автор рассматривает историю судебных процессов, в которых обвиняемые подозревались в связи с дьяволом и в различных преступлениях колдовства, анализирует преследования ведьм в западноевропейских странах, которые часто принимали эпидемический характер. Приводятся сведения о возникавших время от времени протестующих реакциях против преследования ведьм, в том числе (   Читать дальше...   )Жанр: ИсторияИздательство: Аудиокнига своими рукамиПродолжительность: 06:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C43090D4B0A49680FD206AEAB954FAA6A8021F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631239   (41618) от 03.10.2024
-
-Алексей Брусилов | Мои воспоминания. Из царской армии в Красную (2023) [MP3, Мишель]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Генерал от кавалерии А.А. Брусилов был одним из самых талантливых генералов Русской императорской армии и вскоре после Февральской революции стал Верховным главнокомандующим Русской армии. В годы Гражданской войны он поддержал молодую советскую власть и содействовал военному строительству Советской России.
-
-Военную службу Брусилов начал в годы Русско-турецкой войны (   Читать дальше...   )Жанр: История, Биография, МемуарыПродолжительность: 11:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486A9BEBE64AF39CF90A57E2C8642C2A6D2F6E7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 376394   (41305) от 06.10.2024
 
 Лев Жданов | Стрельцы у трона (Книга 2). Отрок–властелин (2009) [MP3, Галина Самойлова]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41305.jpg" />
 </div>
 
 
@@ -88,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41267.jpg" />
 </div>
 
 
@@ -116,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39063.jpg" />
 </div>
 
 
@@ -144,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38976.jpg" />
 </div>
 
 
@@ -171,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38733.jpg" />
 </div>
 
 
@@ -199,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37959.jpg" />
 </div>
 
 
@@ -226,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37924.jpg" />
 </div>
 
 
@@ -253,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37827.jpg" />
 </div>
 
 
@@ -280,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37826.jpg" />
 </div>
 
 
@@ -307,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37820.jpg" />
 </div>
 
 
@@ -335,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37244.jpg" />
 </div>
 
 
@@ -362,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37242.jpg" />
 </div>
 
 
@@ -390,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37239.jpg" />
 </div>
 
 
@@ -417,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36895.jpg" />
 </div>
 
 
@@ -444,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36846.jpg" />
 </div>
 
 
@@ -472,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36842.jpg" />
 </div>
 
 
@@ -500,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36688.jpg" />
 </div>
 
 
@@ -528,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36679.jpg" />
 </div>
 
 
@@ -555,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36526.jpg" />
 </div>
 
 
@@ -582,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36320.jpg" />
 </div>
 
 
@@ -610,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36319.jpg" />
 </div>
 
 
@@ -637,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36252.jpg" />
 </div>
 
 
@@ -665,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36202.jpg" />
 </div>
 
 
@@ -693,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36106.jpg" />
 </div>
 
 
@@ -706,6 +652,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC1328E2A4B2CA0CB881BAEC44D86539EF8BF197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 319308   (35999) от 27.11.2024
+
+Ги Бретон | От Анны де Боже до Марии Туше (2010) [MP3, Лина Музырь]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: История любви в истории Франции.
+Ги Бретон (1919–2008) – французский писатель, журналист, ведущий телевизионных и радиопередач, автор биографической литературы об известных исторических личностях.
+Все знают, что миром правит любовь. Поэтому никто не оспаривает того, что любовное влечение в высшей степени определяет большинство человеческих поступков. (   Читать дальше...   )Жанр: Зарубежная литература, исторический романИздательство: Нигде не купишьПродолжительность: 13:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CB25FC3E453E172B2FCBAABAC22A1FE328AF57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169841   (35794) от 29.11.2024
+
+Валентин Пикуль | Исторические миниатюры. Тайный советник (2017) [MP3, Егор Серов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторические миниатюры Валентина Пикуля - уникальное явление в современной отечественной литературе, ярко демонстрирующее непревзойденный талант писателя. Каждая из миниатюр, по словам автора, 'то же исторический роман, только спрессованный до малого количества'.
+Миниатюры, включенные в настоящее издание, представляют собой галерею портретов ярких исторических личностей (   Читать дальше...   )Жанр: Исторический очеркИздательство: Радио ЗвездаПродолжительность: 25:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C58319D15EBE87679EC711BA8438C303FAEE5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

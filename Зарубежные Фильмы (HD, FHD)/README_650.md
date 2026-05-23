@@ -1,56 +1,3 @@
-###  Публикация: 1415280   (377972) от 11.10.2020
-
-Чёрный ящик / Black Box (2020) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Некоторое время назад Нолан потерял а автокатастрофе не только любимую жену, но собственные воспоминания. Теперь он страдает от амнезии и странных видений, в которых на него кто-то или что-то набрасывается. Забыв в очередной раз забрать маленькую дочь из школы и столкнувшись с перспективой общения с органами по защите детей, Нолан решается на экспериментальное лечение. (   Читать дальше...   )Производство: США / Amazon Studios, Blumhouse Productions, Black Bar MitzvahЖанр: Драма, фантастикаРежиссер: Эммануэль Осей-Куфур мл.Актеры: Мамуду Ати, Филисия Рашад, Аманда Кристин, Тосин Морохунфола, Чармэйн Бингва, Дональд Уоткинс, Трой Джеймс, Найя Мари Джонсон, Najah Bradley, Сарай БоррегоПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (forced, full), английские, французские, немецкие, китайскиеПродолжительность: 01:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75915577BAE3FC3DCC94CC435EF727AC22D52D16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068433   (377884) от 02.11.2016
-
-Лэйк Плэсид: Озеро страха / Lake Placid (1999) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лэйк Плэсид, тихое озеро, скрытое в девственных заповедных лесах Америки, завораживает своей древней красотой. Но эти спокойные воды окутывает ужасающая тайна, грозящая гибелью тем, кто захочет раскрыть ее.
-На темном дне в предвкушении следующей жертвы затаилось гигантское чудовище, которому не место ни в этом времени, ни в этом озере. Несчастного, нарушившего невидимую (   Читать дальше...   )Производство: СШАЖанр: Ужасы, Фантастика, Боевик, ТриллерРежиссер: Стив МайнерАктеры: Билл Пуллман, Бриджит Фонда, Оливер Платт, Брендан Глисон, Бетти Уайт, Дэвид Льюис, Тим Диксон, Наташа Мальте, Маришка Харгитей, Мередит СэленджерПеревод: Многоголосый закадровый (R5)Продолжительность: 01:22:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA091A8456B5428122233FBF5101AACFDE60E342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069006   (377882) от 02.11.2016
 
 О, где же ты, брат? / O Brother, Where Art Thou? (2000) Blu-ray [VC-1/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377882.jpg" />
 </div>
 
 
@@ -87,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377764.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377714.jpg" />
 </div>
 
 
@@ -140,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377665.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377540.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377538.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377500.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377476.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377475.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377471.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377469.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377394.jpg" />
 </div>
 
 
@@ -376,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377304.jpg" />
 </div>
 
 
@@ -402,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377295.jpg" />
 </div>
 
 
@@ -428,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377291.jpg" />
 </div>
 
 
@@ -454,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377160.jpg" />
 </div>
 
 
@@ -480,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377068.jpg" />
 </div>
 
 
@@ -506,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377037.jpg" />
 </div>
 
 
@@ -533,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377029.jpg" />
 </div>
 
 
@@ -559,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376994.jpg" />
 </div>
 
 
@@ -585,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376924.jpg" />
 </div>
 
 
@@ -611,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376906.jpg" />
 </div>
 
 
@@ -637,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376887.jpg" />
 </div>
 
 
@@ -663,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376763.jpg" />
 </div>
 
 
@@ -674,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F97DF0B54351D55124541E3BA12A786A7EEA66F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253437   (376757) от 12.10.2018
+
+На обочине / Sideways (2004) DVB [H.264/1080i-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель-неудачник, потихоньку спивающийся школьный учитель литературы Майлз Рэймонд берет своего лучшего друга, вышедшего в тираж актера Джека, в поездку по винодельням Калифорнии. Джеку нужно расслабиться перед свадьбой, запланированной через неделю. Два приятеля не догадываются, что ждет их впереди и насколько эта неделя изменит их жизнь.Производство: США, Венгрия / Fox Searchlight Pictures,Michael London Productions,Sideways Productions Inc.Жанр: Драма, Мелодрама, КомедияРежиссер: Александр ПэйнАктеры: Пол Джаматти, Томас Хейден Чёрч, Вирджиния Мэдсен, Сандра О, Мэрилуиз Бёрк, Патрик Галлахер, Мисси Доти, М. К. Гейни, Джессика Хехт, Алисия РайнерПеревод: Многоголосый закадровый, профессиональный (Первый канал)Субтитры: русские, телетекстПродолжительность: 01:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394908B0F5DDD128532790AF8BCEE179A67CD20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254013   (376748) от 12.10.2018
+
+Пациент Зеро ( Нулевой пациент) / Patient Zero (2018) BDRip [H.264/1080p-LQ] [MVO] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376748.jpg" />
+</div>
+
+
+###  Подробнее
+
+По Земле прокатился вирус, в результате которого большая часть населения превратилась в кровожадных и жестоких безумцев или, иными словами, в «инфицированных». Цивилизация погружается в хаос, человечество стоит на грани вымирания. Правда, некоторые люди имеют особый дар — понимать речь инфицированных и разговаривать с ними. Одним из немногих, кто наделен такой способностью, (   Читать дальше...   )Производство: Великобритания, Shepperton Studios, Shepperton, Surrey, England, UKЖанр: Ужасы, Боевик, ДрамаРежиссер: Штефан РуцовицкиАктеры: Натали Дормер, Мэтт Смит, Стэнли Туччи, Клайв Стэнден, Фредерик Шмидт, Агнесс Дейн, Джон Брэдли, Пиппа Беннетт-Уорнер, Колин МакФарлэйн, Дильяна БуклиеваПеревод: Профессиональный многоголосый (HDRezka)Субтитры: АнглийскиеПродолжительность: 01:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB9F6747171FE8E62DE0EB464BEAF5533F3C123
 ```
 
 https://mybot314.ru/tekegram_catalog/

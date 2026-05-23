@@ -1,55 +1,3 @@
-###  Публикация: 1567968   (467700) от 05.08.2022
-
-Миссис Харрис едет в Париж / Mrs. Harris Goes to Paris (2022) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лондон, 1950 год. Ада Харрис, горничная богатой столичной семьи, решает купить платье от Christian Dior, чтобы присутствовать на следующей коронации королевы. Ада месяцами экономила на своей скудной зарплате и, наконец, смогла собрать необходимую сумму, чтобы купить платье, о котором мечтала. Наконец она отправляется в Париж, где узнаёт, что купить эксклюзивное произведение (   Читать дальше...   )Производство: Венгрия, Великобритания, Канада, Франция, США, Бельгия, Moonriver Content, Superbe Films, Hero SquaredЖанр: драма, комедияРежиссер: Энтони ФабианАктеры: Лесли Мэнвилл, Джейсон Айзекс, Альба Баптиста, Роуз Уильямс, Анна Чэнселлор, Лукас Браво, Изабель Юппер, Ламбер Вильсон, Фредди Фокс, Роксана ДюранПеревод: Многоголосый профессиональный (Jaskier)Субтитры: Английские, испанские, французские, португальскиеПродолжительность: 01:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E48396FFB52AD07AFA1029CA48374E154008CF61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245785   (467550) от 08.09.2018
-
-Тренер / McFarland, USA (2015) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История, основанная на реальных событиях. В 1987 году, в маленьком городке МакФарланд, профессиональный тренер создает команду по легкой атлетике из обычных сорванцов и мелких «хулиганов», и приводит эту команду до вершины спортивного Олимпа. Население МакФарланда — это 90 процентов латиноамериканцы, которые приехали в США под видом переселенцев и беженцев…Производство: США / Walt Disney Pictures, Mayhem PicturesЖанр: Драма, биография, спортРежиссер: Ники КароАктеры: Кевин Костнер, Рамиро Родригес, Карлос Праттс, Джонни Ортиз, Рафаэль Мартинез, Гектор Дюран, Серджо Авелар, Майкл Агеро, Диана-Мария Рива, Омар ЛейваПеревод: Профессиональный (многоголосый закадровый) (лицензия)Субтитры: Русские, английские, немецкиеПродолжительность: 02:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5342E343F692AE0A1A2AD264E2A11BAC3757AD65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 386933   (467515) от 13.09.2011
 
 Школьные узы / School Ties (1992) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467515.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467444.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467400.jpg" />
 </div>
 
 
@@ -140,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467351.jpg" />
 </div>
 
 
@@ -167,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467347.jpg" />
 </div>
 
 
@@ -193,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467339.jpg" />
 </div>
 
 
@@ -220,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467333.jpg" />
 </div>
 
 
@@ -246,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467320.jpg" />
 </div>
 
 
@@ -273,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467236.jpg" />
 </div>
 
 
@@ -299,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467227.jpg" />
 </div>
 
 
@@ -325,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467224.jpg" />
 </div>
 
 
@@ -352,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467172.jpg" />
 </div>
 
 
@@ -378,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467146.jpg" />
 </div>
 
 
@@ -404,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467143.jpg" />
 </div>
 
 
@@ -430,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467141.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467126.jpg" />
 </div>
 
 
@@ -482,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467073.jpg" />
 </div>
 
 
@@ -508,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467061.jpg" />
 </div>
 
 
@@ -534,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467038.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467007.jpg" />
 </div>
 
 
@@ -586,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466996.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466977.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466931.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466927.jpg" />
 </div>
 
 
@@ -677,6 +625,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E96416A4421ED3B090F0DAC5672A1CED10D1E665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548488   (466904) от 18.09.2012
+
+Последняя надежда / Black (2005) BDRip
+
+>>Зарубежное кино
+>>Индийское кино
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мишель МакНелли — дочь, родившейся в англо-индийской семье в возрасте восемнадцати месяцев после болезни становится слепой и глухонемой. Она яркая, толковая девушка, которая живет в мире черной тишины без умения общаться с внешним миром. Это расстраивает молодую девушку, которая очень хочет общаться. Отчаяние принуждает ее быть вредной, сильной и буйной. Но судьба имеет иные планы для нее…Жанр: ДрамаРежиссер: Санджай Лила БхансалиАктеры: Амитабх Баччан, Рани Мухерджи, Шерназ Патель, Аеша Капур, Дхритиман Чаттерджи, Sillo Mahava, Chippy Gangjee, Mahabanoo Mody-Kotwal, Нандана Сен, Кенни ДесаиПеревод: Многоголосый закадровый (профессиональный)Продолжительность: 02:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED1B4A78B57F523EF81BAA58BC4383050C0C12D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161377   (466889) от 28.08.2017
+
+Очень плохие девчонки / Rough Night (2017) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что может омрачить развеселый и безбашенный девичник в Майами? Наверное, только нелепая смерть стриптизера. Теперь подружкам предстоит выпутаться из дурацкой истории и как-то замести следы, пока они не попали в руки к копам.Производство: США / Sony Pictures Entertainment (SPE)Жанр: комедияРежиссер: Люсия АньеллоАктеры: Скарлетт Йоханссон, Джиллиан Белл, Зои Кравиц, Илана Глейзер, Кейт МакКиннон, Пол В. Даунс, Райан Купер, Тай Буррелл, Деми Мур, Энрике МурсианоПеревод: Дублированный (iTunes)Субтитры: Русские (форсированные, полные), английские (полные)Продолжительность: 01:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E72A7D9F969BF50C5946FCCE996B170A6B7DE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

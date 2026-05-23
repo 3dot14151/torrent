@@ -1,83 +1,3 @@
-###  Публикация: 348980   (122965) от 14.01.2024
-
-Иван Бунин | Воспоминания (2007) [MP3, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт. В 1933 году стал первым русским лауреатом Нобелевской премии по литературе – «за правдивый артистический талант, с которым он воссоздал в прозе типичный русский характер», но уже в эмиграции.
-До эмиграции Бунин был знаком со многими известными писателями (   Читать дальше...   )Жанр: Русская литература, классика, проза, мемуарыИздательство: Вира-МПродолжительность: 09:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:135A05DF8222CE905D14837D3EA0A0D1EEFEEE27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 347052   (122962) от 14.01.2024
-
-Иван Бунин | Божье дерево. Сборник рассказов (2008) [MP3, Алексей Петренко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Иван Алексеевич Бунин (1870-1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт. В 1933 году стал первым русским лауреатом Нобелевской премии по литературе – «за правдивый артистический талант, с которым он воссоздал в прозе типичный русский характер», но уже в эмиграции. В сборник «Божье древо» вошли рассказы «позднего» Бунина. Существование (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: СиДиКом, ЭксмоПродолжительность: 02:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D79B8DFE6A1456865F9E8304BE42D017069FB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692016   (122947) от 14.01.2024
-
-Дмитрий Дашко | Гвардеец (Книга 2). Лейб-гвардии майор (2024) [MP3, Сергей Кулешов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Куда вас, сударь, к черту, занесло?! А в мрачные времена «бироновщины», не дальше и не ближе! Наш соотечественник Игорь Гусаров, чьё сознание завладело телом курляндского дворянина Дитриха фон Гофена, теперь пытает счастье в лейб-гвардии царицы Анны Иоанновны.
-Времена, признаться, неспокойные: фальшивомонетчики с территории Польши грозятся подорвать экономику империи, (   Читать дальше...   )Жанр: Альтернативная история, Героическая фантастикаИздательство: ЛитРес: чтецПродолжительность: 12:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDFBC6019F0D0C88B17E1C39415528B6B556E5FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692022   (122945) от 14.01.2024
 
 Сергей Карелин, Евгений Лисицин | Бард (Книга 3) (2024) [MP3, Олег Шубин]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122945.jpg" />
 </div>
 
 
@@ -114,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122939.jpg" />
 </div>
 
 
@@ -141,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122852.jpg" />
 </div>
 
 
@@ -167,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122850.jpg" />
 </div>
 
 
@@ -195,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122849.jpg" />
 </div>
 
 
@@ -224,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122847.jpg" />
 </div>
 
 
@@ -252,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122844.jpg" />
 </div>
 
 
@@ -280,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122814.jpg" />
 </div>
 
 
@@ -307,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122813.jpg" />
 </div>
 
 
@@ -335,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122812.jpg" />
 </div>
 
 
@@ -361,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122809.jpg" />
 </div>
 
 
@@ -387,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122806.jpg" />
 </div>
 
 
@@ -413,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122803.jpg" />
 </div>
 
 
@@ -439,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122793.jpg" />
 </div>
 
 
@@ -466,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122776.jpg" />
 </div>
 
 
@@ -495,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122744.jpg" />
 </div>
 
 
@@ -521,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122740.jpg" />
 </div>
 
 
@@ -547,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122728.jpg" />
 </div>
 
 
@@ -573,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122723.jpg" />
 </div>
 
 
@@ -599,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122721.jpg" />
 </div>
 
 
@@ -625,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122715.jpg" />
 </div>
 
 
@@ -651,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122658.jpg" />
 </div>
 
 
@@ -679,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122654.jpg" />
 </div>
 
 
@@ -692,6 +612,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09B3AF3A7BFEBE31671461DC67FDFC8C9F3B71B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 393278   (122647) от 16.01.2024
+
+Николай Гоголь | Петербургские повести (2005) [MP3, Сергей Юрский и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Васильевич Гоголь (1809–1852) – великий русский писатель, прозаик, драматург, поэт, критик, публицист.
+Удивительна смесь мистики и реализма, столь характерная для творчества Гоголя, особенно ярко проявилась в цикле «Петербургские повести». Подчеркивая никчемность своего хозяина, начинает самостоятельную жизнь нос; приобретя портрет ростовщика, художник словно (   Читать дальше...   )Жанр: Русская литература, классика, повестьПродолжительность: 05:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1497E4A42E0B9DBEEC93D4DA5961C7FFBE70A4F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677044   (122595) от 16.01.2024
+
+Илья Соломенный | Не время для героев (Книга 2) (2023) [MP3, Максим Полтавский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хэлгар одолел тьму, но изменился. Настолько, что теперь те, кого он считал своей семьёй и друзьями, готовы убить его. Парню не повезло – но он остался тем, кем был. Честным, гордым юношей, который пылает ненавистью к Ялайскому королевству, наследию тёмного властелина и чёрной магии. А потому он отправляется на войну. Туда, где его новая Сила может найти применение, (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ИДДКПродолжительность: 09:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312708CB3FEFA8C7B84A81F1261895BD457ADE1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692441   (122588) от 16.01.2024
+
+Дмитрий Гришанин | S-T-I-K-S. Рихтовщик (Книга 6). Призраки мертвого города (2023) [MP3, Роман Попов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122588.jpg" />
+</div>
+
+
+###  Подробнее
+
+У них самые передовые технологии и ультрасовременная техника. Они обращают в бегство даже элиту Стикса. Они чувствуют себя хозяевами в мёртвых разграбленных городах. Они коллекционируют секреты сгинувших цивилизаций. Они неуловимые и вездесущие как призраки. На Континенте практически нет силы, способной бросить им вызов. Но они совершили ошибку. Похитили человека, (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ИДДКПродолжительность: 10:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74154CC5F6499244624AC339BF09FF37E2E500E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

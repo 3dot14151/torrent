@@ -6,7 +6,7 @@ SQL Dynamite 1.7.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327491.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SRWare Iron 46.0.2450.0 DC 17.11.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327489.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Panda Free Antivirus 16.0.2 DC 15.11.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327441.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Room Arranger 8.3.0.538 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327439.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ DFX Audio Enhancer 12.011 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327438.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Telegram Desktop 0.9.10 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327437.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Maelstrom 44.0.1.3 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327426.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ RadioSure 2.2.1044.0 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327334.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Kaspersky TDSSKiller 3.1.0.6 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327332.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ LINE 4.2.1.678 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327329.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ WinNc 7.1.0.6 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327327.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Macrorit Data Wiper 6.3.2 Unlimited Edition RePack (& Portable) by TryRooM [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327221.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Firefox Browser 105.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327220.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Vivaldi 5.5.2805.32 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327212.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Macrorit Partition Expert 6.3.0 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327208.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6735.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327201.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Waterfox Current G5.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327140.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ EssentialPIM Pro 11.1.5 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327137.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Macrorit Partition Extender 2.0.0 Unlimited Edition RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327131.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ CyberLink Screen Recorder Deluxe 4.3.0.19620 RePack by PooShock [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327127.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Greenfish Icon Editor Pro 4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327122.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NetLimiter Pro 4.1.14.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327080.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Allavsoft Video Downloader Converter 3.25.0.8302 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327077.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Wireshark 4.0.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327072.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Microsoft PowerToys 0.63.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327067.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ XtraTools Professional 22.10.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327066.jpg" />
 </div>
 
 

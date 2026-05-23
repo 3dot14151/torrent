@@ -1,81 +1,3 @@
-###  Публикация: 1411022   (429348) от 24.09.2020
-
-Алексей Имп | Рождение Черного генерала (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На Землю вторгается жестокое инопланетное существо. Тварь затягивает саму душу, ядро человеческой сущности, в кибер-сеть и поглощает её! Но, что, если кто-то сможет совладать с ней в её же мире, где пришелец вынужден охотиться по правилам виртуальных игр? Даст ли это шанс на спасение или усугубит положение Землян?Жанр: Боевая фантастика, Киберпанк, LitRPGПродолжительность: 10:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF44C82A78A549CB4FE0CEC2593188E8D9478ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946096   (429314) от 12.10.2015
-
-Георгий Марков | Строговы (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эпический роман "Строговы" известного писателя-сибиряка Георгия Мокеевича Маркова в полной мере можно назвать историческим. В своем произведении автор через судьбу крестьянской семьи Строговых ярко и образно рисует картину жизни Сибирского края в период крупных исторических событий - Русско-японской войны, революции 1905 года, Октябрьской революции 1917 (   Читать дальше...   )Жанр: Исторический романПродолжительность: 27:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DDF0F755D7779333D75AA220F2CFDA36B576681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249864   (428942) от 26.09.2018
-
-Ольга Крючкова | Ковчег могущества (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Египет, XIV век до Рождества Христова. У смертного одра фараона Тутмоса IV его внук, сын Аменхотепа, Тутмос провозглашен эрпатором - наследником. Пока правит новый фараон, Аменхотеп III, юный Тутмос изучает мир, много путешествует и однажды открывает для себя в затерянном городе Базальтовый дворец богов. Это событие перевернуло жизнь эрпатора. Он проходит сложный (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 18:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC5FD8952E8ED3D7EECD62256FA7F4A251041328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946101   (428638) от 12.10.2015
 
 Ицхак Пинтосевич | Действуй! 10 заповедей успеха (2014) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428638.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428569.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428511.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428379.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428350.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428215.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428208.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428080.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_427961.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427919.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427860.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427845.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427769.jpg" />
 </div>
 
 
@@ -428,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427684.jpg" />
 </div>
 
 
@@ -456,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427551.jpg" />
 </div>
 
 
@@ -482,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427543.jpg" />
 </div>
 
 
@@ -509,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427514.jpg" />
 </div>
 
 
@@ -535,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427509.jpg" />
 </div>
 
 
@@ -561,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427506.jpg" />
 </div>
 
 
@@ -587,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427505.jpg" />
 </div>
 
 
@@ -613,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427502.jpg" />
 </div>
 
 
@@ -640,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427436.jpg" />
 </div>
 
 
@@ -666,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427424.jpg" />
 </div>
 
 
@@ -677,6 +599,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9C3A5CFBD631DF5CB5BAA9088A16B072DB6BA45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411423   (427230) от 25.09.2020
+
+Алексей Свадковский | Время перемен (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владыка Хаоса уже избрал новые миры для участия в своей Игре, и скоро их смертным обитателям придется доказывать свое право на жизнь и свободу. Безжалостный маховик еще только навис над новыми, ничего не подозревающими жертвами, а потому нужно успеть завершить незаконченные дела, отдать старые долги и взять плату за ранее пролитую кровь. Новые миры и старые враги (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 11:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9499838BCAFC671F47CD67C8FD21EFDCE2DE1F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411273   (427133) от 25.09.2020
+
+Евгений Щепетнов | Мусорщик. Мечта (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заброшенная на краю Галактики несчастная планета Сирус давно уже стала вселенским кладбищем отвоевавших свое, списанных зведолетов. Впрочем, есть на Сирусе и вполне благополучный Город, вот только обитателям Внешки, пристанища мусорщиков, живущих лишь тем, что удастся отыскать в мертвых кораблях, от этого не легче. Ведь их судьба – до конца дней своих рыться в старом (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 08:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3531E85DA7BE372746BD6E993D726DAB7067DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250209   (427097) от 27.09.2018
+
+Лиза Марклунд | Анника Бенгтзон (Книга 9). Громкое дело (2018) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427097.jpg" />
+</div>
+
+
+###  Подробнее
+
+В разгар шведской зимы молодая мать найдена убитой в сугробе среди деревьев за детским садом, куда утром отвела сына... Почти на экваторе, в изнуряющей жаре Кении, похищен правительственный чиновник...
+ По роду деятельности журналист Анника Бенгтзон не впервые сталкивается с запутанными преступлениями, порожденными самыми темными сторонами человеческой души. На ее (   Читать дальше...   )Жанр: Политический детектив, ТриллерИздательство: Нигде не купишьПродолжительность: 11:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B15BF9B061A6DAF7FA92E6C1A8E529CB5013C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

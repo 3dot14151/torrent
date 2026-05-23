@@ -6,7 +6,7 @@ Avast Free Antivirus 2014 Build 9.0.2000 Beta 1[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559473.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ClearClock 3.0.0.81 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559420.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AnyMP4 DVD Ripper 6.3.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559412.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559329.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Razer Cortex 7.4.12.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559317.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Uninstall Tool 3.5.0 Build 5505 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559316.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MKVToolNix 9.4.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559312.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Leibo 6.0.113.13204 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559311.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ WinRAR 5.50 Beta 6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559295.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dr.Web CureIt! 11.1.2 (23.08.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559211.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Aiseesoft Video Converter Ultimate 9.0.22 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559209.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Java SE Runtime Environment 8.0 Update 144 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559193.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Autodesk AutoCAD LT 2018.1 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559187.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ MemTest86 7.4/4.3.7 Pro Retail [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559182.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ IDrive 6.4.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559173.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Box Sync 4.0.6498 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559170.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Wise Auto Shutdown 1.47.75 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559164.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ PointerStick 2.66 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559159.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Tablacus Explorer 16.8.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559104.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Windows 10 PE (x86/x64) v.5.0.5 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559098.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Simplify3D 4.0.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559078.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Wise Folder Hider Free 3.21.95 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559063.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Glary Utilities Pro 5.31.0.51 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559062.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Light Image Resizer 4.7.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559058.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Avant Browser Ultimate 2015 build 27 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559057.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Autodesk Netfabb Premium Edition 2017 build 115 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558972.jpg" />
 </div>
 
 

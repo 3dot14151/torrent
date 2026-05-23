@@ -6,7 +6,7 @@ Winamp 5.9.1 RC3 Build 10025 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169526.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MAGIX Samplitude Pro X4 Suite 15.4.1.645 + справка [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169519.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Auslogics Disk Defrag Pro 10.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169508.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Psiphon 3 bild 151 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169438.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ WinRAR 5.80 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169426.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169420.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ PotPlayer 1.7.21091 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169410.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Adobe Acrobat Pro DC 2019.021.20058 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169393.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Bandicam 4.5.3.1608 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169392.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ FBackup 9.4.460 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169368.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ MyPublicWiFi 24.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169367.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sandboxie 5.55.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169349.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Windows 7 SP1 with Update [7601.24540] AIO 11in2 (x86-x64) by adguard (v19.12.11
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169286.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Google Chrome 96.0.4664.93 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169277.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Honeyview 5.45 Build 6005 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169255.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Windows 8.1 with Update [9600.19893] AIO 36in2 (x86-x64) by adguard (v20.12.09) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169254.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ ESET NOD32 Internet Security 13.0.24.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169252.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VueScan Pro 9.8.20 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169246.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ WinRAR 5.80 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169244.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ CyberLink PowerDirector Ultimate 20.1.2405.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169204.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Overloud TH-U Premium 1.4.6 STANDALONE, VST, VST3, AAX (x64) + Library RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169198.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Windows 7 SP1 with Update [7601.24563] AIO 44in2 (x86-x64) by adguard (v20.12.09
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169196.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169194.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Skype 8.79.0.95 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169185.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Skype 8.79.0.95 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169171.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ CCleaner 5.75.8238 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169167.jpg" />
 </div>
 
 

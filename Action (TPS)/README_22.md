@@ -6,7 +6,7 @@ Prototype 2 + DLC [Ru] (RePack) 2012 l R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562296.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (1.5.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561795.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Spec Ops: The Line (2012) [Ru] (1.0.6890.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561163.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Super Cloudbuilt (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560937.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/Multi] (1.6.0/dlc) License STEAMP
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560936.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Red Faction: Armageddon (2011) [Ru/Multi] (1.01/dlc) License PROPHET [Complete E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560865.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Warhammer 40,000: Space Marine (2012) [Ru] (1.0.165.0/dlc) Repack =nemos= [Colle
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560772.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ The Bureau: XCOM Declassified (2013) [Ru/Multi] (1.0.0.2177831/Upd1/dlc) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560765.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Red Faction: Armageddon (2011) [Ru/Multi] (1.01/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560757.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (4514) Rip Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558378.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Saboteur (2009) [Ru/Multi] (1.3.22140/hotfix/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558374.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Manhunt 2 [Ru] (RePack) 2009 l R.G. Element Arts
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558334.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Max Payne Дилогия [En/Ru] (RePack) 2001-2003 | R.G. ReCoding
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_558330.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Solstice Chronicles: MIA (2017) [Ru/En] (1.02) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557553.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Yakuza Kiwami 2 (2019) [En] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556765.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ True Crime Dilogy (2004-2006) [Ru/En] Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556313.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Attack on Titan / A.O.T. Wings of Freedom (2016) [En/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551624.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Attack on Titan / A.O.T. Wings of Freedom (2016) [En/Multi] (1.0/dlc) Repack Oth
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551620.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Clandestine (2014) [En] (1.0.6.1) Repack Mizantrop1337
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550728.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Hitman 2 (2018) [Ru/Multi] (2.30.0/dlc) Repack R.G. Catalyst [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546652.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Giants: Citizen Kabuto (2000) [Multi] (1.400) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545402.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Teenage Mutant Ninja Turtles: Out of the Shadows (2013) [En] (1.0.10246.0) RePac
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545372.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Kane & Lynch 2: Dog Days (2010) [Ru/En] (1.2/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541921.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Castlevania: Lords of Shadow (2013) [Ru/Multi] (1.0.2.9) Repack R.G. Revenants [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541683.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Citadel (2016) [En] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541595.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Resident Evil Revelations 2 (2015) [Ru/En] (5.0) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540383.jpg" />
 </div>
 
 

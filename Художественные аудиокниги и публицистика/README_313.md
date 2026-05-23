@@ -1,81 +1,3 @@
-###  Публикация: 1390790   (781920) от 18.06.2020
-
-Лев Карсавин | Культура средних веков (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Историю культуры автор понимает как изображение развития или раскрытия некоторой основной психической стихии, проявляющейся через индивидуальные осуществления во всех сферах жизни изучаемой коллективности — от социально-экономических отношений до высот мистико-философского умозрения. Задача «очерка» сводится к выяснению главных черт в средневековой (IV—XIII вв. — (   Читать дальше...   )Жанр: ИсторииПродолжительность: 10:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF178C4F0C4657E868B29AD6AA1EF33F3FE9C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390959   (781917) от 18.06.2020
-
-Кристофер Ишервуд | Труды и дни мистера Норриса (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-«Труды и дни мистера Норриса» - один из классических романов берлинского периода в творчестве Кристофера Ишервуда. Хотя это произведение и было написано на четыре года раньше, чем его знаменитая книга «Прощай, Берлин» (сюжет которой лег в основу сценария бродвейского мюзикла «Кабаре» и культового одноименного фильма Боба Фосса с Лайзой Минелли в главной роли), эти (   Читать дальше...   )Жанр: КлассикаПродолжительность: 08:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9FEA039CE8BB7D5B8C1D368E8241EF4EF6504F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391024   (781824) от 18.06.2020
-
-Александр Михайловский, Юлия Маркова | Герой империи. Сражение за инициативу (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Команда «Полярного Лиса», вступившая в альянс с СССР, помогла Красной армии выиграть время и в Приграничном сражении сломать план Барбаросса. Вермахт понес тяжелые потери и забуксовал на линии старой границы на Украине и по рубежу Днепр-Западная Двина в Белоруссии и Прибалтике не в силах сделать дальше ни одного шага. Но Гитлер приказывает своим генералам собрать (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, Космическая фантастика.Продолжительность: 09:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:173F86AEC32A5C9C237CBED36BCA31F3EA596FA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390648   (781809) от 18.06.2020
 
 Лаэндэл | Анархия упадка. Анафема (2020) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781809.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781802.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781786.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781773.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781710.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781673.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781659.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781638.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781619.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781412.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781407.jpg" />
 </div>
 
 
@@ -375,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781374.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781315.jpg" />
 </div>
 
 
@@ -428,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781310.jpg" />
 </div>
 
 
@@ -455,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781280.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781246.jpg" />
 </div>
 
 
@@ -508,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781240.jpg" />
 </div>
 
 
@@ -534,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781234.jpg" />
 </div>
 
 
@@ -560,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781207.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781178.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_781039.jpg" />
 </div>
 
 
@@ -641,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_781021.jpg" />
 </div>
 
 
@@ -667,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780989.jpg" />
 </div>
 
 
@@ -678,6 +600,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:774FD9F879E9EA478A550C3D2A72C2893F7E652C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391273   (780942) от 20.06.2020
+
+Евгений Щепетнов | Выбор пути (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сельский участковый Василий Каганов отправляется работать в деревню Кучкино, спрятавшуюся в глухих тверских лесах. До Москвы – 200 км, до райцентра – 20, цивилизация рядом, но…все не так просто. Живут здесь, в лесах, те, кто остался с прежних эпических времен, те, о ком люди читали в народных сказках. И само собой – те, в кого нормальный цивилизованный человек не (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 09:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7495BEBADF0CD354CB6845B3EFC4DF40991B9D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207351   (780888) от 17.02.2018
+
+Лев Рубинштейн | Знаки внимания (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поэт, публицист, критик и один из основоположников московского концептуализма Лев Рубинштейн много лет пишет колонки для разных изданий. Честному человеку порой очень сложно смолчать. Просто не каждый способен облекать мысли в слова. Рубинштейн умеет это делать как никто другой. Его колонки всегда точны и остроумны, не зря они моментально расходятся цитатами в социальных (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 05:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5C951823F8855D0D0C98E118CB7D49CAF21A52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207170   (780886) от 17.02.2018
+
+Эдгар Доктороу | Гомер и Лэнгли (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Гомер и Лэнгли» — своего рода литературный эксперимент. У героев романа — братьев Гомера и Лэнгли — были реальные прототипы: братья Кольеры, чья история в свое время наделала в Америке много шума. Братья добровольно отказались от благ цивилизации, сделались добровольными затворниками и превратили собственный дом в свалку — их патологическим пристрастием стал (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 08:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0CAB0475C5232D30D5BBDBF5E05E34FD1A7371
 ```
 
 https://mybot314.ru/tekegram_catalog/

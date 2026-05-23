@@ -1,111 +1,3 @@
-###  Публикация: 1075975   (315679) от 24.11.2016
-
-Motley Crue - The End.Live in Los Angeles.2015 (2016) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия заключительного концерта прощального тура группы Motley Crue,состоявшегося 31.12.2015г в их родном городе Лос-Анджелесе.
-Motley Crue - американская глэм-метал группа, основанная в Лос-Анджелесе в 1981 году. Является ярчайшим представителем этого жанра и одним из его стержней. Группа была создана бас-гитаристом Никки Сиксом и барабанщиком Томми Ли, впоследствии (   Читать дальше...   )1. Intro
-2. Girls, Girls, Girls
-3. Wild Side
-4. Primal Scream(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: Heavy Metal, GlamРежиссер: Christian LambАктеры: Motley CrueПеревод: ОтсутствуетПродолжительность: 01:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF903E6941B57AD3E67BB17C51E56F3EE8A291D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583051   (315360) от 01.12.2012
-
-Вася Обломов - УГ (2011) HDCam
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Клип Васи Обломова (Гончарова) из альбома "Повести и Рассказы."Жанр: Rock / Альтернативный шансон / Стёб-ХопПродолжительность: 00:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9AFA3C5BB1BCCB78FFC51AD2F89BCFC5928850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583376   (314973) от 01.12.2012
-
-Дискотека-80х - 2012 Rock &  Dance 2 часть (DVD-5)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-11 международный фестиваль Авторадио Дискотека 80-х «Rock&Dance» 2012. . В этом году «Дискотека 80-х» под слоганом «Rock&Dance» собрала вместе на одной сцене самых ярких звезд диско и главных героев рока 80-х: Zodiac, Gorky Park, Chris Norman, Вячеслав Бутусов и группа «Ю-Питер», Black, Константин Никольский.Жанр: МузыкаРежиссер: АвторадиоАктеры: Zodiac,Gorky Park,Silent Circle,Bad Boys Blue,Вячеслав Бутусов,C.C.Catch,Chris Norman,Boney MПеревод: ОтсутствуетПродолжительность: 01:53:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583350   (314972) от 01.12.2012
-
-Дискотека-80х - 2012 Rock &  Dance 1 часть (DVD-5)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-11 международный фестиваль Авторадио Дискотека 80-х «Rock&Dance» 2012. . В этом году «Дискотека 80-х» под слоганом «Rock&Dance» собрала вместе на одной сцене самых ярких звезд диско и главных героев рока 80-х: Zodiac, Gorky Park, Chris Norman, Вячеслав Бутусов и группа «Ю-Питер», Black, Константин Никольский.Жанр: МузыкаРежиссер: АвторадиоАктеры: Zodiac,Gorky Park,Silent Circle,Bad Boys Blue,Вячеслав Бутусов,C.C.Catch,Chris Norman,Boney MПеревод: ОтсутствуетПродолжительность: 01:54:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582574   (314869) от 01.12.2012
 
 Сборник клипов - VA - Various Music part. 37 (2012) WEBRip 720p, 1080p
@@ -114,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314869.jpg" />
 </div>
 
 
@@ -140,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314866.jpg" />
 </div>
 
 
@@ -180,7 +72,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314633.jpg" />
 </div>
 
 
@@ -209,7 +101,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314216.jpg" />
 </div>
 
 
@@ -235,7 +127,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314087.jpg" />
 </div>
 
 
@@ -265,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314045.jpg" />
 </div>
 
 
@@ -294,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313894.jpg" />
 </div>
 
 
@@ -320,7 +212,7 @@ Delain - Live At Paradiso (2017) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313822.jpg" />
 </div>
 
 
@@ -349,7 +241,7 @@ Status Quo: Pictures - Live At Montreux (2009) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313252.jpg" />
 </div>
 
 
@@ -378,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313214.jpg" />
 </div>
 
 
@@ -404,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313038.jpg" />
 </div>
 
 
@@ -433,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312868.jpg" />
 </div>
 
 
@@ -459,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312726.jpg" />
 </div>
 
 
@@ -485,7 +377,7 @@ Overkill - The Grinding Wheel (Bonus DVD) (2017) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312470.jpg" />
 </div>
 
 
@@ -514,7 +406,7 @@ Enrique Iglesias ft. Descemer Bueno & Gente de Zona Bailando (2014) WEBRip [H.26
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312197.jpg" />
 </div>
 
 
@@ -540,7 +432,7 @@ Andrea Bocelli (Андреа Бочелли) & David Foster (Дэвид Фост
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312093.jpg" />
 </div>
 
 
@@ -570,7 +462,7 @@ Destruction - A Savage Symphony - The History Of Annihilation (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312051.jpg" />
 </div>
 
 
@@ -599,7 +491,7 @@ Selena Gomez - Good For You (2015) HDTVRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311924.jpg" />
 </div>
 
 
@@ -625,7 +517,7 @@ VA - Осенний марафон № 207: Коктейль Хит Новино
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311754.jpg" />
 </div>
 
 
@@ -654,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311497.jpg" />
 </div>
 
 
@@ -684,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311309.jpg" />
 </div>
 
 
@@ -712,7 +604,7 @@ The Best of...(vol.2) (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310183.jpg" />
 </div>
 
 
@@ -724,6 +616,122 @@ Easy listenining, Melodic rock, Pop, Classic rock, Rock 'n' rollПродолжи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8E6DADAF4A588419E2A1640F1648F668F99A3D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183205   (309951) от 13.11.2017
+
+Iced Earth - Festivals Of The Wicked (2011) 2хDVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двойной DVD группы, содержащий документальный фильм Festivals Of The Wicked, выступления на Metal Camp Slovenia 2008, Rock Hard Festival 2008, Wacken Open Air 2007 и  видеоклипы.Производство: Century MediaЖанр: Power Metal, Thrash MetalСубтитры: Отсутствуют (док. фильм на английском)Продолжительность: 00:56:30+01:27:45+01:24:22+01:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB74A864AFD630AD9F447DCF7D3343C49F2BC16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959682   (309827) от 27.11.2015
+
+Lacrimosa - Live in Moscow 19.11.2015 (2015) WEB-DL [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт группы Lacrimosa в Москве 19.11.201501.Lacrimosa Theme
+02.Kelch der Hoffnung
+03.Kaleidoskop
+04.Schakal(   Читать дальше...   )Жанр: Концерт, Gothic MetalПродолжительность: 02:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13E03157290A53E1327F659FCD8FC8C1C078246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583798   (309764) от 03.12.2012
+
+Peter Gabriel - Secret World Live (2012) BDRemux
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_309764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переиздание на Blu-ray концерта Питера Гэбриэла, снятого за 2 вечера в итальянском городе Модена в 1993 году.01. Come Talk to Me
+02. Steam
+03. Across the Water
+04. Slow Marimbas
+05. Shaking the Tree
+06. Blood of Eden
+07. San Jacinto
+08. Kiss That Frog
+09. Washing of the Water
+10. Solsbury Hill(   Читать дальше...   )Жанр: Progressive Rock / Art RockПродолжительность: 01:42:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729060   (309479) от 02.12.2013
+
+Насмешливое моё счастье /  Театр им. Евг. Вахтангова (1975) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Драма, телеспектакльРежиссер: Александра Ремизова, Майя МарковаАктеры: Юрий Яковлев, Елена Коровина, Анатолий Кацинский, Юлия Борисова, Евгений Карельских, Елена Добронравова и др.Продолжительность: 01:18:13 + 01:07:59 (02:26:12)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A7CE48FD3017422C7B1554A3E0E61402AFB7E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

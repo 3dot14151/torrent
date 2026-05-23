@@ -6,7 +6,7 @@
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791719.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Hyelish - Enferma Humanidad (2014) [FLAC|Lossless|image + .cue] <Death Metal, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791717.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mortal Decay - A Gathering of Human Artifacts (1999) Compilation [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791716.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791715.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - In At The Deep End Records Catalogue Sampler (2009) Compilation [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791714.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Morgue - Artgore (2001) [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791713.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Azrael - Moonchild (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791712.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Divine Ascension - The Uncovering (2018) Japan [FLAC|Lossless|image + .cue] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791711.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Vandenberg - The Complete ATCO Recordings (1982-2004) 4xCD, Box Set, Compilation
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791526.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Clouds - Despartire (2021) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Doom, Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791524.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Savage Circus - Dreamland Manor (2005) [FLAC|Lossless]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791426.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Paragon - Revenge (2005) [FLAC|Lossless|.iso.wv]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791377.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Agony Scene - The Darkest Red (2005) [FLAC|Lossless|tracks + .cue] <Hardcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791164.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ All That Remains - The Fall of Ideals (2006) [FLAC|Lossless|tracks + .cue] <Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791084.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Tower - Shock to the System (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790816.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Hordak - Padre (2016) digipak [FLAC|Lossless|image + .cue] <Pagan Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790555.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Tatir - Cave Of Ephyras... To The Infernal Fields (2012) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790552.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Dio - Master Of The Moon (2005) Japanese Edition [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790530.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Sjodogg - Landscapes Of Disease And Decadence (2007) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790523.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Sinbreed - IV (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790519.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Radiant - Radiant (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790516.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Orphaned Land - Unsung Prophets & Dead Messiahs (2018) Limited Edition [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790504.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Metal Church - Damned If You Do (2018) 2CD Japan [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790486.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Crucified Barbara - 4 albums (2005-2014) [FLAC|Lossless|image + .cue | tracks + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790481.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Warfield - Master Executor (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790447.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Dark Heart - Dark Heart (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, NWOBH
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790446.jpg" />
 </div>
 
 

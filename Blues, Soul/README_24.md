@@ -6,7 +6,7 @@ Blues Pills - Holy Moly! (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495182.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jay Willie Blues Band - Johnny's Juke Joint (2015) [MP3|320 кб/с]<Electric Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494452.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lawrence Lebo - Old School Girl (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494212.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Big Boss Band - Love Wins (2018) [MP3|320 Kbps] <Blues, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494125.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - The 26th Annual Byron Bay Bluesfest (2015) 2CD [MP3|320 Kbps] <Blues, Blues
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492618.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Baba Blues - Glimmer of Gold (2019) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492610.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Kansas City Blues 1944-1949 (1997) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492478.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Guy Tortora - Bluesman in a Boneyard (2015) [MP3|320 Kbps] <Modern Electric Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490409.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - The Cocktail Combos (1997) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490261.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jimmy Reiter - Told You So (2015) [MP3|320 кб/с]<Blues, R&B>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490258.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Jumpin' Like Mad: Cool Cats & Hip Chicks (1997) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490193.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Greatest Jazz And Blues Singers (2017) [MP3|320 Kbps] <Jazz, Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490167.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mike Goudreau Band - T.G.I.F. (2014) [MP3|320 кб/с]<Blues, Rockabilly>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488329.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Markey Blue - Hey Hey (2014) [MP3|320 кб/с]<Blues, R&B>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488231.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Steve Odum - Steve Odum Plays His Blues (2018) [MP3|320 Kbps] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488197.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ April Mae & The June Bugs (with Mike Mettalia) - Grease It Up & Go! (2015) [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488103.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Patrik Jansson Band - So Far to Go (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488005.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Stevie Ray Vaughan & Double Trouble - Rude Mood (2015) Live [MP3|320 Kbps] <Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487999.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Jeff Golub Band - The Three Kings (2011) [MP3|320 kbps]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487513.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Trickbag - Candyville (2015) [MP3|320 кб/с]<Blues, Rockabilly>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486152.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Lara & The Bluz Dawgs - Devil Moon (2012) [MP3|320 кб/с]<Blues, Rockabilly>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486148.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Leslie Blackshear Smith - How Love Works Part 1 (2015) [MP3|320 кб/с]<Blues, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486063.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - The Excello Blues Story (2015) 2CD [MP3|320 Kbps] <Funk , Soul, Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485784.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Sari Schorr - A Force Of Nature (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484079.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Fisherman Bob - Church of the Blues (2015) [MP3|320 кб/с]<Blues, Rockabilly>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484062.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Amphibious Zoo Music - Bayou Blues: Southern Fried Guitar Jams (2013) [MP3|320 K
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483781.jpg" />
 </div>
 
 

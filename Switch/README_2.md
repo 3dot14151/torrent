@@ -6,7 +6,7 @@ Monster Boy and the Cursed Kingdom (2018) [Switch] [USA] 9.0.1 [NSZ / 1.0.5] [Li
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265297.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Narcos Rise of the Cartels (2019) [Switch] [USA] 9.0.1 [NSP] [License / 1.0.3] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264559.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Valkyria Chronicles (2018) [Switch] [USA] 8.1.0 [NSZ] [Unofficial] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263862.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ South Park: The Stick of Truth (2018) [Switch] [USA] 8.1.0 [NSZ] [License / 1.0.
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263796.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ South Park: The Fractured But Whole (2018) [Switch] [USA] 8.1.0 [NSZ] [License /
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263790.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Bee Simulator (2019) [Switch] [EUR] 9.0.1 [NSP] [License / 0.2] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263476.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Scott Pilgrim vs. The World: The Game – Complete Edition (2021) [Switch] [USA]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252115.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Blasphemous (2019) [Switch] [USA] 11.0.0 [NSZ] [License / DLC / 1.0.8] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247156.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Metroid Dread (2021) [Switch] [USA] 16.0.0 [NSZ] [License / 2.1.0] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247146.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ The Outer Worlds (2020) [Switch] [USA] 11.0.1 [NSZ] [License / 1.0.3 / DLC] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247144.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Ori and the Will of the Wisps (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.2.
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226450.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Serious Sam Collection (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.0.1] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224783.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Super Mario 3D All-Stars (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.1.0] [E
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224662.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ L.A. Noire (2017) [Switch] [EUR] 8.1.0 [NSZ] [License / 1.2] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224497.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Mario + Rabbids - Sparks of Hope (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223985.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Iconoclasts (2018) [Switch] [USA] 8.1.0 [NSP] [Unofficial / 1.15] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222027.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Hyrule Warriors: Age of Calamity (2020) [Switch] [USA] 10.2.0 [NSZ / 1.0.1] [Lic
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221385.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Ghostrunner (2020) [Switch] [USA] 10.2.0  [NSP] [License / 1.2 / DLC] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219531.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Persona 5 Royal (2022) [Switch] [EUR] 14.1.2 [eShop] [Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216227.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Assassins Creed The Rebel Collection (2019) [Switch] [USA] 9.0.1 [NSZ] [License 
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215700.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ NieR:Automata The End of YoRHa Edition (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215073.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Alan Wake Remastered (2022) [Switch] [EUR] 14.1.2 [eShop / DLC] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214239.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Splatoon 3 (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204721.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ TUNIC (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204712.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ New Tales from the Borderlands (2022) [Switch] [EUR] 14.1.2 [eShop] [En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204707.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ The Legend of Zelda: Tears of the Kingdom (2023) [Switch] [USA] 16.0.3 [NSP] [Li
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202204.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Best Of Uplifting Trance (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697651.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Suanda Music Radio Top 20: March (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695817.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Nothing But... Total Trance Selections Vol.08 (2019) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695815.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Meteor Trance Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695194.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Purple Haze - Bergen (2018) Single [MP3|320 Kbps] <Electronic, Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695065.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Abora Recordings: Best Of 2019 (Mixed by Ori Uplift) (2020) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694277.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Vocal Trance feat. Jess Morgan (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694270.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - A State Of Trance (Mixed by Armin van Buuren) (2020) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694156.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Armin van Buuren - The Best Of Armin Only (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692749.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Best Of Female Vocal Trance (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692677.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Workout Vol. 4 (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691465.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Trance Classics - The Best Of (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688560.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Armin Van Buuren  - Live At Tomorrowland  (The Digital Festival) (2020) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688465.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Super8 & Tab - Past, Present & Future (2019) [MP3|320 Kbps] <Trance, Progressive
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688373.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Total Trance Selections Vol.04 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687582.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Workout Vol. 5 (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687487.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Saad Ayub & Cristina Soto - Daylight (Amir Hussain Remix) (2018) Single [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687122.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Female Vocal Trance (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687110.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - I Love Trance Ocean (2019) [MP3|320 Kbps] <Trance, UpliftingTrance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684332.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - I Love Hard Trance (2019) [MP3|320 Kbps] <Trance, PSY-Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684231.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - Redux Presents The Uplifting Selection Vol.2 (2017) [MP3|320 Kbps] <Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681305.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Black Hole Trance Music 03-19 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680318.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - Suanda Summer Vol.3 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678606.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ VA - Outburst presents Prism Volume 1 (Mixed by Mark Sherry & Alex Di Stefano) (
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678469.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ VA - Anjunabeats In Miami (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678368.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ VA - Vocal Anthems Miami (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678351.jpg" />
 </div>
 
 

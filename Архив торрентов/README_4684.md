@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.89 (0309) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63397.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Supermium 122.0.6261.85 Hotfix (R2) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63396.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Telegram Desktop 4.15.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63387.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Music Collection 3.6.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63384.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.7.3 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63378.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ HiBit Uninstaller 3.1.95 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63374.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Adobe Illustrator for Mac 2024 v.28.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63367.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Hard Disk Sentinel Pro 6.20 Build 13190 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63365.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Windows 10 PRO AIO 20H1 / 20H2 / 21H1 / 21H2 /22H2 by Ghost Spectre 1904X.4046 x
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63359.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VMware Workstation 17 Pro 17.5.1-23298084 [x64] (bundle)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63356.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ CorelDRAW Graphics Suite 2024 25.0.0.230 (x64) Portable by conservator [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63353.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ CrossOver Linux 24.0.0 [x64] (deb, rpm, bin)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63339.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ FxSound Pro 1.1.22.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63338.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ WinRAR 7.00 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63319.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Capture One 23 Enterprise 16.3.7.1979 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63318.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Maplesoft Maple 2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63314.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Ashampoo Driver Updater 1.6.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63313.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Topaz Gigapixel AI 7.0.3 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63308.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Topaz Photo AI 2.4.0 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63307.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63306.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ OCCT 12.1.16 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63305.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ ShareX 16.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63301.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ IceCream Ebook Reader Pro 6.48 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63300.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Windows Firewall Control 6.9.9.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63297.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ PotPlayer 240307 (1.7.22125) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63296.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ KeePassXC 2.7.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63293.jpg" />
 </div>
 
 

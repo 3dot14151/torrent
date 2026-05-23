@@ -1,29 +1,3 @@
-###  Публикация: 1228702   (13955) от 21.06.2025
-
-Cultist Simulator (2018) [Ru/Multi] (2025.4.e.6/dlc) License GOG [Anthology Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Cultist Simulator - настольная игра о нелёгкой и полной забот жизни рядового фанатика, свято верящего в не очень святые высшие силы. Цель игры - жить по-культистски, поклоняться всяким высшим богам, устраивать обряды, спиритические сеансы и приносить в жертву или агитировать вступить в "тёмные" ряды ни в чём не повинных людей.Тип издания: LicenseРазработчик: Weather FactoryЖанр: Приключение, Ролевая игра, ХоррорЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F9B56CA1154ACF575838C88792AF7708A315FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803210   (13946) от 21.06.2025
 
 Thrive: Heavy Lies The Crown (2024) [Ru/Multi] (1.0.0203) Repack FitGirl
@@ -32,7 +6,7 @@ Thrive: Heavy Lies The Crown (2024) [Ru/Multi] (1.0.0203) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13946.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Chinese Frontiers (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13939.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Cryptmaster (2024) [Multi] (1.112) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13935.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (3028143/dlc) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13934.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Empire of Sin (2020) [Ru/Multi] (1.08.0/dlc) Repack FitGirl [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13930.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Chinese Frontiers (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13926.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.0f/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13921.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (3028143/dlc) Repack FitGirl [Comp
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13920.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Suit for Hire (2021) [Ru/Multi] (1.0.1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13915.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Adventures & Quests: The Black Crystal (2025) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13913.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Nine Sols (2024) [Ru/Multi] (202503101827.5035232c.0) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13907.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.1/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13898.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Masterplan Tycoon (2023) [Ru/Multi] (1.4.200) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13862.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Shadows of Doubt (2024) [Ru/Multi] (40.03.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13861.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ DARK (2013) [Ru/Multi] (1.1.19.29571/dlc) Scene FAiRLiGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13860.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.9/dlc) Repack Pioneer [Ultimate Bu
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13859.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Pools (2024) [Ru/Multi] (17.06.2025) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13844.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Stolen Realm (2021) [Ru/Multi] (1.2.7/dlc) Repack FitGirl [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13837.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Grimstar: Crystals are the New Oil! (2025) [Ru/Multi] (1.5.0) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13825.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13819.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Brownie's Adventure (2024) [En] (8.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13818.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Reality Rash (2025) [Multi] (1.0.1) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13815.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Vambrace: Dungeon Monarch (2025) [Multi] (Build 28889904) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13798.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Stone 4 Souls (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13796.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Castle of Secrets (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13783.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Castle of Secrets - это мрачное психологическое при�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5DC456B96F20DC1E3AF354BA4B9BC6E051E61F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803368   (13781) от 22.06.2025
+
+Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack EXROW
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собирайте стадо и отправляйтесь в Goat Simulator 3 - новую, реалистичную «песочницу» на ферме. Присоединитесь к Пилгор на острове Сан-Ангора и приготовьтесь к головокружительным приключениям. Облизывайте, бодайте и ломайте всё, что захочется в огромном новом мире. Убивайте время самым бесцельным способом со времён оригинальной Goat Simulator! Мы не будем объяснять (   Читать дальше...   )Тип издания: RepackРазработчик: Coffee Stain North ABЖанр: Экшены, АркадыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43EE7E38BA834A32A2EC644E15066C6D399117F
 ```
 
 https://mybot314.ru/tekegram_catalog/

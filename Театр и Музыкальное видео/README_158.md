@@ -1,109 +1,3 @@
-###  Публикация: 1770715   (31430) от 10.01.2025
-
-Щелкунчик (2024) HDTV [H.264/1080i] [Балет. Трансляция спектакля Большого театра]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Запись прямой трансляции спектакля Большого театра 31 декабря 2024г.
-Основные события в балете разворачиваются накануне большого и светлого праздника - Рождества. В доме Штальбаума собрались гости и крестный Мари, который пришел с кучей подарков для детей. Среди них заметно выделяется кукла, предназначенная для колки орехов – Щелкунчик.Производство: Россия / Первый канал, Большой театрЖанр: балетРежиссер: Юрий ГригоровичАктеры: Андрей Ситников, Анастасия Меськова, Елизавета Кокорева, Элина Камалова, Денис Савин, Артем Овчаренко, Михаил Крючков, Никита Опарин, Ульяна Мокшева, Елизавета Гапоненко, Акиб АнварЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFFC01B8EAAEFCA55BCE2C7E9778AA0A67C12DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762327   (30669) от 17.01.2025
-
-The Beatles: Вечер трудного дня / A Hard Day's Night (1964) BDRip [H.265/1080p] [10-bit] [The Criterion Collection]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма представляет собой один «обычный» день из жизни «Битлз». Самая известная рок-группа в мире едет из родного Ливерпуля в Лондон, чтобы выступить на телевидении. Музыканты пытаются добраться до студии и не быть разорванными на сувениры восторженными поклонниками, доводят до нервного срыва своего менеджера, развлекаются и влипают в разнообразные приключения. (   Читать дальше...   )Производство: Великобритания /  Proscenium Films, Walter Shenson FilmsЖанр: мюзикл, комедияРежиссер: Ричард ЛестерАктеры: The Beatles, Джон Леннон, Пол Маккартни, Джордж Харрисон, Ринго Старр, Уилфрид Брэмбелл, Норман Россингтон, Джон Джанкин, Виктор Спинетти, Анна КуэйлПеревод: Многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257259AAF8FFA7D2074F782B5706CFB8216CD7AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774244   (30406) от 19.01.2025
-
-Def Leppard: One Night Only. Live at the Leadmill (2023) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Def Leppard's One Night Only: Live at The Leadmill Sheffield captures the energy and intimacy of a rare club performance by the stadium fillers in their hometown. Recorded on May 19, 2023, the show took place in front of just under 900 fans, marking the smallest venue the band had played in the UK or Europe in over 35 years. Returning to their roots, the band performed (   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D8393557D4297BD05130AAC194AAAD40772DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 172497   (30390) от 20.01.2025
-
-Этот фантастический мир. Выпуск 2 (1979) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Во втором выпуске популярного цикла "Этот фантастический мир" зрителям были представлены фрагменты произведений советских и зарубежных фантастов: "Алло, Парнас!" Валентина Берестова, "Янки при дворе короля Артура" Марка Твена, "Маракотова бездна" Артура Конан Дойля и "Победитель невозможного" Евгения Велтистова.
-Начиная (   Читать дальше...   )Жанр: Фильм-спектакльРежиссер: Тамара ПавлюченкоАктеры: Кирилл Агеев, Виктор Сергачев, Галикс (Георгий) Колчицкий, Николай Болотов, Иван Власов, Елена Кондратова, Наталья Вихрова, Сергей Колесников, Лев Иванов, Георгий Шевцов, Елена Добронравова, Вацлав Дворжецкий, Алексей Борзунов, Александр Дик, Александр Вокач, Владимир Земляникин, Георгий БогадистПеревод: ОригинальныйПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245102E07AAC98E1D1FD04435BEC1056F12F1CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716139   (29259) от 30.01.2025
 
 Scooter - Video collection - Chapter 6 (2019 - 2022) WEBRip [H.265/2160p] [hand made Upscale AI]
@@ -112,7 +6,7 @@ Scooter - Video collection - Chapter 6 (2019 - 2022) WEBRip [H.265/2160p] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29259.jpg" />
 </div>
 
 
@@ -138,7 +32,7 @@ Scooter - Video collection - Chapter 5 (2014 - 2017) WEBRip [H.265/2160p] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29258.jpg" />
 </div>
 
 
@@ -164,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29202.jpg" />
 </div>
 
 
@@ -193,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29161.jpg" />
 </div>
 
 
@@ -222,7 +116,7 @@ NEMOPHILA. Oshikura Manju OSARETE WARAOU TOUR at SENDAI (2024) BDRip [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29148.jpg" />
 </div>
 
 
@@ -252,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29119.jpg" />
 </div>
 
 
@@ -281,7 +175,7 @@ Sarah Brightman - The Harem World Tour: Live From Las Vegas (2004) DVDRip [H.265
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28975.jpg" />
 </div>
 
 
@@ -310,7 +204,7 @@ Sarah Brightman - The Harem World Tour: Live From Las Vegas (2004) DVDRip [H.264
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28906.jpg" />
 </div>
 
 
@@ -339,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28904.jpg" />
 </div>
 
 
@@ -365,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28879.jpg" />
 </div>
 
 
@@ -392,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28781.jpg" />
 </div>
 
 
@@ -418,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28242.jpg" />
 </div>
 
 
@@ -447,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28042.jpg" />
 </div>
 
 
@@ -474,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28030.jpg" />
 </div>
 
 
@@ -500,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27961.jpg" />
 </div>
 
 
@@ -527,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27929.jpg" />
 </div>
 
 
@@ -554,7 +448,7 @@ NЮ – Некуда бежать (2022) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27835.jpg" />
 </div>
 
 
@@ -580,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27831.jpg" />
 </div>
 
 
@@ -607,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27713.jpg" />
 </div>
 
 
@@ -634,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27411.jpg" />
 </div>
 
 
@@ -663,7 +557,7 @@ Scooter - The stadium techno inferno - Live in Hamburg (2011) DVDRip [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27398.jpg" />
 </div>
 
 
@@ -692,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27226.jpg" />
 </div>
 
 
@@ -706,6 +600,120 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDEF038F048116EA728E2ED326DA3ACA8F3D3E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781470   (26695) от 23.02.2025
+
+Квартирник у Маргулиса. Radio Tapok (22.02.2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26695.jpg" />
+</div>
+
+
+###  Подробнее
+
+История проекта началась в 2016 году, когда музыкант Олег Абрамов начал перепевать иностранные песни на русском языке. Он настолько виртуозно укладывал смысл в мелодию и ритм, что вызывал восхищение у авторов оригинальных композиций. Широкий диапазон голоса позволял Абрамову исполнять творчество разных рок-групп от System of a Down и Metallica до Linkin Park и Twenty (   Читать дальше...   )00:00:05 Ермак
+00:07:06 Петропавловск
+00:13:11 Императрица
+00:18:23 Фрау Чёрная Смерть(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Рок, хэви-металЯзык озвучки: РусскийПродолжительность: 01:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A7A087C78A95EB59F4E25C8B5E8F1F4AE0FCED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782700   (25936) от 02.03.2025
+
+Квартирник у Маргулиса. Александр Ф. Скляр и «Ва-Банкъ» (01.03.2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25936.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ва-Банкъ» — московская рок-группа. Образована в 1986 году.
+За время своего существования группа экспериментировала в различных музыкальных направлениях. Начав с ритм-энд-блюза с элементами панка, позже стали играть жесткий хардкор, параллельно делая и акустические программы. В конце 90-х в альбоме «Нижняя тундра» группа попыталась ввести в свою музыку электронные (   Читать дальше...   )00:00:06 Модест The Best
+00:06:07 Кухня
+00:13:32 Провокация
+00:20:52 Крысы не бьют чечетку(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Rock, soft rock, ритм-энд-блюз, хардкорЯзык озвучки: РусскийПродолжительность: 01:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:284423AC75315801AF943209C9305863D48BAE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771436   (25816) от 04.03.2025
+
+Солярис (1968) DVDRip [H.264] (серии 1-2 из 2)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25816.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименного романа известного польского писателя Станислава Лема. «Солярис» — телеспектакль в 2-х сериях. Малоизвестный ныне киноматериал, поскольку его полностью заслонил вышедший на несколько лет позже знаменитый фильм Андрея Тарковского (но как знать, не натолкнул ли Тарковского именно этот спектакль на мысль о своем фильме?). Однако, если не сравнивать (   Читать дальше...   )Производство: СССР / Центральное ТелевидениеЖанр: Телеспектакль, фантастика, драма, экранизацияРежиссер: Борис Ниренбург и Лидия ИшимбаеваАктеры: Василий Лановой, Антонина Пилюс, Владимир Этуш, Виктор Зозулин, Анатолий Кацынский, Вячеслав ДугинСубтитры: русскиеПродолжительность: 02:22:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02952C240EA179CCA62D70F9419FF3FC4ACE7AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782993   (25796) от 04.03.2025
+
+Кипелов - Концерт в ВТБ АРЕНА (13 июля 2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крупнейший концерт группы "Кипелов" в Москве, приуроченный к 66-летию Валерия Кипелова, - бессменного лидера группы.01. Интро
+02. На распутье
+03. Дыхание тьмы
+04. Вавилон(   Читать дальше...   )Производство: Россия, КА "Мельница"Жанр: рок, симфоник-метал, хард-н-хевиРежиссер: Алексей Харьков, Евгений ОдинцовУчастники: солист  Валерий Кипелов, гитарист Вячеслав Молчанов, гитарист Андрей Голованов, бас-гитарист Алексей Харьков и барабанщик Александр МанякинСубтитры: отсутствуютПродолжительность: 02:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A077FE99ACF78EC6646F1CFDF6883DE06A80BA26
 ```
 
 https://mybot314.ru/tekegram_catalog/

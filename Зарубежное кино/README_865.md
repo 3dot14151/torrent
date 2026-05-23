@@ -1,56 +1,3 @@
-###  Публикация: 516702   (651553) от 29.06.2012
-
-Любовь втроем / 3 / Three / Drei (2010) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ханна и Симон долгие годы живут вместе и вполне счастливы. Но не все в их отношениях идет гладко — безуспешные попытки исправить ошибки молодости, отсутствие детей, романы на стороне. Вместе ими пережито слишком многое, а что впереди? Все меняется, когда в их жизни появляется Адам. Для каждого из них он становится больше, чем другом.
- Любовный треугольник может оказаться не вполне традиционным.Жанр: драма, мелодрама, комедияРежиссер: Том ТыкверПродюсер: Штефан Арндт, Уве Шотт, Jürgen TrösterАктеры: Софи Роиз, Себастьян Шиппер, Девид Штрисов, Ангела Винклер, Винни Бёве, Ханс-Уве Бауэр, Карина ВизеПеревод: Профессиональный многоголосый |Лицензия|Продолжительность: 01:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:225BADB92377D88D3F8C8F827FA6D9B4A13BA0F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516717   (651547) от 29.06.2012
-
-Убей меня / You Kill Me (2007) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк - наемный убийца мафии. Однажды он круто напился и проспал очень важное задание. Твердо решив "завязать", герой ложится в клинику. Кто мог подумать, что вместо белой горячки он встретит там неземную любовь и решит начать новую жизнь? Однако сначала ему придется выполнить старый заказ. Ведь гнусный тип - его будущая жертва - захватил власть в городе, (   Читать дальше...   )Производство: СШАЖанр: Триллер, мелодрама, комедия, криминалПеревод: ДублированныйСубтитры: РусскиеФормат: DVD5Продолжительность: 01:28:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 799079   (651506) от 23.06.2014
 
 Кровавая вдова / Blood Widow (2014) WEB-DLRip [H.264/720p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651506.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ G.I. Joe: Бросок кобры 2 / G.I. Joe: Retaliation (2013) BDRip [1080p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_651328.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651162.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651105.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651098.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_651084.jpg" />
 </div>
 
 
@@ -219,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_651079.jpg" />
 </div>
 
 
@@ -245,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651059.jpg" />
 </div>
 
 
@@ -273,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651055.jpg" />
 </div>
 
 
@@ -299,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651034.jpg" />
 </div>
 
 
@@ -325,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651032.jpg" />
 </div>
 
 
@@ -351,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651021.jpg" />
 </div>
 
 
@@ -378,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651017.jpg" />
 </div>
 
 
@@ -404,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650954.jpg" />
 </div>
 
 
@@ -430,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650909.jpg" />
 </div>
 
 
@@ -456,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650894.jpg" />
 </div>
 
 
@@ -482,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650864.jpg" />
 </div>
 
 
@@ -508,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650854.jpg" />
 </div>
 
 
@@ -534,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650853.jpg" />
 </div>
 
 
@@ -561,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650847.jpg" />
 </div>
 
 
@@ -589,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650818.jpg" />
 </div>
 
 
@@ -617,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650808.jpg" />
 </div>
 
 
@@ -644,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_650798.jpg" />
 </div>
 
 
@@ -671,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650775.jpg" />
 </div>
 
 
@@ -682,6 +629,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81C3CBB6834826A2215E0F9BE7481B49644D5DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905310   (650772) от 05.06.2015
+
+Женщина в черном 2: Ангел смерти / The Woman in Black 2: Angel of Death (2014) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время Второй мировой войны группу школьников и их юную учительницу Еву эвакуируют из подвергшегося бомбардировкам Лондона в заброшенное поместье, расположенное в деревенской глуши. Вскоре в деревне начинают происходить странные события. Ева с помощью начальника местного гарнизона Гарри обнаруживает, что приезд детей пробудил темные силы, внушающие больший ужас, (   Читать дальше...   )Производство: Великобритания, США, КанадаЖанр: Ужасы, Триллер, ДрамаРежиссер: Том ХарперАктеры: Фиби Фокс, Джереми Ирвин, Хелен МакКрориПеревод: Дублированный (лицензия)Продолжительность: 01:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE084517D330E164ECD96741082AAE70598812B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516835   (650740) от 29.06.2012
+
+Убойные каникулы / Taker and Dale vs Evil (2010) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нeoбычнaя кoмeдия-пepeвёpтыш, пapoдия нa фильмы ужacoв пpo пoдpocткoв, в чaстнocти, cepиaл «Пятница 13-e». Гpуппa cтудeнтoв-пoдpocткoв пpиeзжaeт oтдoxнуть нa oзepo, гдe двaдцaть лeт нaзaд пpoизoшлo Ужaснoe Убийcтвo. Нa тo жe oзepo пpиeзжaeт пaрa нeзaдaчливыx ceльcких paбoтяг ocмoтpeть куплeнную дaчу и пpoвecти oтпуcк. Пo oшибкe пoдpocтки пpинимaют сeльcких пapнeй зa мaньякoв.Жанр: Ужасы, КомедияРежиссер: Єли Kpєйr / Еlі СгаіgАктеры: Taйлeр Лєбaйн, Aлaн Tьюдик, Джecси Mоcс, Филип Гpєйнджep, Брєндoн Джєй МaкЛaрeн и др.Перевод: Одноголосый закадровый /А. Киреев по переводу Дмитрия Goblin'a ПучковаПродолжительность: 01:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B130DBFC344B86CC520C5A24A95C456B775D203
 ```
 
 https://mybot314.ru/tekegram_catalog/

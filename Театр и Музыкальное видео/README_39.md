@@ -1,114 +1,3 @@
-###  Публикация: 196401   (825214) от 28.04.2010
-
-Foreigner: Greatest Hits (2008) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Шикарный концерт группы Foreigner с лучшими хитами 70 - 80 годов...Смотрим, слушаем, наслаждаемся мелодичным хард-роком.
-
-Universally hailed as one of the most popular rock acts throughout the 70s and 80s, Foreigner still puts on an absolutely thrilling and sensational show thirty years later. This episode of Soundstage is packed with smash hits like Cold As Ice, (   Читать дальше...   )Жанр: Hard RockРежиссер: Joe ThomasПеревод: ОригинальныйПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196477   (824119) от 02.01.2018
-
-Песня года Беларуси (2017) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный фестиваль собрал популярных артистов, которые занимают вершины хит-парадов.Телекомпания: Беларусь / ОНТЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0358C8F19F69BA28E116D18EF6C946AFF2B906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196217   (823883) от 02.01.2018
-
-Песня года 2017 (01-02.01.2018) SATRip (части 1-2 из 2)
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-На телеканале "Россия" – главный концерт страны! Участвуют все звезды!
-Каждый год в первые дни нового года мы с радостью слышим позывные любимой программы: "Через годы, через расстояния, на любой дороге, в стороне любой Песне ты не скажешь "до свидания", Песня не прощается с тобой…"
-На сцене "Олимпийского" соберутся лучшие (   Читать дальше...   )Телекомпания: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 04:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8BD0EA297AA73FD4F8688148CD4C87329E9CC04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006306   (823474) от 14.04.2016
-
-Симфонический концерт "Весенние голоса" из ежегодного цикла концертов "Летние Вечера". Самарская Филармония 20 июня (2015) HDCam [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Доброй традицией стали циклы концертов "Летние вечера в Самарской государственной филармонии для всей семьи". И мы приглашаем Вас на интересные музыкальные встречи этого цикла. Дорогие друзья, сегодняшний концерт увлечёт Вас в чарующий мир танцевальных ритмов и настроений. Этот мир безграничен. Сегодня мы охватим лишь некоторые музыкальные страницы, но (   Читать дальше...   )1. Исаак Дунаевский - Концертный марш
-2. Исаак Дунаевский - Концертный вальс
-3. Пётр Чайковский - Лебединое озеро (Сцена)
-4. Пётр Чайковский - Лебединое озеро (Вальс)(   Читать дальше...   )Жанр: Классический симфонический концертПродолжительность: 1:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EECAF3E93D06B97071050C1E4531AB65C877AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006313   (823394) от 14.04.2016
 
 Концерт симфонической музыки и поэзии "Музыка поэзии, природы и любви" из ежегодного цикла концертов "Летние Вечера". 27 июня (2015) HDCam [H.264/1080i]
@@ -117,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823394.jpg" />
 </div>
 
 
@@ -146,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823382.jpg" />
 </div>
 
 
@@ -175,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822920.jpg" />
 </div>
 
 
@@ -201,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822506.jpg" />
 </div>
 
 
@@ -227,7 +116,7 @@ ZZ Top - Live at Bonnaroo (2014) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821686.jpg" />
 </div>
 
 
@@ -256,7 +145,7 @@ Blue Man Group - How to Be a Megastar 2.0! (2008) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821492.jpg" />
 </div>
 
 
@@ -285,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820493.jpg" />
 </div>
 
 
@@ -314,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820414.jpg" />
 </div>
 
 
@@ -340,7 +229,7 @@ The War Of The Worlds - The New Generation (2013) BDRip [H.264/1080p] [EN / RU S
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820411.jpg" />
 </div>
 
 
@@ -367,7 +256,7 @@ Wax Audio (видеография) (2004-2007) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819998.jpg" />
 </div>
 
 
@@ -396,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819982.jpg" />
 </div>
 
 
@@ -426,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819938.jpg" />
 </div>
 
 
@@ -456,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819255.jpg" />
 </div>
 
 
@@ -486,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818820.jpg" />
 </div>
 
 
@@ -514,7 +403,7 @@ The ABBA Story - The Winner Takes It All (1999) TVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818229.jpg" />
 </div>
 
 
@@ -542,7 +431,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964) Blu-
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818151.jpg" />
 </div>
 
 
@@ -572,7 +461,7 @@ Masters Of The Country Blues: / Son House & Bukka White - 1960 (2000) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817957.jpg" />
 </div>
 
 
@@ -601,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817256.jpg" />
 </div>
 
 
@@ -627,7 +516,7 @@ Kylie Minogue - Kiss Me Once (Live at the Sse Hydro) (2014) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816775.jpg" />
 </div>
 
 
@@ -659,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816702.jpg" />
 </div>
 
 
@@ -688,7 +577,7 @@ Shania Twain - Still The One: Live From Vegas (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816624.jpg" />
 </div>
 
 
@@ -718,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816619.jpg" />
 </div>
 
 
@@ -730,6 +619,116 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C95030CAC47C5A05CE3DBB6D65A6B78718940E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382661   (816596) от 12.05.2020
+
+Бит-квартет "Секрет" - Концерт на платформе МТС Live (2020) WEB-DLRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Онлайн-концерт группы «Секрет» который состоялся 3 мая 2020 года на площадке МТС Live. Группу «Секрет» часто называли русскими "Битлз". Пик популярности коллектива пришелся на конец 80-х годов. Песни «Алиса», «Именины у Кристины», «Моя любовь на пятом этаже» стали всенародными хитами. В 2014 году после продолжительной паузы группа «Секрет» выпустила новый (   Читать дальше...   )Производство: РоссияЖанр: КонцертПродолжительность: 02:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9DDBFD5762391784258E40D89F890EC874DBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754523   (815392) от 21.10.2021
+
+Легенды Ретро FM (2013) HDTV [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815392.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Первом канале большая премьера - международный фестиваль "Легенды Ретро FM" 201301. Лариса Долина - Темп
+02. Лев Лещенко - До свидания, Москва
+03. Алёна Апина - Ксюша
+04. Алёна Апина - ЛёхаЖанр: Концерт, PopПродолжительность: 04:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC81F0ABE6C68996D988D587AC61373B709DE515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358646   (815142) от 13.05.2020
+
+Милый лжец (1976) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лирическая драма по одноименной пьесе Джерома Килти.
+В Основе сюжета - переписка Бернарда Шоу и известной актрисы Патрик Кэмпбелл Килти.
+МХАТовские «старики», последние из поколения настоящего МХАТа, — Анатолий Кторов и Ангелина Степанова принадлежат к тем артистам, имена которых навсегда останутся в летописи театральной истории страны. Их общей судьбой был МХАТ (   Читать дальше...   )Производство: СССР/МХАТ, Гостелерадио СССРЖанр: ДрамаРежиссер: Иосиф Раевский, Анатолий ЭфросАктеры: Анатолий Кторов, Ангелина СтепановаПродолжительность: 02:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD34FE015AB9FCB94CF258912A3720128F2208EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382842   (815132) от 13.05.2020
+
+"Несчастный случай" - Концерт на платформе МТС Live (2020) WEB-DLRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Онлайн-концерт группы «Несчастный Случай» который состоялся 26 апреля 2020 года на площадке МТС Live.
+Группа «Несчастный Случай» сегодня известна острыми сатирическими текстами. Коллектив существует с 1983 года и за это время выпустил одиннадцать студийных альбомов. Последний из них вышел минувшей зимой, он называется «В городе Лжедмитрове».Производство: РоссияЖанр: КонцертПродолжительность: 01:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BEF91F093C7CF5EE20769F04D8F7C5FAC35290
 ```
 
 https://mybot314.ru/tekegram_catalog/

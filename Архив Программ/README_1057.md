@@ -6,7 +6,7 @@ Clover 3.5.1.19719 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510746.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510725.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Ultra Adware Killer 4.0.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510724.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Waterfox 40.0.2 + Portable by PortableApps [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510719.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Wise Game Booster 1.32.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510718.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Aiseesoft FoneLab for Android 1.1.6 Portable by Joo Seng [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510716.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MCS Drivers Disk 19.6.28.1485 (12.07.2019) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510704.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ LibreOffice 5.0.1 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510655.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ AVG AntiVirus 2015 15.0.6140 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510651.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Ashampoo Uninstaller 5.0.6 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510650.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ WavePad Sound Editor Masters Edition 6.24 Portable by FCPortables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510649.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Acronis True Image 2016 19.0.5576 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510645.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Mozilla Firefox 40.0.3 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510641.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ AVG Internet Security 2015 15.0.6140 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510640.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ MetaProducts Portable Offline Browser 6.9.4228 SR5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510638.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Acronis True Image 2016 19.0.5576 + Universal Restore + Media Add-ons [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510637.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Bandicam 2.3.1.840 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510622.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ AIDA64 Extreme / Engineer Edition 5.30.3500 DC 25.08.2015 Stable + PortableAppZ 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510612.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Techsmith Snagit 12.4.1 Build 3036 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510602.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Adobe Photoshop CC 2014.2.3 (20150807.r.342) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510601.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Free Studio 5.7.0.821 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510549.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Google Chrome 21.0.1180.83 Stable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510538.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ DFX Audio Enhancer 11.0.14 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510450.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Opera 12.02-1558 Snapshot (x86+x64) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510442.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ NVIDIA GeForce Desktop + Verde Notebook 305.67beta [multi+rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510401.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ AIDA64 Extreme/Business Edition 2.60.2100 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510377.jpg" />
 </div>
 
 

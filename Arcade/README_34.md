@@ -6,7 +6,7 @@ Mortal Kombat (2013) [Ru/En] (1.07/dlc) Repack Necros [Komplete Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246262.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ LEGO Batman: The Videogame (2008) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241091.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Glover (2022) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237638.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Lumote: The Mastermote Chronicles (2022) [Ru/Multi] (1.5.3-rc5) License GOG [Dig
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236099.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.0.27327/dlc) Repack De
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235258.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Astalon: Tears of the Earth (2021) [Ru/Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233373.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Alekon (2021) [En] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230723.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NARUTO SHIPPUDEN Ultimate Ninja STORM Revolution (2014) [Ru/Multi] (1.0.0.0 upd2
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230021.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ My Memory of Us (2018) [Ru/Multi] (1.3057) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228910.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Trifox (2022) [Multi] (1.0.0.7) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227100.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Maneater (2021) [Ru/Multi] (7837297/dlc) Repack DjDI [Apex Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227057.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Bibi Blocksberg - Big Broom Race 3 (2018) [Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225874.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Terror of Hemasaurus (2022) [Multi] (1.0b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225009.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ God's Trigger (2019) [Ru/Multi] (1.2.58760) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224613.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ G-Force / Миссия Дарвина (2009) [Ru] (1.0) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223108.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Helldivers (2015) [Ru/Multi] (Build 901447/dlc) SteamRip Let'sРlay [Digital Del
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221309.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2.0.0/dlc) SteamRip Let'sРlay [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221301.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Inside (2016) [Ru/Multi] (1.0/u10) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219426.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Escapists: The Walking Dead (2015) [Ru/Multi] (Build 263) SteamRip Let'sРla
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217105.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Evoland 2 (2015) [En/Multi] (1.0.9135) SteamRip Let'sРlay [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217065.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Blue Fire (2021) [Ru/Multi] (5.0.5/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216897.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Bleak Sword DX (2023) [Ru/Multi] (0.3072001) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216573.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ World's End Club (2021) [Ru/Multi] (0.0.0+hotfix) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214909.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2.0.0/dlc) Repack R.G. Механики [Deluxe E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214864.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.5) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214824.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Solar Ash (2021) [Ru/Multi] (1.03.44179) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214676.jpg" />
 </div>
 
 

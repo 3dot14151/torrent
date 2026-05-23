@@ -1,33 +1,3 @@
-###  Публикация: 348992   (631620) от 12.06.2011
-
-ДОстояние РЕспублики – Леонид Агутин  (10.06.2011) SATRip
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Новый выпуск шоу "ДОстояние РЕспублики" будет посвящен композитору, музыканту, певцу, заслуженному артисту России – Леониду Агутину.
-
-Леонид Агутин с детства активно занимался музыкой. Параллельно со средней школой он окончил Московскую джазовую школу "Москворечье" по классу фортепиано. Затем, отслужив в погранвойсках на карело-финской границе, поступил в Московский Государственный Институт Культуры, откуда в 1992 году вышел с дипломом "режиссера – постановщика театрально-массовых мероприятий".
-
-Еще учась во МГИКе, Леонид Агутин с 1989 года ездил по республикам Советского Союза в составе известных российских коллективов в качестве "разогревающего" артиста. В этот период он также работал на студиях в Москве как автор музыки и аранжировок для известных артистов. В 1992 г. Леонид Агутин с песней "Мальчик босоногий" стал лауреатом международного конкурса "Ялта - 92", а в 1993 г. - лауреатом международного конкурса "Юрмала-93". Спустя год вышел первый (   Читать дальше...   )Жанр: ТВ-ШоуПродолжительность: ~ 01:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D34C617C4D83016A55548D55C682F3F51723CDB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543321   (631540) от 10.04.2022
 
 Военная приемка. «Космос вооружённым взглядом» (10.04.2022) WEBRip [H.264/1080p]
@@ -36,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631540.jpg" />
 </div>
 
 
@@ -63,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631416.jpg" />
 </div>
 
 
@@ -89,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631367.jpg" />
 </div>
 
 
@@ -115,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631342.jpg" />
 </div>
 
 
@@ -141,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631341.jpg" />
 </div>
 
 
@@ -167,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631242.jpg" />
 </div>
 
 
@@ -193,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631199.jpg" />
 </div>
 
 
@@ -219,7 +189,7 @@ Animal Planet: Дикие животные / Wild Animals (2017) WEBRip [H.264/2
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631189.jpg" />
 </div>
 
 
@@ -245,7 +215,7 @@ BBC: Викторианская ферма Рождество / Victorian Farm �
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630675.jpg" />
 </div>
 
 
@@ -271,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630647.jpg" />
 </div>
 
 
@@ -297,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630598.jpg" />
 </div>
 
 
@@ -323,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630572.jpg" />
 </div>
 
 
@@ -349,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630504.jpg" />
 </div>
 
 
@@ -375,7 +345,7 @@ NG: Гигантская черная дыра / Monster Black Hole (2008) SATRi
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630487.jpg" />
 </div>
 
 
@@ -401,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630486.jpg" />
 </div>
 
 
@@ -427,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630471.jpg" />
 </div>
 
 
@@ -453,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630416.jpg" />
 </div>
 
 
@@ -479,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630322.jpg" />
 </div>
 
 
@@ -505,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630317.jpg" />
 </div>
 
 
@@ -531,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630216.jpg" />
 </div>
 
 
@@ -557,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630191.jpg" />
 </div>
 
 
@@ -583,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630113.jpg" />
 </div>
 
 
@@ -609,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630112.jpg" />
 </div>
 
 
@@ -635,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630017.jpg" />
 </div>
 
 
@@ -661,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629977.jpg" />
 </div>
 
 
@@ -672,6 +642,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78ADB3B619E0159AC562B61CD3205961A376589B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908165   (629908) от 16.06.2015
+
+Лада-Русь - ведущая за собой (часть 1) (2015) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будни. Суета. День изо дня мы тратим силы, на то, чтобы просто закончить этот день. Мы постоянно в поиске ответов на вопросы, в поисках решений сложившихся проблем, мы мало радуемся, мало понимаем, что вокруг происходит, и постоянно ждем, когда в нашей жизни появится кто-то, кто сможет помочь или подсказать. Ждем и не представляем даже сколько раз, мы прошли мимо (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Светлана ПеуноваПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177451732140643896C9399689784146ABCD9B59
 ```
 
 https://mybot314.ru/tekegram_catalog/

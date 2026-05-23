@@ -1,55 +1,3 @@
-###  Публикация: 725438   (340298) от 24.11.2013
-
-Крик совы / The Cry of the Owl (2009) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роберт селится в небольшом городке, пытаясь убежать от неприятностей в личной жизни. Там он находит странное развлечение для себя: начинает наблюдать за женщиной, живущей по соседству. Какого же было его удивление, когда заметив слежку девушка не вызывает полицию, а приглашает его зайти к ней в дом. Ничего не подозревающий Роберт принимает приглашение...Производство: Великобритания, Канада, Германия, Франция, BBC Films, Mact Productions, Myriad Pictures, Sienna Films Inc.Жанр: Триллер, драмаРежиссер: Джейми Трейвис/Jamie ThravesАктеры: Пэдди Консидайн, Джулия Стайлз, Карл Прюнер, Филлип МакКензи, Горд Рэнд, Джеймс Гилберт, Р.Д. Рейд, Каролин Давернас, Алекс Харзи, Марсия Ласковски, Криста Бриджес, Шарлотта Салливан, Робби Кэмпбелл, Дженнифер Кидд, Дрю Вигевер и др.Перевод: Профессиональный (двухголосый, закадровый)Язык субтитров: РусскийФормат: DVD9Продолжительность: 01:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56D3F9FAEFBAA582393362D3E3D5FC9A76C4472
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 263668   (340260) от 25.09.2022
-
-Вампиры / Vampires (1998) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-По заданию Ватикана Джек Кроу, потомственный охотник на вампиров, и его друг, и напарник Монтойя безжалостно расправляются с вурдалаками, но их главная цель - особо опасный вампир Валек, уроженец Праги, 1300-го года рождения. В охоте на вампира Джеку и Монтойе помогает молодой священник, вооруженный знаниями из древних трактатов о кровососах. Валек ищет в Штатах (   Читать дальше...   )Производство: США, Япония / JVC Entertainment Networks, Largo EntertainmentЖанр: ужасы, боевик, триллерРежиссер: Джон КарпентерАктеры: Джеймс Вудс, Дэниэл Болдуин, Шерил Ли, Томас Йен Гриффит, Максимилиан Шелл, Тим Гини, Марк Бун Джуниор, Грегори Сьерра, Кэри-Хироюки ТагаваПеревод: Дублированный, Многоголосый профессиональный, АвторскийСубтитры: Русские, АнглийскиеПродолжительность: 01:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D792AD06367F4E86A2649AA210B52F1D89E862E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578993   (340259) от 25.09.2022
 
 Неубиваемый / Bullet Proof (2022) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340259.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340253.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340246.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340209.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340194.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340190.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340186.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340179.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340170.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340169.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340091.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340010.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339941.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339908.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339899.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339857.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339842.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339824.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339771.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339770.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339763.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339762.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339758.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339753.jpg" />
 </div>
 
 
@@ -671,6 +619,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:315A6375796B6662353CA2BFFB683DC00DBEF5D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419428   (339706) от 28.10.2020
+
+Головой об стену / Droit dans le mur / Straight Into the Wall (1997) DVDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некогда знаменитый комик Ромен-Ромен однажды почувствовал, что стареет. Случайно он оказывается на подмостках старого и никому не известного театрика в пригороде Парижа за сорок восемь часов до премьеры нового спектакля.
+Это должно быть очень важное представление, потому что от него зависит творческая судьба Ромена-Ромена. Однако именно в этот момент на седую голову (   Читать дальше...   )Производство: Франция / Cofimage, Film Par Film, TF1 Films Production, TPS CinémaЖанр: КомедияРежиссер: Пьер РишарАктеры: Пьер Ришар, Вероник Жене, Каролин Сиоль, Даниэль Руссо, Даниэль Прево, Изабель Канделье, Джефри Бейтмен, Валери Бенгиги, Патрик Рокка, Дарри КоулПеревод: Двуголосый профессиональный, RenTVСубтитры: ОтсутствуютПродолжительность: 01:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12BED094E0F9DFDAE5D0F8BD87676D70E6E2D0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419375   (339704) от 28.10.2020
+
+Одной крови / Maneater (2007) DVDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339704.jpg" />
+</div>
+
+
+###  Подробнее
+
+По окрестностям небольшого городка бродит голодный тигр, который сбежал во время транспортировки. Ни полиция, ни опытные охотники, ни даже армия не в силах поймать его. Хищник в мгновение ока разделывается с каждым, кто встает на его пути. Население в панике! Не боится тигра лишь маленький мальчик. Он один понимает, что это просто напуганное животное...Производство: США, Канада / Buffalo Gal Pictures, Paquin Entertainment Group, Peace Arch Entertainment Group Inc, RHI Entertainment IncЖанр: Ужасы, триллерРежиссер: Гари ЙэтсАктеры: Гэри Бьюзи, Йен Д. Кларк, Тай Вуд, Дайана Рейс, Марина Стивенсон Керр, Сара Констибл, Блейк Тейлор, Кристен Харрис, Джессика Бёрлсон, Алекс ПауновичПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:24:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E86AF55E299D60E7488A17A8483D7AB2F459C51
 ```
 
 https://mybot314.ru/tekegram_catalog/

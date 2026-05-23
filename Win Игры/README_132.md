@@ -1,29 +1,3 @@
-###  Публикация: 1512217   (787364) от 24.11.2021
-
-Mystery Case Files 23: Incident at Pendle Tower (2021) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистическо-детективной серии игр Mystery Case Files. Один из родственников королевской семьи решил отремонтировать роскошный в прошлом отель, основательно обветшавший за сто лет. Однако работы пришлось прекратить, когда неожиданно было обнаружено скрытое крыло здания. Рабочие стали видеть жуткие образы и слышать пугающие звуки. Сможете ли вы раскрыть (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6AA5198CF7F5125B58E6B2BAE0D45885839AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512244   (787319) от 24.11.2021
 
 Henry's Day PLAZA (2021) [En] (7617791) License PLAZA
@@ -32,7 +6,7 @@ Henry's Day PLAZA (2021) [En] (7617791) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787319.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Mido and Di (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787318.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Darksburg (2020) [Ru/Multi] (1.0.11.17957) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787302.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Undungeon (2021) [Ru/En] (1.0.1) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787288.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dungeons & Dragons: Dark Alliance (2021) [Ru/Multi] (1.20.1370/dlc) License CODE
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787275.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Skyland: Heart Of The Mountain / Небесные Земли: Пробужден
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787186.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Criminal Archives: City on Fire (2021) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787054.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Macabre Ring 2: Mysterious Puppeteer (2019) [En] (1.0) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786987.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Mosaic Game of Gods III / Мозаика. Игры богов III (2019) [Ru] (1
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786956.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Fishing Sim World (2018) [Ru] (1.0/dlc) Repack xatab [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786915.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Tower of Time (2018) [Ru/Multi] (1.4.5.11880) License GOG (обновляема�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786777.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Kholat (2015) [Ru/Multi] (1.03) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786776.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Ms. Holmes 2: Five Orange Pips / Мисс Холмс 2: Пять апельси�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786680.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Protocol (2018) [Ru/Multi] (1.0) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786624.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ KHOLAT (2015) [Ru/Multi] (1.03/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786495.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Scourge of War: Wavre (2015) [En/Fr/It] (1.0.0.0/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786472.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Johnny Graves—The Unchosen One (2017) [Ru/En/Ge] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786470.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ FlatOut 4: Total Insanity (2017) [Ru/Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786438.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Roots of Insanity (2017) [Ru/Multi] (1.1.5) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786435.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Headlander (2016) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786268.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Battlezone 98 Redux (2016) [Ru/Multi] (2.2.301/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786259.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Blackwood Crossing (2017) [Multi] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786254.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Herald: An Interactive Period Drama - Book I & II (2017) [En] (1.1.0) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786247.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Maze 2: The Broken Tower / Лабиринт 2: Сломанная башня (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786072.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Dex (2014) [Multi] (5.4.0.0/dlc) License GOG [Enhanced Version]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786007.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Dex - стильная 2D RPG с элементами стелса и экшен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79D8501F4B9BA59A0BA443AEEFA85B0572C9A210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124327   (785885) от 10.04.2017
+
+Pro Basketball Manager 2017 (2017) [Multi] (1.0.0.9) License SKIDROW
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pro Basketball Manager 2017 – спортивный симулятор баскетбольных соревнований. Возьмите на себя роль тренера и начните свою карьеру в качестве руководителя. Основная цель ясна – привести свою команду к победе. Помимо усердных тренировок и правильного подбора игроков, на ваши плечи ложится ответственность за управление финансами клуба, чтобы оплачивать аренду стадиона (   Читать дальше...   )Тип издания: LicenseРазработчик: Umix Studios, CyanideЖанр: Sport, SimulatorЯзык озвучки: Английский, Французский и другиеЯзык субтитров: Английский, Французский и другиеЯзык интерфейса: Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5A45B88A2AC93A1794539B4CDDA13CDB91CB6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

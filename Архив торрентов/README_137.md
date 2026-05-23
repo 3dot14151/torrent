@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023657.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Viber 15.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023653.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Xodo PDF Reader & Annotator 5.0.22 + Modifications [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023650.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NoMachine 7.4.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023649.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ IObit Smart Defrag Pro 6.7.5.30 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023637.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ KLS Backup 2019 Professional 10.0.3.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023633.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ O&O ShutUp10 1.8.1420.321 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023625.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Serif Affinity Photo 1.9.2.1035 + Content RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023620.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Helalyn Flowers - Discography 18 Releases (2005-2021) [MP3|320 Kbps] <Industrial
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023591.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Ore dake Haireru Kakushi Dungeon / The Hidden Dungeon Only I Can Enter / Сил�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023553.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Adobe Acrobat Reader для PDF 21.3.0.17414 Mod by Saksham, koctik-2017, Alex.S
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023551.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Nova Launcher Premium v6.2.18 + Modifications [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023545.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.33.5700 RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023532.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Shingeki no Kyojin: The Final Season / Attack on Titan Final Season / Атака
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023525.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Micro Snitch 1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023516.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VideoProc 4k 4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023515.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Archiver 4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023508.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ AnyTrans for iOS 8.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023504.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Aquarium HD Screensaver 3.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023503.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Vivaldi 3.7.2218.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023501.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Mirror for LG TV 3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023494.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Balabolka 2.15.0.778 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023493.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Format Factory 5.7.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023492.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ PicPick 5.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023484.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Sandboxie 5.49.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023480.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ K-Lite Codec Pack Update 16.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023473.jpg" />
 </div>
 
 

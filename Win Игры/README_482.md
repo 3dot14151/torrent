@@ -1,29 +1,3 @@
-###  Публикация: 1760993   (37002) от 17.11.2024
-
-Evil Awaits (2024) [En] (1.0) Scene Skidrow
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Раскройте тайну замка Арчдейл в этой независимой игре в жанре экшена и ужасов на выживание, когда взрыв грозит раскрыть семейное проклятие и новую эпидемию. Получив сигнал бедствия о взрыве, детектив отправляется в отдаленный замок Арчдейл в поисках ответов, но оказывается в ловушке. Сможете ли вы выяснить, что произошло?Тип издания: SceneРазработчик: Chai GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B33324230EBDFA314982D2F8495213E28B77F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760936   (36981) от 17.11.2024
 
 Beyond The Darkness (2024) [Ru/En] (Build 16409241) Repack FitGirl
@@ -32,7 +6,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36981.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.6.596/dlc) Repack Let'sРlay [The One Wh
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36962.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack Decepticon [Master 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36940.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16.12/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36922.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ VED (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36915.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Oregon Trail (2022) [Ru/Multi] (1.0.33/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36911.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Fritz 19 (2023) [En] (19.3) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36907.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Chess King 24 (2024) [Ru/Multi] (24.0.0.2400) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36901.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ ChessBase Mega Database 2025 (2024) [En] (2025) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36900.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.11.17.1029) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36896.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Black Mesa (2020) [Ru/Multi] (build 14053053/dlc) Repack dixen18 [Definitive Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36837.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16431800/dlc) Repack FitGirl [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36826.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36804.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ ChessBase 18 (2024) [En] (18.2) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36796.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Scene Rune [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36792.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Darkness II (2012) [Ru/En] (1.1/dlc) Repack Let'sРlay [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36790.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Pumping Simulator 2 (2023) [Ru/Multi] (0.7.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36788.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ EcoGnomix (2024) [Multi] (1.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36743.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ God of War: Ragnarök (2024) [Ru/Multi] (1.0.622.6666/dlc) Scene Rune [Digital D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36738.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ V Rising (2024) [Ru/Multi] (1.0.10.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36716.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Beloved Rapture (2024) [En] (1.1.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36714.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.1.0.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36713.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Repack FitGirl [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36712.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Farlanders (2023) [Multi] (1.2.0f1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36708.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.0.23982/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36706.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Sker Ritual – фантастический боевик, который мож
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:553C2BF68FE6E44F0B2B567C56C307C49947B471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711657   (36705) от 20.11.2024
+
+VIDEOVERSE (2023) [En] (1.2.0.3) License GOG
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36705.jpg" />
+</div>
+
+
+###  Подробнее
+
+VIDEOVERSE - это приключенческая игра с элементами визуальной новеллы, где вам предстоит перенестись в прошлое, когда интернет только входил в общий обиход. Оживите те старые деньки, когда люди общались на форумах и развлекались с использованием примитивных программ. Заводите друзей в сети, поддерживайте связь и наблюдайте за становлением персонажей, ведь развитие (   Читать дальше...   )Тип издания: LicenseРазработчик: KinmokuЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C9EA0D01F56FE17E0721004AE2A272C5A3C33C
 ```
 
 https://mybot314.ru/tekegram_catalog/

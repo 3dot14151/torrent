@@ -1,84 +1,3 @@
-###  Публикация: 1550390   (592525) от 10.05.2022
-
-Ольга Володарская | Призраки забытых могил (2022) [MP3, Елена Калиниченко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Когда-то девушки с неблагополучными судьбами сбились в стаю, чтобы легче было выживать. Они побирались, подворовывали, дрались за место под солнцем, но все же не теряли надежду на лучшее. Среди них была скрипачка по прозвищу Пила. Она играла так великолепно, что могла бы поступить в консерваторию. Но девушек похитили и заперли в ледяном подвале. Чтобы спастись, им (   Читать дальше...   )Жанр: ДетективПродолжительность: 09:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFFB72FE0B9626FB587C7E77192F94326C22B96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550356   (592518) от 10.05.2022
-
-Наталья Мамлеева | «Дракмар» Книга 1. Факультет драконьих наездниц (2022) [MP3, Алла Човжик]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Я приручила Черного дракона!
-Так я думала, пока не оказалась в лапах этого самого дракона, весьма недовольного и опасного…
-Эта девчонка посмела меня «приручить»! Меня – Владыку Темных земель!
-Она «всего лишь» перепутала связь истинных с «приручением», приняв меня за дикого. Усмехнулся. Будет забавно. Для меня.Жанр: Любовное фэнтези, Фэнтези про драконовПродолжительность: 09:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272D083A82BE9EEC8EFCE6C72600F2A3A3EC88EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550387   (592510) от 10.05.2022
-
-Ханс Фаллада | Один в Берлине. Каждый умирает в одиночку (2022) [MP3, Дмитрий Стрелков]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1940-й год. Немецкие войска триумфально входят в Париж. Простые немцы ликуют в унисон с верхушкой Рейха, предвкушая скорый разгром Англии и установление германского мирового господства. В такой атмосфере бросить вызов режиму может или герой, или безумец. Или тот, кому нечего терять. Получив похоронку на единственного сына, столяр Отто Квангель объявляет нацизму войну. (   Читать дальше...   )Жанр: Зарубежная классика, Литература 20 векаПродолжительность: 19:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BF3BCFC87D51F4B312E7AEBB17E46B7BC86D1A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550358   (592505) от 10.05.2022
 
 Анна и Сергей Литвиновы | Вижу вас из облаков (2022) [MP3, Ирина Патракова]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592505.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592488.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592486.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592476.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592469.jpg" />
 </div>
 
 
@@ -217,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592457.jpg" />
 </div>
 
 
@@ -245,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592308.jpg" />
 </div>
 
 
@@ -271,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592284.jpg" />
 </div>
 
 
@@ -297,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592261.jpg" />
 </div>
 
 
@@ -323,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592162.jpg" />
 </div>
 
 
@@ -349,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592148.jpg" />
 </div>
 
 
@@ -375,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592103.jpg" />
 </div>
 
 
@@ -401,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592101.jpg" />
 </div>
 
 
@@ -427,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592073.jpg" />
 </div>
 
 
@@ -453,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592071.jpg" />
 </div>
 
 
@@ -481,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592068.jpg" />
 </div>
 
 
@@ -509,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592065.jpg" />
 </div>
 
 
@@ -535,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592023.jpg" />
 </div>
 
 
@@ -562,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591999.jpg" />
 </div>
 
 
@@ -588,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591853.jpg" />
 </div>
 
 
@@ -615,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591820.jpg" />
 </div>
 
 
@@ -642,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591639.jpg" />
 </div>
 
 
@@ -668,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591628.jpg" />
 </div>
 
 
@@ -682,6 +601,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E41E7BF7AFE092E91EE76B92EDEE7CF6CE274DA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550768   (591607) от 12.05.2022
+
+Марина Крамер | Танго под прицелом (2022) [MP3, Татьяна Литвинова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга повествует о непростых, порой мистических отношениях танцовщицы Мэри, пиарщицы Марго… и Призрака Алекса. Так девушки звали бывшего мужа Марго, мутного и странного типа – из тех, о которых говорят «девушки любят негодяев». Он стал для них ангелом-хранителем, много раз спасавшим их от гибели, вытаскивавшим из таких передряг, из каких, казалось, не было выхода. (   Читать дальше...   )Жанр: ДетективПродолжительность: 09:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2314E79390338941903999D63C109E35298B22CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550667   (591588) от 12.05.2022
+
+Макс Вальтер | Ваня (2022) [MP3, Павел Шехов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жили-были… Нет… Давным-давно… Тоже не то… А ну его всё к лешему… Всем привет! Меня Ваня зовут, и я Богатырь. Да-да, самый настоящий Русский Богатырь. Это не было моим осознанным выбором – так распорядилась судьба. Случилось, что послали меня в командировку, в страну заморскую, дабы Родина наша в грязь лицом не ударила. А там налетели басурмане в плащах да трико разноцветных. (   Читать дальше...   )Жанр: Юмористическая фантастика, ФэнтезиПродолжительность: 08:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D7970E578C1344DF458D692E15CCAA07DBF2D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 807274   (591569) от 24.07.2014
+
+Эрнест Хемингуэй | Рассказы (1977) [MP3, Валентин Гафт, Мария Бабанова и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591569.jpg" />
+</div>
+
+
+###  Подробнее
+
+«ОЖИДАНИЕ» . Простудившись, девятилетний мальчик был так напуган высокой температурой, что целый день думал о приближающейся смерти. Он даже не позволял никому входить в детскую. А к вечеру выяснилось, что он перепутал показания градусника.Жанр: Зарубежная классика, рассказИздательство: Гостелерадиофонд
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D85B33784D0EE5E56D1A0ECC3D8E4A71228B42
 ```
 
 https://mybot314.ru/tekegram_catalog/

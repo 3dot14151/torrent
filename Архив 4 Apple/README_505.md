@@ -6,7 +6,7 @@ WinX DVD Ripper for Mac 6.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241157.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Exposure Software Blow Up 3 v3.1.4.383 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241144.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Image2icon - Make your icon‪s‬ 2.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241135.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Exposure Software Snap Art 4 v4.1.3.375 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241128.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ MacX DVD Ripper Pro 6.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241106.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Exposure X6 v6.0.6.211  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241099.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Artstudio Pro 4.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241044.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ DjVu Reader Pro 2.4.8 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241032.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Marked 2 v2.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240973.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Principle 6 v6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240964.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Multitouch 1.24.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240955.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Money 5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240941.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Mac Blu-ray Player Pro 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240930.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Acon Digital Acoustica Premium Edition 7.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240926.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Bills v1.10.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240919.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240910.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ BetterZip 5 v5.1.1 b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240904.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Valentina Studio Pro 11.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240898.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Irvue 2.7.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240882.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Hazel 5.0.6 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240872.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ TextMate 2 v2.0.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240859.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Downie 4 v4.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240841.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Acon Digital AudioLava for Mac 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240833.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ RAR Extractor Max - Unzip 6.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240824.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Author 6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240807.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ PDF Reader Pro 2.8.23.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240798.jpg" />
 </div>
 
 

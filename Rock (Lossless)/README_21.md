@@ -6,7 +6,7 @@ Big Bone Daddy - Got It (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989045.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Rolling Stones - Bridges To Babylon (1997) Remaster, 2009, Polydor [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988327.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Pink Floyd - The Dark Side Of The Moon (1973) SACD, Remastered, 2003 EMI [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988252.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Elephants of Scotland - Home Away From Home (2013) [FLAC|Lossless]<Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988055.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Journey - 9 альбомов (1978-2013) Blu-spec CD2 Collection /2013, Sony Mus
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987765.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Status Quo - Accept No Substitute: The Definitive Hits (2015) 3CD [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987406.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Avril Lavigne - Under My Skin (2004) [FLAC|Lossless|image + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987313.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Odyssice - Silence (2010) [FLAC|Lossless]<Progressive rock / Symphonic Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987115.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Drive-By Truckers - The Unraveling (2020) [FLAC|Lossless|WEB-DL|tracks] <Souther
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987023.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Prog Rocks! Volume Three (2014) Box Set, 2CD [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987019.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ P.L.J Band - Armageddon (1982) Remastered, 2006, Mason Records [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986022.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Electric Light Orchestra - The Very Best of Electric Light Orchestra (2015) 2CD,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985405.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - The Ultimate Rock Ballads Collection  (2007) Box Set, 8CD [FLAC|Lossless]<R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984562.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Harry Styles - Fine Line (2019) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983441.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ SLADE - Greatest Hits: Feel The Noize (1997) /2002, Universal Music/[WavPack|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982495.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Nostradamus - Testament (2008) [FLAC|Lossless|image + .cue]<Progressive rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981983.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Baris Manco - Sozum Meclisten Disari (1981) Remastered, 1999, Akbas Muzic [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980255.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ David Bowie - Blackstar (2016) [FLAC|Lossless|tracks + .cue] <Art Rock, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979975.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Genesis - ...And Then There Were Three... (1978) SACD, Remastered, 2007 Virgin [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979144.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Alina Orlova (Алина Орлова) - Mutabor (2010) переиздание, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979119.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Avril Lavigne - The Best Damn Thing (2007) [FLAC|Lossless|image + .cue] <Pop-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979052.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Rob Balducci - Balance (1995) [FLAC|Lossless|image + .cue]<Instrumental, Guitar 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978183.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ No-Man - Love You To Bits (2019) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977951.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Green Miles - Free’N’Alive (2004) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977946.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ David Knopfler - Songs for the Sire (2006) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977506.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Electric Light Orchestra - Face The Music (1975) Limited Edition, 1993, Jet Reco
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976909.jpg" />
 </div>
 
 

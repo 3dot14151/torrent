@@ -1,82 +1,3 @@
-###  Публикация: 1776158   (71339) от 30.01.2025
-
-Антон Чехов | Рассказы (2016) [MP3, Александр Клюквин и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика на все времена.
-За свою короткую жизнь Антон Павлович Чехов (1860–1904) создал около 300 различных произведений: очерков, рассказов, повестей, пьес, многие из которых стали классикой мировой литературы и переведены более чем на сто иностранных языков. В этом сборнике вас ждет аудиоверсия избранных рассказов писателя, как известных, так и незнакомых (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Издательский дом «Союз»Продолжительность: 01:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F41FAC72E78D3D7DDD2248A30FA49BCAC345F1BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776386   (71317) от 31.01.2025
-
-Марина Степнова | Женщины Лазаря (2022) [MP3, Марина Степнова]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Семейная сага длиною в столетие рассказывает об острых гранях любви между гениальным учёным и тремя женщинами его жизни.Жанр: современная русская литератураИздательство: ВимбоПродолжительность: 15:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91A121184355ACAA0B39E2D126DE183AAD88D11D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776531   (71290) от 01.02.2025
-
-Джей Кристофф | Хроники Неночи (Книга 2). Годсгрейв (2023) [MP3, Ольга Миронова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мия Корвере стала ассасином и обрела своё место среди клинков Матери Священного Убийства, однако ничуть не приблизилась к желанной цели — возмездию. Когда по стране расходится весть о том, что её смертельные враги появятся в финале грандиозных игр в Годсгрейве, Мия продаёт себя в коллегию гладиатов — ради возможности прикончить злодеев.Жанр: боевое фэнтези, героическое фэнтези, зарубежное фэнтези,тёмное фэнтезиПеревод: Анастасия ХарченкоИздательство: АСТПродолжительность: 25:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED968AA44BCC90640EEA9AEAEB507C574E92436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776401   (71252) от 01.02.2025
 
 Элена Ферранте | Неаполитанский квартет (Книга 4). История о пропавшем ребёнке (2022) [MP3, Светлана Кузнецова]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71252.jpg" />
 </div>
 
 
@@ -112,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71224.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71217.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71213.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71194.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71191.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71107.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71104.jpg" />
 </div>
 
 
@@ -298,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71093.jpg" />
 </div>
 
 
@@ -324,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71070.jpg" />
 </div>
 
 
@@ -350,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71000.jpg" />
 </div>
 
 
@@ -378,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70999.jpg" />
 </div>
 
 
@@ -405,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70997.jpg" />
 </div>
 
 
@@ -433,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70978.jpg" />
 </div>
 
 
@@ -460,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70972.jpg" />
 </div>
 
 
@@ -489,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70965.jpg" />
 </div>
 
 
@@ -516,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70963.jpg" />
 </div>
 
 
@@ -543,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70961.jpg" />
 </div>
 
 
@@ -570,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70953.jpg" />
 </div>
 
 
@@ -599,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70937.jpg" />
 </div>
 
 
@@ -626,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70905.jpg" />
 </div>
 
 
@@ -652,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70860.jpg" />
 </div>
 
 
@@ -678,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70845.jpg" />
 </div>
 
 
@@ -690,6 +611,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0416D9A0642EF211D98AE0553F602019828C11A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778586   (70822) от 09.02.2025
+
+Джейд Дэвлин, Рина Ских | Неглавная героиня (2023) [MP3, Агния Егошина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы химик, то нигде не пропадёте — ни в реальном мире, ни в сказочном. Поэтому...
+Хорошо, что я не умерла, а попала. Плохо — что не одна.
+Хорошо, что не в ад. Плохо — что в глупую дораму.
+Хорошо, что мне выдали кое-каких плюшек. Плохо — что их придётся отрабатывать.(   Читать дальше...   )Жанр: любовное фэнтези, попаданцы, приключенческое фэнтези, юмористическое фэнтезиИздательство: АСТПродолжительность: 05:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE86EFD6ABC75EA7E36B5A38572EF9718BE6ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778589   (70821) от 09.02.2025
+
+Матильда Старр | Академия мёртвых душ (Книга 3). Прорицательница (2022) [MP3, Наталия Штин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таких, как я, тут называют заморышами: мы умерли в своём мире, чтобы возродиться в новом, магическом. Новые знакомства (не всегда приятные), обучение магии – вот что ждёт меня теперь. Но так вышло, что я первая иномирянка, которая попала на факультет ясновидцев. А в моих видениях и пророчествах всё чаще появляется какой-то мрачный тип, от которого мурашки по коже. (   Читать дальше...   )Жанр: любовное фэнтези, магические академии, попаданцы, приключенческое фэнтези, романтическое фэнтезиИздательство: АрдисПродолжительность: 07:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA675D1676F89E77E23D2C3D847D338EDDFB3BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778584   (70806) от 09.02.2025
+
+Делия Росси | Лёд твоих объятий (2022) [MP3, Екатерина Пермякова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда отец отправил меня в древний замок, я и представить не могла, во что выльется эта поездка. Ночь, проведённая в древнем склепе, портрет Истинного Ледяного, вечеринка в старинном стиле — думаете, это всё мелочи? Как бы не так! Оказалось, что это лишь звенья цепи, накрепко связавшей меня с человеком, имя которого было предано забвению много лет назад, а в душе (   Читать дальше...   )Жанр: любовно-фантастические романы, романтическое фэнтезиИздательство: АСТПродолжительность: 13:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CC5A8077694152DF50379B87DF179955DAF096
 ```
 
 https://mybot314.ru/tekegram_catalog/

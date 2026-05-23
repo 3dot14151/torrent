@@ -1,83 +1,3 @@
-###  Публикация: 1656988   (14979) от 11.06.2025
-
-Сэмюэл Дилэни | Баллада о Бете-2 (2023) [MP3, Puffin Cafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-"Когда человечество отправило первую миссию из более чем десяти городов-ковчегов, она же стала и последней. Уже вскоре после старта флотилии был изобретен гипердвигатель и к тому времени, как на кораблях сменились поколения, галактика уже была заселена. Таким образом, Звездный Народ стал первыми и единственными людьми, которым пришлось столкнуться с неизведанными (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 02:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05FC01258E13E1BB098B6028C56F3E238E1A670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801508   (14948) от 11.06.2025
-
-Игорь Конычев | Моя НЕвесёлая ферма (Книга 1). (2025) [MP3, Проводник]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Ждали в окопе, оказался в ж… жарком мире. Кругом сказочные существа и магия. Попал я, короче. Но, ничего, русский солдат шилом бреется, дымом греется. Прорвемся!Жанр: Юмористическое фэнтези, ПопаданцыИздательство: Аудиокнига своими руками (Пересадочная станция)Продолжительность: 11:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52814016C7A905DE03E9258B7C65E527BD2579F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801599   (14945) от 11.06.2025
-
-Клиффорд Саймак | Кимон (Иммигрант) (2020) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Кимон — загадочная планета, о которой стало известно около 100 лет назад. Кимонцы ни с кем не поддерживают контактов, попасть на их планету невозможно, они просто разворачивают корабли и телепортируют их обратно.
-
-Но, Кимон все же общается с одной цивилизацией и это земляне. Ежегодно на Кимон отправляются люди, прошедшие строгий отбор. Только одному из тысячи кандидатов (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 02:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FDD746B85E9C8F3B0FFC07BBC8F6E83CC6BAD3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801749   (14873) от 12.06.2025
 
 Дмитрий Дорничев, Евгений Лисицин | Меж двух миров (Книга 6). Имя нам Легион 6 (2025) [MP3, Олег Шубин]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14873.jpg" />
 </div>
 
 
@@ -115,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14872.jpg" />
 </div>
 
 
@@ -141,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14870.jpg" />
 </div>
 
 
@@ -168,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14840.jpg" />
 </div>
 
 
@@ -194,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14839.jpg" />
 </div>
 
 
@@ -223,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14789.jpg" />
 </div>
 
 
@@ -249,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14764.jpg" />
 </div>
 
 
@@ -275,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14748.jpg" />
 </div>
 
 
@@ -301,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14745.jpg" />
 </div>
 
 
@@ -327,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14719.jpg" />
 </div>
 
 
@@ -356,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14625.jpg" />
 </div>
 
 
@@ -382,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14617.jpg" />
 </div>
 
 
@@ -408,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14606.jpg" />
 </div>
 
 
@@ -436,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14472.jpg" />
 </div>
 
 
@@ -465,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14446.jpg" />
 </div>
 
 
@@ -491,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14444.jpg" />
 </div>
 
 
@@ -518,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14429.jpg" />
 </div>
 
 
@@ -544,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14330.jpg" />
 </div>
 
 
@@ -570,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14298.jpg" />
 </div>
 
 
@@ -596,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14294.jpg" />
 </div>
 
 
@@ -622,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14218.jpg" />
 </div>
 
 
@@ -651,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14205.jpg" />
 </div>
 
 
@@ -678,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14178.jpg" />
 </div>
 
 
@@ -689,6 +609,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:135123C1F5CBCAC8CE3604CB4EC60C046AA54CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802774   (14103) от 19.06.2025
+
+Анастасия Рубашевская | Норвегия изнутри. Как на самом деле живут в стране фьордов и викингов? (2023) [MP3,  Елена Калиниченко]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норвегия – это страна, где природа, культура и история удивительным образом сочетаются и переплетаются. Это крупнейший в мире экспортер лосося и семги, а еще страна находится на втором месте по добыче нефти и природного газа в Европе. Норвежцы еще в XIX веке придумали лыжный спорт, а викинги-мореплаватели открыли Америку задолго до Колумба. Несмотря на во многом (   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 11:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22CC7046907A7B5C0D4C77FCD0048827C9E0ED51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802776   (14100) от 19.06.2025
+
+Катерина Нечунаева | Испания изнутри. Как на самом деле живут в стране фламенко и сиесты? (2025) [MP3,  Анна Османова]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как много вы знаете об Испании?
+
+Испания – страна страсти, вкусной еды и вечной сиесты. Одной из причин, почему она известна на весь мир, является ее великолепное культурное наследие. Барселона с готическими кварталами и великолепными произведениями Антонио Гауди, Мадрид с потрясающими музеями мирового уровня, белые города Андалусии, арабская архитектура Кордовы (   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 05:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD869F98FD9DC4F88EB2BF8CFE805AC620FFCBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802778   (14099) от 19.06.2025
+
+Ирина Мун | Южная Корея изнутри. Как на самом деле живут в стране k-pop и дорам? (2023) [MP3, Анастасия Портная]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что мы знаем о Южной Корее?
+
+Кажется, что это таинственная и далекая азиатская страна, о которой мы почти ничего не знаем… Но скорее всего вы не раз слышали про музыку K-pop, смотрели дораму «Игра в кальмара» и фильм «Паразиты», пробовали кимчхи, тестировали патчи для глаз или пользовались продукцией компаний LG или Samsung. Да, все это появилось именно в Южной Корее! (   Читать дальше...   )Жанр: ПублицистикаИздательство: ЭксмоПродолжительность: 07:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B078E62429D2D31059660C111B6CF890ED0519
 ```
 
 https://mybot314.ru/tekegram_catalog/

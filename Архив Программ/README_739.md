@@ -6,7 +6,7 @@ IObit Malware Fighter Pro 5.1.0.3884 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676335.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VMware Workstation 12 Pro 12.5.6 build 5528349 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676334.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VMware Workstation Player 12.5.6 Build 5528349 Commercial [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676332.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ChrisPC Win Experience Index 7.03.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676320.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Telegram Desktop 3.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676312.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.8 (Offline Cache, Unofficial) [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676294.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VirtualBox 5.0.24 r108355 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676256.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VirtualBox 5.0.24 r108355 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676252.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ KasTrial 1.6.3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_676211.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Google Chrome 73.0.3683.86 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676202.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676195.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Google Chrome 73.0.3683.86 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676189.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Ventoy 1.0.71 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676165.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Windows 10 21H2 (19044.1586) x64 Home + Pro + Enterprise (6in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676154.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Rufus 3.18 (Build 1877) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676146.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676111.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Windows 10 Manager 1.1.5 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676105.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ TechSmith Snagit 13.0.1 Build 6326 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676101.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Glarysoft Malware Hunter PRO 1.14.0.28 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676099.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ TuneUp Utilities 2012 12.0.3600.86 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_676056.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ IObit Uninstaller Pro 8.4.0.8 (GAOTD) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676034.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Puran Defrag 7.7.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_675995.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Windows 10 Manager 1.1.5 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_675994.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ cFosSpeed 10.14 Build 2274 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_675993.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Mozilla Firefox 47.0.1 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_675989.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ AMD Radeon Software Crimson Edition 16.6.2 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_675984.jpg" />
 </div>
 
 

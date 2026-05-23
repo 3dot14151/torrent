@@ -1,133 +1,3 @@
-###  Публикация: 1870875   (1068804) от 
-
-Первую отечественную BIOS исключили из реестра российского ПО
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Российский BIOS разработки «Группы Рикор» исключили из реестра отечественного ПО. Как выяснил CNews, запись о системе базового ввода-вывода была удалена по поручению Минцифры от 12 мая 2026 года — формально из-за неактуальности сведений в реестре. В ведомстве пояснили, что запрашивали у правообладателя обновление данных, но ответа не получили, поэтому решение об (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870001   (1068803) от 
-
-16 лет. Любовь. Перезагрузка / Somersault (2004) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-16-летняя Хейди убегает из дома после того, как мама застукала её за поцелуем со своим бойфрендом. Ей удается найти жилье и работу на автозаправке недалеко от горнолыжного курорта. Хейди встречается с сыном местного хозяина ранчо Джо и пробуждает в нём чувства, которые тот не может объяснить. Жизнь девушки словно делится на две части - детство и зрелость. Есть ли (   Читать дальше...   )Производство: Австралия / Red Carpet Productions, Australian Film Finance Corporation (AFFC), Fortissimo FilmsЖанр: драма, мелодрамаРежиссер: Кейт ШортландАктеры: Эбби Корниш, Сэм Уортингтон, Эрик Томсон, Анна-Луиза Ламберт, Лиа Перселл, Холли Эндрю, Оливия Пижо, Пол Глисон (II), Линетт КерранПеревод: профессиональный многоголосый (DVD R5)Язык озвучки: русский, английскийСубтитры: русские (одна фраза), английскиеПродолжительность: 01:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FFDA9F5C932447006847124A83203A7E4E955C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870002   (1068802) от 
-
-Скарпетта / Scarpetta (2026) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] (сезон 1, серии 1-8 из 8) HDrezka, LostFilm, Red Head Sound, LE-Production
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Доктор Кэй Скарпетта - главный судмедэксперт штата Вирджиния. Она блестяще расследует преступления, но не может разобраться с личными отношениями, в том числе с сестрой Дороти, с которой у них немало взаимных обид и тайн.Производство: США / Amazon Studios, Blossom Films, Blumhouse TelevisionЖанр: триллер, драма, криминал, детективРежиссер: Шарлотта Брандстром, Дэвид Гордон ГринАктеры: Николь Кидман, Джейми Ли Кёртис, Ариана ДеБос, Саймон Бэйкер, Бобби Каннавале, Саванна Лумар, Джанет Монтгомери, Чарли Фостер, Алекс Клейн, Энсон МаунтПеревод: Многоголосый (HDrezka, LostFilm, Red Head Sound, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE0E07334F9C6E7D935C65356C02923F29FCB7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870005   (1068801) от 
-
-EaseUS Partition Master Pro / Server / Tech / Unlmited 20.3.0 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-EaseUS Partition Master — мощная программа для управления разделами жестких дисков и SSD в Windows. Она позволяет создавать, удалять, объединять, форматировать и изменять размеры разделов без потери данных, а также переносить систему на SSD, клонировать диски и конвертировать файловые системы и таблицы разделов MBR/GPT. Программа подходит как для домашних пользователей, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93916D2CFFA66C6162A711569BA68828ABCAC100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870006   (1068800) от 
-
-16 лет. Любовь. Перезагрузка / Somersault (2004) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-16-летняя Хейди убегает из дома после того, как мама застукала её за поцелуем со своим бойфрендом. Ей удается найти жилье и работу на автозаправке недалеко от горнолыжного курорта. Хейди встречается с сыном местного хозяина ранчо Джо и пробуждает в нём чувства, которые тот не может объяснить. Жизнь девушки словно делится на две части - детство и зрелость. Есть ли (   Читать дальше...   )Производство: Австралия / Red Carpet Productions, Australian Film Finance Corporation (AFFC), Fortissimo FilmsЖанр: драма, мелодрамаРежиссер: Кейт ШортландАктеры: Эбби Корниш, Сэм Уортингтон, Эрик Томсон, Анна-Луиза Ламберт, Лиа Перселл, Холли Эндрю, Оливия Пижо, Пол Глисон (II), Линетт КерранПеревод: профессиональный многоголосый (DVD R5)Язык озвучки: русский, английскийСубтитры: русские (одна фраза), английскиеПродолжительность: 01:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D1636444159C8A10A7DF4C3FFEEA33D3EB350F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870007   (1068799) от 
 
 USB Safely Remove 7.4.1.1336 [Multi/Ru]
@@ -136,7 +6,7 @@ USB Safely Remove 7.4.1.1336 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068799.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ Zentimo xStorage Manager 3.4.1.1304 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068798.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ BetterMediaInfo 0.9.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068797.jpg" />
 </div>
 
 
@@ -217,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068796.jpg" />
 </div>
 
 
@@ -243,7 +113,7 @@ Stellar Blade (2025) [Ru/Multi] (1.4.1/dlc) Repack seleZen [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068795.jpg" />
 </div>
 
 
@@ -269,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068794.jpg" />
 </div>
 
 
@@ -297,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068793.jpg" />
 </div>
 
 
@@ -323,7 +193,7 @@ Adobe Substance 3D Designer 16.0.1.10989 Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068792.jpg" />
 </div>
 
 
@@ -349,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068791.jpg" />
 </div>
 
 
@@ -375,7 +245,7 @@ Process Lasso Pro 18.1.0.44 (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068790.jpg" />
 </div>
 
 
@@ -401,7 +271,7 @@ reaConverter Pro 8.0.219 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068789.jpg" />
 </div>
 
 
@@ -428,7 +298,7 @@ Windows Manager 2.3.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068788.jpg" />
 </div>
 
 
@@ -455,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068786.jpg" />
 </div>
 
 
@@ -481,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068785.jpg" />
 </div>
 
 
@@ -507,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068783.jpg" />
 </div>
 
 
@@ -533,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068782.jpg" />
 </div>
 
 
@@ -562,7 +432,7 @@ Ashampoo Burning Studio 27.0.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068781.jpg" />
 </div>
 
 
@@ -588,7 +458,7 @@ QontrolPanel 1.15.1 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068780.jpg" />
 </div>
 
 
@@ -616,7 +486,7 @@ JRiver Media Center 35.0.74 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068779.jpg" />
 </div>
 
 
@@ -642,7 +512,7 @@ X HEVC Encoder 1.3 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068778.jpg" />
 </div>
 
 
@@ -670,7 +540,7 @@ WACUP 1.99.50 [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068777.jpg" />
 </div>
 
 
@@ -681,6 +551,141 @@ WACUP — это моё видение того, каким должен быт�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F7A6EEBEBC670A834652233444C1FAF9BBC6F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870050   (1068776) от 
+
+Cockos REAPER 7.71 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317EEFF5EF05733C6026CD8FDA87CC26279517F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870052   (1068775) от 
+
+PrivaZer Pro 4.0.121 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068775.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C7AEB8A4DF0EF111F0EFA3C64CDEF00F7BF880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870053   (1068774) от 
+
+Екатерина Пронина, Александр Пронин | Калинов мост (2025) [MP3, Елизавета Тим]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой дворянин Филипп Делагрие, потомок белой эмиграции, возвращается в Россию, чтобы раскрыть старое преступление. Еще до революции в усадьбе
+Заречье пропала без вести юная княжна. Того, кто сможет разгадать эту тайну, ждет баснословное наследство. Но особняк давно превратился в руины, о которых ходит дурная слава.
+Почему птицы так любят это место? Зачем безумный (   Читать дальше...   )Жанр: Фэнтези, МистикаИздательство: ЭвербукПродолжительность: 09:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD1C9A141C31C092072CAEBEA10DDA0CF08B3AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870049   (1068773) от 
+
+Виктор Пелевин | День Бульдозериста (2025) [MP3, Николай-Теодор Кобзев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие рассказа происходит во время праздника Дня Бульдозериста. Главный герой Иван Померанцев, работает на линии сборкиЖанр: фантастика, постмодернизм, сюрреализмИздательство: Аудиокнига своими рукамиПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3CB34344D3099C64B129440CC6825FB5F0BD663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870039   (1068772) от 
+
+Специалист, Александр Кораблин | Программирование на языке R [Уровень 1-2] (2017) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Целевое предназначение языка программирования R – это статистический анализ данных. Язык содержит широчайший спектр инструментов анализа данных, средств визуализации, создания документов и веб-приложений.
+Что удобнее делать в R? В основном отмечают четыре вещи:
+статистический анализ данных;
+создание высококачественной визуализации данных;(   Читать дальше...   )Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 24:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0855DE5C36AB6C9078A75BAEAB848982B6BECCC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

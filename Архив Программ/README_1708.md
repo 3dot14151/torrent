@@ -6,7 +6,7 @@ NVIDIA GeForce Desktop Game Ready 522.25 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205727.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nitro Pro 13.70.0.30 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205602.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Calcpad 6.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205586.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ GoodbyeDPI 0.2.2. Launcher 5.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205577.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Wi-Fi Scanner 22.08 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205572.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ AmanVPN 2.3.1.0806 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_205551.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ FireAlpaca 2.11.6 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205544.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Movavi Video Suite 22.4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205502.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kaspersky Tweak Assistant 22.8.15.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205495.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205493.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ K-Lite Codec Pack Update 17.7.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205476.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Malwarebytes Free 4.5.13.208 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205472.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Wondershare Filmora X 11.4.7.358 RePack by PooShock [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205446.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Adobe Media Encoder 2022 22.6.0.65 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205405.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ AmanVPN 2.3.3.0824 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205397.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Adobe Audition 2022 22.6.0.66 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205385.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ ADB AppControl 1.7.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205376.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ HWiNFO 7.61 Build 5180 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205372.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ PeaZip 9.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205362.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Windows 11 22H2 x64 Rus by OneSmiLe [22621.598]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205352.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Mirillis Action! 4.36.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205350.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Chromium 116.0.5845.97 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205348.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Everyone Piano 2.5.8.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205345.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Windows 11 Media Creation Tool 10.0.22621.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205332.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ RJ TextEd 15.93.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205300.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Corona Renderer 8 (Hotfix 2) for 3ds Max 2014-2023 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205297.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Honoo no Tenkousei | Blazing Transfer Student | Огненный новичок 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816258.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Darker Than Black: Ryuusei no Gemini | Darker Than Black: Gemini of the Meteor |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815892.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Bishoujo Senshi Sailor Moon | Pretty Soldier Sailor Moon | Красавица-в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815710.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Ikkitousen / Ikki Tosen / Школьные войны (сезон первый) 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815086.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Ikkitousen: Extravaganza Epoch | Школьные войны Эпоха феер
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814975.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Love Live! School Idol Project (2014) / Love Live! 2 / Живая Любовь! 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814551.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Durarara!!x2 Shou / Дюрарара!! 2 (сезон первый) [2015, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814307.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Kero-chan ni Omakase! | Предоставьте это Кэро! [2000, Movie] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813878.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Cardcaptor Sakura: Clear Card Hen | Card Captor Sakura: Clear Card Hen | Сак�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813734.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Cardcaptor Sakura | Card Captor Sakura | Сакура - собирательни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813601.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Just Because! / Да просто так! [2017, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813341.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Getsuyoubi no Tawawa / Tawawa on Monday / Встречи с Тававой по 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812754.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Rosario to Vampire Capu2 / Вампир + крестик 2 [2008, TV, 13] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812645.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Shinmai Maou no Testament / The Testament of Sister New Devil / Завет Дь�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812497.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Circuit Angel Ketsui no Starting Grid / Ангел гоночных трасс [
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811796.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Okusama ga Seitokaichou! Plus! / My Wife is the Student Council President+! / М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811081.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810740.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Hoozuki no Reitetsu (2017) | Хладнокровный Ходзуки [ТВ-2] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809724.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Nora to Oujo to Noraneko Heart | Nora, Princess, and Stray Cat | Нора, пр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809716.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809622.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Yuuki Yuuna wa Yuusha de Aru: Washio Sumi no Shou | Yuki Yuna Is a Hero: The Was
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809405.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Komori-san wa Kotowarenai! / Komori-san Can't Decline / Безотказная �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809274.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Pan de Peace! / Хлеб мира! [2016, TV, 13] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809158.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Kono Bijutsubu ni wa Mondai ga Aru! / This Art Club Has a Problem! / У этог
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809146.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Nerima Daikon Brothers / Братья Нэрима Дайкон [2006, TV, 12 ep
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809043.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Tenamonya Voyagers / Те еще странники [1999, OVA, 4 ep.] DVDRip Hi
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809034.jpg" />
 </div>
 
 

@@ -1,114 +1,3 @@
-###  Публикация: 320269   (50507) от 10.07.2024
-
-Мегрэ и старая дама (1974) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-По произведению Жоржа Сименона "Мегрэ и старая дама".
-
-Для расследования убийства служанки мадам Бессон - Розы - комиссар Мегрэ едет в курортный городок в Нормандии. Там он понимает, что отношения между членами семьи Бессон сложны и запутаны, а к гибели Розы и ее брата Анри, детей простого рыбака, привели жестокость и лживость окружающих.Жанр: ТелеспектакльРежиссер: Вячеслав БровкинВ ролях: Борис Тенин, Елена Фадеева, Авангард Леонтьев, Елена Козелькова, Анатолий Ромашин, Леонид Сатановский, Нина Архипова.Формат: AVIПродолжительность: 02:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4ED9CB154C0B7DC0998833CEBDE09823F62A88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432380   (50495) от 10.07.2024
-
-Мёртвые души / Моноспектакль А. Филиппенко (1988) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В 1985 году А. Филиппенко и М. Розовский становятся лауреатами посвященного 175-летию со дня рождения Н.В. Гоголя конкурса артистов-чтецов за «Повесть о капитане Копейкине». Вскоре появился моноспектакль «Мертвые души». 18 мая 1988 года на сцене Московского драматического театра имени К.С. Станиславского в рамках культурной программы творческого объединения «Союзтеатр» (   Читать дальше...   )Жанр: моноспектакльРежиссер: Марк РозовскийАктеры: Александр ФилиппенкоПродолжительность: 01:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA117B81A87417147263214E4E27507E0CD66282
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 404418   (50494) от 10.07.2024
-
-Записки Пиквикского клуба (1972) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Главная редакция литературно-драматических программ ЦТ.
-Телеспектакль по роману Чарльза Диккенса.
-
-В центре спектакля неунывающий, эксцентричный, наивный и трогательный мистер Пиквик и его друзья - забавные и милые чудаки, наблюдающие жизнь, и попадающие в силу своей искренней наивности и простодушия в нелепые ситуации.Жанр: комедия, спектакльРежиссер: Александр ПрошкинПродолжительность: 01:11:23 + 01:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057588B37B3AC3F6212244AFB05F0F2A3402E498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476161   (50489) от 10.07.2024
-
-Любовь в двух действиях / Московский театр "Модернъ" (2012) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Андрей Максимов поставил свою пьесу в Московском драматическом театре   "Модернъ".
-
-Любить без оглядки и логики. Любить, растворившись в другом человеке, возможно недостойном тебя, который полюбил другую… Спектакль «Любовь в двух действиях» - мелодраматическая история о всепрощающей силе любви. Попытка поговорить со зрителями о том, что это такое - настоящая (   Читать дальше...   )Жанр: мелодрама, спектакльРежиссер: Андрей МаксимовПродолжительность: 00:58:13 + 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF32AB7D9B387E47D0DB7F13827B31F927DE3B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472853   (50486) от 10.07.2024
 
 Кураж / Московский театр "Эрмитаж" (2012) SATRip
@@ -117,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50486.jpg" />
 </div>
 
 
@@ -145,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50484.jpg" />
 </div>
 
 
@@ -173,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50482.jpg" />
 </div>
 
 
@@ -202,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50480.jpg" />
 </div>
 
 
@@ -230,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50479.jpg" />
 </div>
 
 
@@ -258,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50476.jpg" />
 </div>
 
 
@@ -287,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50472.jpg" />
 </div>
 
 
@@ -315,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50467.jpg" />
 </div>
 
 
@@ -342,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50466.jpg" />
 </div>
 
 
@@ -368,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50431.jpg" />
 </div>
 
 
@@ -395,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50402.jpg" />
 </div>
 
 
@@ -423,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50398.jpg" />
 </div>
 
 
@@ -450,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50321.jpg" />
 </div>
 
 
@@ -478,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50311.jpg" />
 </div>
 
 
@@ -509,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50309.jpg" />
 </div>
 
 
@@ -537,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50298.jpg" />
 </div>
 
 
@@ -564,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50285.jpg" />
 </div>
 
 
@@ -594,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50283.jpg" />
 </div>
 
 
@@ -621,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50268.jpg" />
 </div>
 
 
@@ -648,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50221.jpg" />
 </div>
 
 
@@ -678,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50212.jpg" />
 </div>
 
 
@@ -707,7 +596,7 @@ ZZ Top: Greatest Hits (2004) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50210.jpg" />
 </div>
 
 
@@ -721,6 +610,115 @@ Greatest videos, a groundbreaking collecton from the band that made chopped cars
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:871AFA9761BC49C91AFB7AB29ECE1794E23F64D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663070   (50189) от 13.07.2024
+
+Между небом и землёй (1977) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50189.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам повести Виктории Токаревой "Ехал грека".
+Известный музыкант Климов эгоистичен и самолюбив. Он безразличен к бывшей жене и сыну, к любящей его женщине, пренебрежительно относится к коллегам. Однажды самолёт, на котором он должен был лететь, терпит катастрофу. Климов опаздывает к вылету и остаётся жив.Жанр: Фильм-спектакль, драмаРежиссер: Валерий ФокинАктеры: Андрей Миронов, Марина Неёлова, Елена Коренева, Татьяна Пельтцер, Лариса Соловьёва, Елена Лягурова, Виктор ФридманПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FEA5BC5EBE8DE27C7ABBFF794A1E72C38B1A0AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463196   (50187) от 13.07.2024
+
+Не все коту масленица / Театр п/р О.Табакова (2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Написанная во время Великого поста 1871 года, эта комедия Александра Островского является своего рода басней. Как и полагается, с моралью. Произнося "не все коту масленица", мы непременно вспоминаем вторую часть русской пословицы - "будет и Великий пост".
+
+Богатый старик - купец Ахов - может сколь угодно долго тешить себя мыслью, что деньги решают (   Читать дальше...   )Жанр: комедия, спектакльРежиссер: Авангард ЛеонтьевПродолжительность: 01:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD9FC4C3CFBEEA70465B3A544201CD751D5F798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332054   (50184) от 13.07.2024
+
+Мертвые души (1969) DVD5
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сатирическая трагикомедия по одноименной поэме Н.В.Гоголя.
+Работу над "Мёртвыми душами" Гоголь начал еще в 1835 году по совету Пушкина и на сюжет, подсказанный им. В "Мертвых душах" Гоголь поставил самые острые и больные вопросы современной жизни. Уже само название поэмы - "Мёртвые души" - имело огромную разоблачающую силу, носило в (   Читать дальше...   )Жанр: ТелеспектакльРежиссер: Александр БелинскийВ ролях: Игорь Горбачев, Олег Басилашвили, Юрий Толубеев, Павел Луспекаев, Константин Адашевский, Елена Маркина, Светлана КарпинскаяФормат: DVD VideoПродолжительность: 02:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429D1980CF2D3791F5061BEFB6AB37F00569E5A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965924   (50172) от 13.07.2024
+
+Олег Данилов - Путники в ночи (2001) TVRip (Театр им. А.С.Пушкина)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лирическая комедия «Путники в ночи» театра имени А.С. Пушкина по пьесе Олега Данилова, сопровождаемая одноименной музыкальной темой Фрэнка Синатры.
+Рассказ о любви, о том, как эта самая любовь тускнеет с годами, как она уходит, а потом возвращается. И как тяжело бывает мужчине и женщине просто услышать друг друга и хоть на некоторое время позабыть взаимные обиды, (   Читать дальше...   )Производство: Россия, Московский театр им. А.С. ПушкинаЖанр: Спектакль, комедияРежиссер: Дмитрий АстраханАктеры: Игорь Бочкин, Анна Легчилова, Екатерина Клочкова, Дмитрий Скрипченко, Андрей СоколовПродолжительность: 02:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6B8C4874808F20D7903281899B832041B21F2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

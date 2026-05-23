@@ -6,7 +6,7 @@ Radiant Photo 1.3.1.435 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110762.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CudaText 1.214.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110759.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Google Chrome 124.0.6367.92 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110755.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ R-Wipe & Clean 20.0.2453 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110751.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ TweakNow WinSecret Plus! 5.3.6 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110748.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Perfectly Clear WorkBench 4.6.1.2656 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110746.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Wavesequencer - Theia 1.09 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110739.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Wavesequencer - Hyperion 1.52 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110734.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ reaConverter Pro 7.807 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110727.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Zoner Photo Studio X 19.2403.2.538 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110707.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Free Download Manager 6.22.0.5712 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110685.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ simplewall 3.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110680.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Brave Browser 1.65.123 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110675.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ n-Track Studio Suite 10.1.0.8635 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110674.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Topaz Gigapixel AI 7.1.2 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110669.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Topaz Gigapixel AI 7.1.2 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110668.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ File & Image Uploader 8.4.2 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110642.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Text Editor Pro 29.1.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110640.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Image Uploader 1.4.0 Build 5139 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110603.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Opera One 109.0.5097.68 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110590.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Shotcut 24.04.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110550.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Wondershare UniConverter 15.5.8.70 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110544.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Ant Download Manager Pro 2.11.4 Build 87517 (x32) / Build 87518 (x64) Portable b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110540.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Firefox Browser 125.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110501.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Adobe InCopy 2024 19.4.0.63 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110500.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Vivaldi 6.7.3329.21 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110499.jpg" />
 </div>
 
 

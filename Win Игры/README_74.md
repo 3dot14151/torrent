@@ -1,29 +1,3 @@
-###  Публикация: 1354236   (988930) от 21.01.2020
-
-Cadenza 6: The Following / Каденция 6: Следуя за прошлым (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Не так уж и часто распавшиеся в прошлом музыкальные группы воссоединяются вместе для ещё одного турне, но Velvet Whisper стали приятным исключением. Будучи журналистом, Вы вместе с участниками группы направляетесь на музыкальный фестиваль Огонь дракона, чтобы взять у них интервью. Но во время поездки случается неожиданное - загадочная девушка нападает на автобус (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FE306143B37877024A69765FDE7A77D37DD96F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611403   (988846) от 30.01.2013
 
 Unmechanical [Ru/En] (RePack) 2012 | R.G. Механики
@@ -32,7 +6,7 @@ Unmechanical [Ru/En] (RePack) 2012 | R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988846.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Phineas and Ferb: New Inventions / Финес и Ферб. Новые изобр
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988800.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Dungeonland: Special Edition [En/Multi4] (Steam-Rip/3.5.6.44817) 2013 | R.G. Gam
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988798.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Brothers - A Tale of Two Sons (2013) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988751.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Dark Romance 3: The Swan Sonata (2015) [En] Unofficial [Collector's Edition / К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987485.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Sable Maze 5: Soul Catcher (2015) [En] Unofficial [Collector's Edition / Кол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987391.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Dark Romance 3: The Swan Sonata / Венок Романсов 3: Лебедин�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987148.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Surface 8: Return to Another World / Внешние пределы 8: Возвр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987143.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0/upd5) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986728.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Sonic & All-Stars Racing Transformed En/Multi5] (L) 2013 | RELOADED
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986390.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ The Unseen Fears 5: Ominous Talent (2020) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986113.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ HellScape: Two Brothers (2020) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985779.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Submersed (2020) [Multi] (1.0.0.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985667.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Warsworn: Dragon of Japan (2020) [Ru/Multi] (1.0) License DARKSiDERS
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985661.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Surface 3: The Soaring City Collector's Edition / Над водой 3: Паря�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985349.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985054.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Labyrinths of the World 10: Fools Gold / Лабиринты мира 10: Зол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984750.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ We Need To Go Deeper: The Awakened (2019) [En] (1.1) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984604.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Automachef (2019) [Multi] (1.1.0.0.380) License PLAZA [Lunar Update]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984603.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Praetorians - HD Remaster (2020) [Ru/Multi] (4.22) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984301.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ The Cave (Русификатор/1.0) [Ru] 2013 | ZoG Forum Team
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983879.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Retrovirus [En] (Steam-Rip/1.0.5251.0) 2013 | R.G. GameWorks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983635.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ R.A.W. Realms Of Ancient War [Ru] (Repack/1.0.1) 2012 | Fenixx
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983558.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ Labyrinths of the World 11: The Wild Side / Лабиринты мира 11: Ди
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983246.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ Find Me: Horror Game (2020) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983239.jpg" />
 </div>
 
 
@@ -672,6 +646,32 @@ Find Me: Horror Game (2020) [Ru/Multi] (1.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F31E2700FEC2CB95392DB292D67218075D3396B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355359   (983238) от 26.01.2020
+
+Path of Zen (2020) [En] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983238.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Path of Zen» - это приключение, которое приводит игрока к спокойной прогулке по парку, где он исследует, как его мысли могут влиять на восприятие реальности. Игра представляет собой небольшое введение в медитацию с помощью короткого дыхательного упражнения и призвана дать игроку осознанный взгляд на то, как он можем справляться со своими мыслями. Присоединяйтесь (   Читать дальше...   )Тип издания: LicenseРазработчик: Longest Road StudioЖанр: Приключения, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC4E4C1D9A94EF6A9B29C447D436994DB7004B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Softany WinCHM Pro 5.2 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801780.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IINA 0.0.15 (build 64) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801772.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FontLab 7 v7.1.2.7436 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801763.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Viper FTP 5.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801761.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Exposure Software Snap Art 4 v4.1.3.384 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801745.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Downcast 2.11.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801739.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Exposure Software Eye Candy 7 v7.2.3.176 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801732.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Autodesk AutoCAD LT 2018.0.1 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801724.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801716.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Ja Rule - R.U.L.E (2004) [MP3|320 Kbps] <Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801697.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Opera GX 68.0.3618.129 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801683.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Acon Digital Acoustica Premium Edition 7.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801681.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801680.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Vinnie Paz - As Above so Below (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801676.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ IObit Smart Defrag Pro 6.5.5.98 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801672.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Sensei 1.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801670.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Opera GX 68.0.3618.129 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801668.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ PrivaZer 4.0.32 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801665.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Flight Of Sleipnir - Eventide (2021) [FLAC|Lossless|image + .cue] <Stoner Me
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801663.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Exposure X7 Bundle v7.0.1.68 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801653.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ YTD Video Downloader PRO 5.9.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801640.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Extend The 80s - Pop (2018) 3CD [MP3|320 Kbps] <Synthpop, Electropop, New W
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801637.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Pazera Free Audio Video Pack 2.15 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801625.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ CoolUtils Total Audio Converter 5.3.0.227 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801599.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ CoolUtils Total PDF Converter 6.1.0.220 RePack (& portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801598.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Allavsoft Video Downloader Converter 3.22.5.7441 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801593.jpg" />
 </div>
 
 

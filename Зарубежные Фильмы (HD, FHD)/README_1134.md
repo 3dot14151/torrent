@@ -1,55 +1,3 @@
-###  Публикация: 1789767   (22415) от 05.04.2025
-
-Маньчжурский кандидат / The Manchurian Candidate (2004) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Кувейт, 1991 год. В преддверии начала операции «Буря в пустыне» американский военный разведывательный патруль под командованием капитана Бена Марко попадает в засаду. Пока Марко находится без сознания, сержант Рэймонд Шоу, сын влиятельной женщины-сенатора, спасает бойцов отряда и позже возвращается на родину героем, получив Медаль Почёта за проявленный героизм. Спустя (   Читать дальше...   )Производство: США / Clinica Estetico Ltd., Paramount Pictures, Scott Rudin ProductionsЖанр: триллер, драма, детективРежиссер: Джонатан ДеммеАктеры: Дензел Вашингтон, Лив Шрайбер, Мэрил Стрип, Кимберли Элиз, Джон Войт, Джеффри Райт, Бруно Ганц, Саймон Макберни, Пабло Шрайбер, Энтони МакиПеревод: профессиональный многоголосый (5 канал, Інтер), профессиональный двухголосый (Tycoon, Дмитрий Филимонов и Ольга Зверева, Премьер, Рен-ТВ), авторский (Юрий Живов), любительский одноголосый (Неизвестный)Язык озвучки: русский, украинский, английскийСубтитры: русские, украинские, английские (SDH)Продолжительность: 02:09:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0044E5490B21672AE8FEFC2467B36EADC985FAE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789731   (22365) от 05.04.2025
-
-Обречённый / Impuratus (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-1920-е, США. Детектива Клэйтона Дугласа приглашают в психиатрическую клинику к пожилому ветерану Дэниелу Глассману, жить которому осталось совсем недолго. На смертном одре Глассман признаётся, что в далёком 1862 году в него вселилось мистическое зло. Погружаясь в историю старика, сыщик понимает, что тёмные силы совсем не утратили своего могущества.Производство: США / ScreenGage Development, Thunder Smoke Media, ThunderSmoke MediaЖанр: ужасы, детективРежиссер: Майк ЮринкоАктеры: Том Сайзмор, Лью Темпл, Роберт Миано, Сильвия Спросс, Лорна Ларкин, Айрен ДеЛаМатер, Рафаэль Портильо, Джоди Куигли, Кари Харбор, Чак ПресслерПеревод: Дублированный (CPI Films)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 02:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43DE2F1402676E6115B80978A8CE5DE72758099E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493324   (22350) от 06.04.2025
 
 Я всё еще знаю, что вы сделали прошлым летом / I Still Know What You Did Last Summer (1998) UHD BDRip [H.265/1080p] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22350.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22278.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22272.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22265.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22220.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22211.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22176.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22121.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22102.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22078.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22064.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22043.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22039.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22015.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22007.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21979.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21949.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21832.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21831.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ D.O.A.: Живым или мертвым / DOA: Dead or Alive (2006) BDRip [H.26
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21798.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21712.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21708.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21672.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21607.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:378948EFC811AE64507DCEB8DA021A67A124FC28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791459   (21556) от 13.04.2025
+
+Наркобарон / Narc (2002) BDRip [H.265/1080p] [10-bit] [AUS Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив Ник Тэллис, отстранённый от службы после трагического задержания опасного наркодилера, получает редкий шанс вернуться на прежнюю работу. Расследование жестокого убийства оперативника отдела по борьбе с наркотиками за два месяца не продвинулось ни на шаг, и начальство надеется, что у Ника есть свежие идеи. Вместе с бескомпромиссным лейтенантом Оаком он пытается (   Читать дальше...   )Производство: Германия, Канада, США / Apple Creek Productions, Cruise/Wagner Productions, Cutting Edge Entertainment, Echelon Productions, Inc., Emmett/Furla FilmsЖанр: триллер, драма, криминал, детективРежиссер: Джо КарнаханАктеры: Джейсон Патрик, Рэй Лиотта, Баста Раймс, Дэн Лейс, Ллойд Адамс, Мэган Иса, Лина Фелис, А.С. Петерсон, Карен Робинсон, Чи МакБрайдПеревод: профессиональный многоголосый, профессиональный двухголосый (ACME FILM Литва), авторский (Юрий Живов, Михаил Яроцкий, Андрей Гаврилов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:071F2A7F04CC9A208B570A97F1C1EFCB62F8AD38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346894   (21509) от 14.04.2025
+
+Бандитский Йоханнесбург / Jerusalema (2008) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Криминальный фильм, в основе которого – реальные события. Это история гангстера Лаки Кунене, ставшего незаконным путем крупнейшим домовладельцем Йоханнесбурга. Природа наделила Лаки недюжинным умом и сильным характером, нищета толкнула на скользкую дорожку...Производство: ЮАРЖанр: боевик, драма, криминалРежиссер: Ральф ЗиманАктеры: Дэниэл Баклэнд, Роберт Хоббс, Юджин Хумбанйива, Джафта Мамаболо, Шелли Мескин, Рапулана Сейфемо, Джеффри Зекеле, Ронни НиакалеПеревод: Профессиональный многоголосыйСубтитры: русский, английский, английский (hardsub на африканскую речь)Качество: BDRip 720pПродолжительность: 01:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19BB16B5CAFB3C4C33029C4CA17999D4C6B162BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

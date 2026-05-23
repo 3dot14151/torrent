@@ -6,7 +6,7 @@ AppPolice 1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154203.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Foldor-Design Your Folder Icon 1.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154196.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Aiseesoft Mac PDF Converter Ultimate 3.2.80 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154048.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FileUnhider 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153656.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ DupeZap 4.1.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153091.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ AnyTrans for iOS 8.9.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152050.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Memory Clean 2 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150084.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ CopyLess 1.8.11 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149934.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ balenaEtcher for macOS 1.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149772.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Hopper Disassembler 4.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149389.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Tweak and Tuneup 4.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148573.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Yummy FTP Watcher 2.2.12 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148528.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ FoneLab Location Changer for Mac 1.0.12 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147875.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ FoneLab iPhone Password Manager for Mac 1.0.16 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147650.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Spotless 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147625.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mac FoneLab for iOS 10.2.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147549.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Mirror for Samsung TV 3.8.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147535.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Energiza Pro for Mac 1.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147518.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Mac FoneLab FoneEraser for iOS 1.0.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147513.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Mirror for LG TV 3.8.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147497.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Apeaksoft iPhone Transfer 2.0.68 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147482.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ iBoostUp Premium 9.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147340.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Keyboard Maestro 11.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147170.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Mac FoneLab iOS Unlocker  1.0.56 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147130.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ iLock 3.2.0 [Mulri/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146653.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ uDesktop NEXT - vast wallpaper collection 3.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146609.jpg" />
 </div>
 
 

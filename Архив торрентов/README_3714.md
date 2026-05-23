@@ -6,7 +6,7 @@ Skype 8.99.0.202 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236718.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cacheman 10.70.0.4 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236714.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TrashMe 3 v.3.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236713.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Perfectly Clear WorkBench 4.4.0.2500 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236709.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ID Photos Pro 8.7.7.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236708.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AIO Boot NewGen 23.4.30.0 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236697.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ TinkerTool System 7 v7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236694.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Sandboxie 5.64.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236687.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ R-Drive Image System Recovery Media Creator Technician 7.1 Build 7106 RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236682.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ True Burner 9.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236679.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ GIMP 2.10.34 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236674.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ PrivaZer 4.0.63 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236667.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Naumind - Live at United Forever Festival 2021 (2021-01-17) [MP3|320 Kbps] <Big 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236666.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Allavsoft Video Downloader Converter 3.25.7.8568 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236660.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ File List Export 2.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236659.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Bartender 4 v4.0.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236658.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Sublime Merge 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236657.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Skype 8.98.0.407 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236656.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.1.7 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236653.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ WinSnap 6.0.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236649.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Typora for Mac 1.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236643.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Text Editor Pro 27.0.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236631.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ NewFileTime 7.01 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236628.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ QOwnNotes 23.1.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236626.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Display Maestro 5 v5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236623.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ GraphicConverter for Mac 12.0.2 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236622.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 882990   (816437) от 29.03.2015
-
-F1 Race Stars (2012) [Ru/Multi] (1.1/13dlc) Repack R.G. Catalyst
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Любимые звезды и команды FORMULA ONE™ ждут вас в новом мире гонок, полном развлечений! Устремитесь к клетчатому флажку на знаменитых трассах, к которым мы добавили захватывающие дух прыжки и хитрые короткие пути, собирайте и используйте множество потрясающих бонусов, чтобы обойти соперников! Играйте вместе с друзьями на разделенном экране (до четырех участников) или онлайн с игроками по всему миру (до 12 участников). Участвуйте в разнообразных чемпионатах в режиме карьеры. F1 RACE STARS™ – самый скоростной путь (   Читать дальше...   )Тип издания: RepackРазработчик: CodemastersЖанр: Arcade / Racing / 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Бразильский, Испанский, Итальянский, Немецкий, Польский, Французский, ЯпонскийЯзык интерфейса: Русский, Английский, Бразильский, Испанский, Итальянский, Немецкий, Польский, Французский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F660D08A41E99A0154A34C8F8645FCCCD524BBAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 882744   (816429) от 29.03.2015
 
 Game of Thrones - A Telltale Games Series (2014) [En] (1.0.0.1) Unofficial Fairlight [Episode 1-3]
@@ -32,7 +6,7 @@ Game of Thrones - A Telltale Games Series (2014) [En] (1.0.0.1) Unofficial Fairl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816429.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ Real Boxing (2014) [Ru/Multi] (1.1) License PROPHET
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816355.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ Legends Of Dawn (2013) [Ru/Multi] (1.52s) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816348.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Jars (2021) [Ru/Multi] (1.0.1018) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815535.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ Darkheart: Flight of the Harpies / Темное Сердце: Полет гар�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815423.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Myths of the World 13: Behind the Veil / Мифы народов мира 13: З
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815419.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Into the Pit (2021) [Multi] (368) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815402.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Monster Train (2020) [Ru/Multi] (12921/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815252.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ NieR Replicant ver.1.22474487139... (2021) [Multi] (7396468) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815250.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Dice Legacy (2021) [Ru/Multi] (1.2.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815241.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Nanotale - Typing Chronicles (2021) [Ru/Multi] (1.95) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815237.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Dungeon Defenders (2011) [Multi] (8.3/dlc) License PLAZA [Collection Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815007.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Oriental Empires (2017) [Ru/Multi] (1.0.0.5) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814993.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] Lic
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814942.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Castle. Never Judge a Book by Its Cover / Касл. Не судите книгу
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814926.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Masquerada: Songs and Shadows (2016) [Ru/Multi] (1.22) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814874.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Fallen Legion+ (2018) [Ru/Multi] (1.0) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814869.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Doorways: The Underworld (2014) [En/Es] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814828.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Armed Assault 2 / ArmA 2: Reinforcements / ArmA 2: Второй фронт [Ru] 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814710.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ Taken (2015) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814707.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ Fortify (2016) [En] (1.0.5) Repack John2s
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814698.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ Blitzkrieg 2 Anthology / Антология Блицкриг 2 (2008) [Ru] (1.6.
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814678.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7/dlc) SteamRip R.G. Origins [Deluxe Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814318.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ Dark City 6: Paris (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814007.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ Hidden Motives: The Diamond Rush / Скрытые мотивы: Алмазная
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813983.jpg" />
 </div>
 
 
@@ -675,6 +649,32 @@ Hidden Motives: The Diamond Rush / Скрытые мотивы: Алмазная
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E34E780DBCA7D3AE4F6D92D679BCBC326FEE3DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504102   (813682) от 22.10.2021
+
+Evertried (2021) [Ru/Multi] (1.0) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813682.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире непоколебимого порядка Башня - маяк надежды для заблудших душ, не нашедших ни вечный покой, ни вечные муки. Дальнейший исход здесь зависит от них самих. Единственный выход - вознестись на самую вершину. Вы не помните наверняка, что с Вами приключилось, но знаете одно: Вам не удалось доказать доблесть при жизни. Оказавшись в Башне, Вы встречаете неразумное (   Читать дальше...   )Тип издания: LicenseРазработчик: Lunic Games, Danilo DominguesЖанр: Strategy, Tactical, Roguelite, IsometricЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38780C138E41691FCA71FD0C92BCB2C5408A21FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

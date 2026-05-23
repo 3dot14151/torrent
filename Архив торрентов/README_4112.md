@@ -6,7 +6,7 @@ Malwarebytes Windows Firewall Control 6.9.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171860.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AIDA64 Extreme Edition 6.92.6618 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171858.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DxO PhotoLab Elite 7.0.2 build 83 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171852.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sense V2 Flip Clock & Weather v6.35.4 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171849.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Sense flip clock & weather v6.34.2 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171846.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Beyond Compare Pro 4.4.7.28397 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171845.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Psiphon 3 build 180 (20.10.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171844.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Windows 10 Manager 3.8.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171842.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171811.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ iShowU Instant (Advanced) 1.4.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171778.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ n-Track Studio Suite 10.0.0 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171762.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ iNet Network Scanner 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171750.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Sublime Text 4.0 Build 4160 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171745.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Music Tag Editor Pro 7.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171744.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ GeoGebra 6.0.807.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171740.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Opera GX 102.0.4880.104 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171734.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Strawberry 1.0.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171711.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Nitro PDF 14.16.0.13 (x64) Pro Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171701.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Fitify: Фитнес тренировки дома 1.58.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171699.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Imagine 1.3.2 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171696.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Topaz Video AI 4.0.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171694.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.0.9 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171693.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Java SE Runtime Environment 8.0.3910.13 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171686.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VPN Russia - VPN сервера в России 1.176 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171676.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ CCleaner 6.17.10746 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171648.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Stats 2.9.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171608.jpg" />
 </div>
 
 

@@ -1,32 +1,3 @@
-###  Публикация: 780639   (575748) от 19.05.2019
-
-VA - Still Got the Blues vol.7 (2014) [MP3|64-320 кб/с]<Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Shemekia Copeland - Ghetto Child
-02. The Preston Shannon Band - Can't Love What You Never Had
-03. Stevie Larocca - Stevie Shuffle
-04. The Doug Peart Blues Machine - Prisoner Of The Blues(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 09:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F44E771847D87F637391ED48B43F31B429D23C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 805854   (575737) от 19.05.2019
 
 VA - Rocks 'n' Ballads II (2014) [MP3|320 кб/с]<Rock, Metal>
@@ -35,7 +6,7 @@ VA - Rocks 'n' Ballads II (2014) [MP3|320 кб/с]<Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575737.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - NOW 100 Hits Classic Rock (2019) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575736.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Зайцев.нет Лучшие новинки Мая 2019 [MP3|256 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575655.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Блюз Хиты (vol. 10) (2013) [MP3|320 кб/с]<Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575647.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Blues and Rock Ballads (2014) [MP3|320 кб/с]<Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575645.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Shazam Хит-парад Russia Top 200 Май (2019) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575637.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Club Dance Ambience Vol.154 (2018) [MP3|320 Kbps] <Dance, Club House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575627.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - 60 Minutes. Old School Dance Music vol.8 (mixed by Dj V) (2022) [MP3|320 Kb
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575565.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Extra Trance (episode 5) (2015) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575478.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Mega Hit Mix (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575451.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Aldo Lesina - Castles & Dungeons (2015) [MP3|320 кб/с]<Electronic, Eurobeat, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575407.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - In Da Club Vol.64 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575127.jpg" />
 </div>
 
 
@@ -389,7 +360,7 @@ VA - Популярная летняя соточка (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575124.jpg" />
 </div>
 
 
@@ -415,7 +386,7 @@ VA - Хит-парад 200 50/50 (2011) [MP3|128 kbps]<Поп>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575089.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Мне Не Хватает Твоих Глаз  (2011) [MP3|256 kbps]<Pop /
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574980.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ VA - LUXEmusic - Dance Super Chart Vol.80 (2016) [MP3|320 Kbps] <House, Electro 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574799.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ VA - Super Dance Party Vol.3 (2016) [MP3|320 Kbps] <Dance, Club>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574790.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ VA - The Best of Melodic Trance (Compiled by Zebyte ) (2016) [MP3|320 Kbps] <Mel
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574787.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ VA - 100 Лучших хитов от Русского радио Спецвып
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574735.jpg" />
 </div>
 
 
@@ -589,7 +560,7 @@ VA - Союз Летних Хитов (2016) [MP3|256 Kbps] <Поп, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574717.jpg" />
 </div>
 
 
@@ -618,7 +589,7 @@ VA - The Hits of Summer (2016) [MP3|320 Kbps] <Vocal, Euro, Synthpop, Inie Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574707.jpg" />
 </div>
 
 
@@ -647,7 +618,7 @@ VA - Mega Hits. World top №9 (2016) [MP3|128-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574699.jpg" />
 </div>
 
 
@@ -676,7 +647,7 @@ VA - Убойное лето №5 Europa Plus (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574660.jpg" />
 </div>
 
 
@@ -705,7 +676,7 @@ VA - Золотые Хиты Дискотек 80-х В Обработке  (2011
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574594.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - Super Summer Hits 2016 (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574574.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - Super Summer Hits 2016 (2016) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1247CE0A93879081B8B61C41C757D24682E2E6F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043048   (574565) от 15.08.2016
+
+VA - Smooth Soul - Black Lounge & Chillout Classics (2016) [MP3|320 Kbps] <Soul, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gil Small Jr - Next 2 U (4:54)
+02. Camille St. Vincent - La Vie D'une Chanteuse (Life of a Singer) (2:29)
+03. James Branch - Forever My Love (4:03)
+04. Eddie Caldwell - Dreams (4:27)(   Читать дальше...   )Жанр: Soul, Lounge, ChilloutПродолжительность: 02:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03B638B96A7CA8115A53006DEDCE2B4090CE238D
 ```
 
 https://mybot314.ru/tekegram_catalog/

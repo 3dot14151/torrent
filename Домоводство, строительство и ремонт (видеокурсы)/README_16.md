@@ -1,29 +1,3 @@
-###  Публикация: 1796975   (18319) от 14.05.2025
-
-Woodsmith PBS | Woodsmith shop (Season 6) (2012) TVRip [EN, RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Телевизионное популярное американское шоу Woodsmith призвано помочь получить максимальную отдачу от Вашей деревообрабатывающей мастерской. Каждый эпизод является яркой живой презентацией советов и методик деревообработки, методам работы со станками и инструментами, применением и изготовлением различных приспособлений, которые сделают Ваш труд более производительным (   Читать дальше...   )Жанр: ДеревообработкаЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 13 ~ по 00:25:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3D0568B16FAD772123F5B18552A7DC23022FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797116   (18283) от 14.05.2025
 
 Brenda K.B. Anderson | Вязаные носки (2023) WEBRip [EN, RU]
@@ -32,7 +6,7 @@ Brenda K.B. Anderson | Вязаные носки (2023) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18283.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ George Vondriska | Создать невозможный стол (2024) WEBRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18262.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Nicki LaFoille | Сумка с разделителем (2025) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18095.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Cynthia Nims | Французская домашняя кухня: Основн�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17877.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Illene Sofranko | Консервирование 101 (2025) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17790.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Nicki LaFoille | Трикотажное ноу-хау + толстовка с к
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17778.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Sara Bendrick | Выходные в саду (2021) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17765.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Craig Olson | Стрижка овец (2020) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17694.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Robin Miller | Давай устроим поздний завтрак (2024) WE
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17692.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Katie Workman & Robin Miller | Готовим в будние вечера (2024
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17583.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ ZJ Humbach | Организация идеальной студии для ши�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17380.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15156.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13397.jpg" />
 </div>
 
 

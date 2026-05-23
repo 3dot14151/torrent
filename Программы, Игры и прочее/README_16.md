@@ -6,7 +6,7 @@ LazyMedia Deluxe v3.422 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049150.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HiPER Calc Pro v11.2.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049044.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049043.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Smart AudioBook Player Pro v11.6.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049042.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PianoMeter – Piano Tuner v4.1.1 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049039.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ One Read / Все Документы Читатель - Офис v1.2.7 Mod by v
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049037.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Plus Messenger (Telegram+)  v12.2.10.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049036.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Xiaomi Home (Ранее. MiHome) v11.0.622 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048925.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Sketchbook v6.2.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048888.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048887.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Vanced Tube v5.5.80.314 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048886.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Grok - ИИ ассистент v1.0.89-release.00 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048875.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Vanced Tube v5.5.80.306 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048675.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048674.jpg" />
 </div>
 
 
@@ -363,32 +363,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842079   (1048488) от 14.12.2025
-
-Universal Copy v7.0.1 Мод by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Universal Copy — это самый быстрый способ копировать текст на Android, даже из приложений, которые не позволяют вам копировать, или внутри изображений. Иногда вы хотите копирования текста из приложения и вы не можете использовать Android долгое нажатие по умолчанию? Универсальный Copy принимает эту роль на себя! Активируйте режим универсального копирования и выберите (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 13.12.2025Разработчик: Camel CorporationПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68AF6A00FEA91722835CE4C25165C0579F3A5A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842087   (1048487) от 14.12.2025
 
 Photo Editor v12.3 Pro Mod by Mixroot [Ru/Multi]
@@ -397,7 +371,7 @@ Photo Editor v12.3 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048487.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Photo Editor v12.3 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048486.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048479.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ HiPER Calc Pro v11.2.9 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048475.jpg" />
 </div>
 
 
@@ -493,32 +467,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841841   (1048468) от 13.12.2025
-
-Universal Copy v7.0.1 Мод by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Universal Copy — это самый быстрый способ копировать текст на Android, даже из приложений, которые не позволяют вам копировать, или внутри изображений. Иногда вы хотите копирования текста из приложения и вы не можете использовать Android долгое нажатие по умолчанию? Универсальный Copy принимает эту роль на себя! Активируйте режим универсального копирования и выберите (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.12.2025Разработчик: Camel CorporationПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B188F6C65922957C4499DD7902FA758CBC8143E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841835   (1048467) от 13.12.2025
 
 Truecaller: AI Call Blocker / Oпределитель номера v16.5.6 Mod by Balatan [Ru/Multi]
@@ -527,7 +475,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v16.5.6 Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048467.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ MobiOffice: Word, Sheets, PDF Premium v16.0.58429 Extra Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048458.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ Moon+ Reader Pro v10.3 (b1003000) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048391.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048390.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048383.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ Listen Audiobook Player v5.4.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048382.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ Listen Audiobook Player v5.4.0 Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBEC2EDC53EC17ADD276E26EA1D3EA1594E94C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841935   (1048381) от 13.12.2025
+
+Remini / Улучшение Фото v3.7.1213.202518225 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите ваши старые, смазанные, размытые или поврежденные фото в фотографии высокой четкости одним касанием! Remini использует современный искусственный интеллект для восстановления четкости и улучшения любого фото. Подарите новую жизнь старым воспоминания в потрясающем, кристально чистом HD качестве. На сегодня мы обновили более 100 миллионов фотографий. Фоторедактор (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 13.12.2025Разработчик: Splice Video EditorПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1ADBEE90322F937A65D24BD1ECF86BEAF86D0C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841821   (1048378) от 13.12.2025
+
+Grok - ИИ ассистент v1.0.87-release.00 Mod by kljovyj [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grok — это AI-ассистент, разработанный xAI, предназначенный для максимальной правдивости, полезности и любопытства. Получайте ответы на любые вопросы, генерируйте впечатляющие изображения и видео, ведите естественные разговоры в голосовом режиме и загружайте картинки, чтобы глубже понять свой мир. С Grok вселенная в ваших руках!Тип издания: ModРелиз состоялся: 13.12.2025Разработчик: xAIПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2C804C5C04FAAEB09A434A8426F727E7BB2C95
 ```
 
 https://mybot314.ru/tekegram_catalog/

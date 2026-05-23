@@ -1,29 +1,3 @@
-###  Публикация: 1023570   (723341) от 05.06.2016
-
-Brigador (2016) [En] (1.0/dlc) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Brigador - это изометрический экшен, в котором игроку на одном из нескольких видов боевой техники предстоит освободить один город от тирании, уничтожив все правительственные войска.Тип издания: RepackРазработчик: Stellar Jockeys, GausswerksЖанр: Arcade, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD3BD7F618FF427737F7A906D5E41ED12553AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218461   (722937) от 09.04.2018
 
 Demolish & Build 2018 (2018) [Ru/Multi] (1.0/upd1) Repack Other s
@@ -32,7 +6,7 @@ Demolish & Build 2018 (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722937.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Job Simulator (2016) [En] (1.0) Repack Other s [VR]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722931.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Bomber Crew (2017) [Ru/Multi] (1.0/upd2) License PLAZA
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722841.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ TT Isle of Man (2018) [Ru/Multi] (1.01/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722837.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ INFERNIUM (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722836.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.21863/dlc) Repack xatab [Master Collec
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722834.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Mafia III / Мафия 3 (2016) [Ru/Multi] (1.090.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722832.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Impact Winter (2017) [Ru/Multi] (2.0.10) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722826.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Mystery Tales 13: Til Death / Загадочные истории 13: До са�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722725.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Life is Strange 2 (2018) [Ru/Multi] (1.0) Repack Other s [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722318.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Mystery Tales 5: Eye of the Fire / Загадочные Истории 5: Вос
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722261.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Dreampath 2: Curse of Swamps (2016) [En] (1.0) Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722154.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Mystery Case Files 15: The Black Veil / За семью печатями 15: Ч�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722153.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Ys: Memories of Celceta (2018) [Ru/Multi] (1.0.0.15) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722101.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Death's Gambit: Afterlife (2018) [Ru/Multi] (1.1.6/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722099.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Mountain Trap 2: Under The Cloak Of Fear / Горная Ловушка 2: Под
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721904.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ New York Mysteries 3: The Lantern of Souls / Загадки Нью-Йорка 3.
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721828.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Adele: Following the Signs (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721583.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Sky Force Anniversary (2015) [Ru/Multi] (03.06.2016) Repack R.G. Механик�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721499.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Dead Island: Riptide (2016) [Ru/Multi] (1.0) Repack YelloSOFT [Definitive Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721491.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Dark Romance 2: Heart of the Beast (2015) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721456.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Amulet of Dreams / Амулет снов (2015) [Ru] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721233.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Haunted Hotel 16: Lost Dreams / Проклятый отель 16: Сны заб�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721161.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Check Your 6! (2018) [En] (1.0) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721036.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Extinction (2018) [Multi] (1.0) Repack Other s [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720909.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Extinction (2018) [Multi] (1.0) Repack Other s [Deluxe Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED867680B605A292DBFC98B422BC2C907AD78807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185301   (720897) от 10.04.2018
+
+Megaton Rainfall (2017) [Ru/Multi] (1.08) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мегатонный Ливень - игра в супергероя от первого лица. Вы один на один с глобальным инопланетным вторжением. Гоняйтесь на сверхзвуковой скорости за орудиями массового поражения вокруг Земли - огромной, как настоящая. Затем уничтожьте устройства врагов мегамощными взрывами. Старайтесь не убивать людей! Вы так сильны, что если промахнетесь - снесете полгорода!Тип издания: LicenseРазработчик: Pentadimensional GamesЖанр: Экшн, От первого лица, SandboxЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB7156B8DF7ACB8F3C26681A709D18446CB7A4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

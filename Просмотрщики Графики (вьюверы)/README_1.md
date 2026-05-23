@@ -1,55 +1,3 @@
-###  Публикация: 1359562   (963994) от 12.02.2020
-
-Adobe Bridge 2020 10.0.3.138 RePack by pooshock [Multi/Ru]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Adobe Bridge предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами IPTC и XMP, выставлять рейтинг изображениям, добавлять водяные знаки а также централизованно устанавливать параметры (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39699CECD8909B9B2E592EAD41A714B0D91408B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106148   (874288) от 18.02.2017
-
-ACDSee Ultimate 10.3 Build 894 [Ru/En]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-ACDSee Ultimate 10 сочетает в себе поддержку слоев, поддержку GPU-ускорения обработки изображений, поддержку прозрачности со всеми функциями регулировки изображений из режима редактирования. ACDSee - функциональная программа, рассчитанная как на профессиональных фотографов, так и на любителей. ACDSee позволяет работать с цифровыми фотографиями, RAW-изображениями (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2A3E622BD6310A08C3BC657D3D85E3DBDC7CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377423   (851494) от 22.04.2020
 
 XnViewMP 0.96.1 + portable [Multi/Ru]
@@ -58,7 +6,7 @@ XnViewMP 0.96.1 + portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851494.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Teorex Multi-View Inpaint 1.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846342.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Phototheca Free 2021.3.1.3489 [Multi]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798602.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ JPEGView 1.0.36 Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794589.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ JPEGView 1.0.37 Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779314.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ ACDSee Photo Studio Professional 2018 11.2.888 RePack by KpoJIuK [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776255.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Alternate Pic View 2.730 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771273.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Nomacs 3.16.1709 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743884.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ ACDSee 20.4 Build 630 [En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706236.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ ACDSee Ultimate 10.4 Build 912 RePack by KpoJIuK [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704239.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ ACDSee Pro 10.4 Build 686 RePack by KpoJIuK [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702277.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ FastStone MaxView 3.4 + Portable [En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564841.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ FastStone Photo Resizer Corporate 4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530347.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ Picasa 3.9.140 Build 248 Portable by PortableAppZ [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503036.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ Universal Viewer Pro 6.7.6.0 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472226.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ Picasa 3.9.141 Build 255 [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432770.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ OpenText Brava! DWG Viewer 16.2.0.137 Portable by SunOK [En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359836.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ Adobe Bridge CC 2019 9.0.0.204 [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322872.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ ACDSee Pro 10.1 Build 653 (x86) Lite RePack by MKN [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319868.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ Movavi Photo Manager 2.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270229.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ Adobe Bridge CC 2020 (10.0.0.124) Portable by XpucT [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270212.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ FastStone Image Viewer 8.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261013.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ FastStone Image Viewer 8.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260640.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ FastStone Image Viewer 8.2 Corporate + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260085.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ FastStone Image Viewer - просмотровщик, редактор и кон�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EF146AC4DBB70F28314999DB7137E63F254CF92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837016   (255915) от 14.11.2025
+
+IrfanView 4.73 + Plugins [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255915.jpg" />
+</div>
+
+
+###  Подробнее
+
+IrfanView - компактная и в то же время мощная программа для просмотра и конвертации графических файлов с продвинутыми возможностями, поддерживающая множество форматов графики, есть опции редактирования. Кроме работы с графическими файлами, IrfanView понимает многие аудио и видеоформаты; вдобавок, возможности программы можно значительно расширить за счет плагинов, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A04254EE75A87CF140D8C9A7010482BAE774B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832918   (230402) от 31.10.2025
+
+Adobe Bridge 2026 16.0.0.63 RePack by KpoJIuK [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Bridge предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами IPTC и XMP, выставлять рейтинг изображениям, добавлять водяные знаки а также централизованно устанавливать параметры (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F19D3D0AC99FD919EBA16CFADDC82798C16B9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

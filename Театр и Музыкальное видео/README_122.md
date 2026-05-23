@@ -1,114 +1,3 @@
-###  Публикация: 1673677   (160146) от 09.11.2023
-
-Helloween - Live at Budokan (2023) HDTV [MPEG-2/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Выступление 16 сентября 2023, Япония, Токио, арена Будокан.
-За запись с WOWOW большое спасибоKai Hansen - lead vocals, guitars
-Michael Kiske - lead vocals
-Andi Deris - lead vocals
-Michael Weikath - guitars(   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109DEFF0517A3BA4DD34AB725029A31B742489B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599496   (159863) от 23.12.2022
-
-МузЛофт-подкаст / МузLoft. Артем Качер (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
-Если бы не Лариса Долина, мы бы, возможно, нескоро встретились с этим талантливым артистом и настоящим профессионалом. Артём, оказывается, может не только петь с Джиганом, но и исполнять самые заметные хиты и крутые вокальные композиции. А еще Артём рассказал про (   Читать дальше...   )Производство: Россия | Y-GenerationЖанр: Поп, Рэп, Хип-ХопЯзык озвучки: РусскийПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5BBF3F3AEA4250C49341A31646F0CCE89D28BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599515   (159853) от 23.12.2022
-
-МузЛофт-подкаст / МузLoft. Нодар Ревия (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
-Всем привет! К нам в гости заглянул настоящий Генацвале, а именно Нодар Ревия. Нодар не только исполнитель, но еще и педагог, поэтому этот выпуск будет интереснее вдвойне всем тем, кто хочет научиться петь. А если хотите просто насладиться прекрасным голосом Нодара, (   Читать дальше...   )Производство: Россия | Y-GenerationЖанр: Поп, эстрадаЯзык озвучки: РусскийПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F8A6FF745BD0093AE982D2366A2E9A74BAC688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599504   (159851) от 23.12.2022
-
-МузЛофт / МузLoft. Вячеслав Макаров (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
-В этом выпуске решили вас порадовать вокальными данными неизменного ведущего и участника множества музыкальных проектов, а также самым красивым и поющим «камызяком» - Славой Макаровым. Он рассказал нам про свою первую любовь, раскрыл секреты производства шоу «Аватар» (   Читать дальше...   )Производство: Россия | Y-GenerationЖанр: PopЯзык озвучки: РусскийПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DA21CD3E804BC1B7EC1D5A7A0C5B029418A087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599472   (159847) от 23.12.2022
 
 МузЛофт-подкаст / МузLoft. Никита Пресняков (2022) WEBRip [H.264/1080p]
@@ -117,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159847.jpg" />
 </div>
 
 
@@ -144,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159843.jpg" />
 </div>
 
 
@@ -171,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159684.jpg" />
 </div>
 
 
@@ -200,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159292.jpg" />
 </div>
 
 
@@ -229,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158926.jpg" />
 </div>
 
 
@@ -259,7 +148,7 @@ IVE – «I Want» (2023) WEB-DL [H.264/2160p] [4K, SDR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158901.jpg" />
 </div>
 
 
@@ -285,7 +174,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/1080p] [hand 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158900.jpg" />
 </div>
 
 
@@ -311,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158654.jpg" />
 </div>
 
 
@@ -337,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158448.jpg" />
 </div>
 
 
@@ -363,7 +252,7 @@ George Thorogood & The Destroyers / Live at Montreux (2013) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158442.jpg" />
 </div>
 
 
@@ -392,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158423.jpg" />
 </div>
 
 
@@ -419,7 +308,7 @@ Madonna - The Confessions Tour (Live From London) (2006) HDTVRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_157818.jpg" />
 </div>
 
 
@@ -449,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157545.jpg" />
 </div>
 
 
@@ -475,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157421.jpg" />
 </div>
 
 
@@ -502,7 +391,7 @@ Top Of The Pops 70s (vol.2) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157346.jpg" />
 </div>
 
 
@@ -531,7 +420,7 @@ Top Of The Pops 70s (vol.1) (2008) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157289.jpg" />
 </div>
 
 
@@ -560,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157215.jpg" />
 </div>
 
 
@@ -586,7 +475,7 @@ Eisbrecher - Schock Live (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157124.jpg" />
 </div>
 
 
@@ -618,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157097.jpg" />
 </div>
 
 
@@ -647,7 +536,7 @@ IVE – «Off The Record» (2023) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157090.jpg" />
 </div>
 
 
@@ -673,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157054.jpg" />
 </div>
 
 
@@ -702,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156956.jpg" />
 </div>
 
 
@@ -714,6 +603,131 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C250F4D1940E695CA5FB74958399BCD01C3A666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556340   (156808) от 27.12.2022
+
+Кипелов: Концерт с симфоническим оркестром (2020) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Кипелов представляет вашему вниманию "Концерт с симфоническим оркестром", который прошел в Москве в марте 2020 года в Crocus City Hall. Это шоу, которое прошло с аншлагом, стало концом большого тура по 2019-2020. Всё действие снималось на 21 видеокамеру и записывалось для последующего микширования звука, как в стерео, так и в многоканальном окружающем (   Читать дальше...   )Производство: РоссияЖанр: Heavy Metal, SymphonicРежиссер: Александр МаковПеревод: ОтсутствуетЯзык озвучки: русскийПродолжительность: 02:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87D653D1B14E0E9AA882841EBFFD5DF9D9FF8C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588262   (156800) от 13.12.2012
+
+Hammerfall: Gates of Dalhalla (2012) [1080p] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_156800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сто тридцати пяти минутное шоу, которое группа дала 28 июля в честь своего пятнадцатилетия в Шведской деревушке Rattvik снял Шведский режиссер Patric Ullaeus.01. Patient Zero
+02. Heeding The Call
+03. Any Means Necessary
+04. B.Y.H.
+05. Riders Of The Storm
+06. Let's Get It On
+07. Crimson Thunder
+08. Renegade
+09. Blood Bound (special guest: Stefan Elmgren)
+10. Last Man Standing (special guest: Stefan Elmgren)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 02:21:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967790   (156609) от 23.12.2015
+
+Квартирник у Маргулиса - Александр Ф. Скляр (2015) DVBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса - Александр Ф. Скляр. Дата эфира: 12.12.2015.01. Ад-и-Рай
+02. На кухне
+03. Босиком по луне
+04. Не надо так(   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34931F950715188986AE15404ACE3728767C3686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588773   (156516) от 13.12.2012
+
+DJ Tiesto in Concert 2003 (2012) BDRip 720p
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_156516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличный концерт DJ Tiesto. Впечатляет девушка - вокалистка. Tiesto был первым DJ электронной танцевальной музыки (EDM), который столько заполнил стадион. Это произошло  в 2003 году Gelredome в городе Арнем на голландско-немецкой границе. 25000 восторженных фанатов DJ Tiesto.01 Tiesto - Magik Journey (Intro)
+02 Tiesto - Adagio For Strings
+03 Ernesto & Bastian - Wo's The Starter?
+04 Skin - Faithfullness (Tiesto Remix)
+05 Andain - Beautiful Things feat. Mavie Marcos
+06 Brotherhood - Samba in the Wood
+07 Cave - Carnival
+08 Roc Project feat. Tina Arena - Never (Filterheadz Luv Tina Remix)
+09 David Forbes - Answers
+10 Mojado feat. Mr. Sam - Naranja (Dimitri Andreas Vision)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 3:29:02
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

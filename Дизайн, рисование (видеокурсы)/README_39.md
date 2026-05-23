@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591710.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591500.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591498.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ FlippedNormals, Morten Jaeger | Stylized Character Sculpting in Zbrush - Majora 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590054.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ AnimSquad, Zach Parrish & Brent Homman | Master Class: Disney's Zach Parrish & B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589311.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Animsquad, Zach Parrish | Master Class: Animating a Cartoony Shot (2016) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589265.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ The Gnomon Workshop, Taylor Whitsett | Character Rigging in Maya for Game Produc
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588359.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586661.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586628.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Pluralsight, Delano Athias | Rigging Tank Treads in Maya (2013) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586582.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Udemy, Nabil Kechiche | Unreal Engine Game Environment design MasterClass Part 1
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584498.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Digital Tutors | Введение в ZBrush 4R5/ Introduction to ZBrush 4R5 (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583538.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Lynda | 3ds Max 2015 Базовый тренинг/ 3ds Max 2015 Essential Train
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583533.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Profileschool | Adobe Photoshop. Допечатная подготовка из�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583225.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ CGcircuit, Andy Van Straten | Skinning with nCloth Part II (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582809.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ CG Elves, Camille Kleinman | Hoods & Hats Workshop (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581812.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ XYZ School, Дмитрий Клюшкин | Concept art with Dmitry Klyushkin (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581708.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ CG Cookie, Tim Von Rueden | Piero - Animated Character Concept (Concept Art Cour
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580867.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Profileschool | Photoshop - Curves. Работа с кривыми (2013) [PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580235.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ World Of Level Design | UE4 How To Create Custom Decals (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578796.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Figma.center, Владимир Чернышов | Дизайн генерато�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578701.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Marco Bucci | 3D Techniques with Digital Painting (2019) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577256.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577096.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Corey Barker | Planet Photoshop by Corey Barker [2008-2011] [EN] PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576585.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Unreal Sensei | The Unreal Masterclass (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575364.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Fxphd, Nick Nimble | Houdini Ocean Effects (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573770.jpg" />
 </div>
 
 

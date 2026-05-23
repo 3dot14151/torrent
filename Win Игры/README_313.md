@@ -1,29 +1,3 @@
-###  Публикация: 493824   (248988) от 08.05.2012
-
-Orion: Dino Beatdown [En] (RePack) 2012 | CtrlAlt
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Orion: Dino Beatdown - кооперативный экшен от первого лица, разработанный студией Spiral Game Studios. Пятеро игроков возьмут на себя роль штурмовика, медика и снайпера, а затем отправятся в места обитания хищных велоцирапторов и тиранозавров. Выжить против доисторических рептилий в Dino Beatdown помогут футуристические автоматы, штурмовые винтовки, дробовики и различная боевая техника.(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB928B70EDC89A0D3902286E5630F88223963AE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492866   (248970) от 08.05.2012
 
 Cisco Aspire (L / Beta) [En] 2011
@@ -32,7 +6,7 @@ Cisco Aspire (L / Beta) [En] 2011
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248970.jpg" />
 </div>
 
 
@@ -62,7 +36,7 @@ Garden Defense / Огородные войны. Атака жуков (P) [Ru] 2
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248941.jpg" />
 </div>
 
 
@@ -88,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248920.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ Street Fighter x Tekken [Ru/En] (RePack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248676.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ Insanely Twisted Shadow Planet [Ru] (RePack/1.0r9) 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248649.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ Beyond the Kingdom 2 / За пределами королевства 2 (2025) [
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248619.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ Fear for Sale 2: Sunnyvale Story Collectors Edition / Страх на прода
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248587.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Citizen Sleeper 2 Starward Vector (2025) [Ru/Multi] (1.2.21/dlc) Repack Let'sРl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248545.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ GRID (2019) [Ru/Multi] (1.0.122.743/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248543.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ Undertale (2015) [Ru/En] (1.08) Repack Necros
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248520.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248084.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Atlantic Journey: The Lost Brother / Атлантическое путешест
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247989.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ Malice: Two Sisters (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247938.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ The Lonesome Guild (2025) [Ru/Multi] (Build 20570031) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247909.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ Reflections of Life 14: Gone But Not Forgotten / Отражения жизни 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247905.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Digital Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247877.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/dlc) Repack Decepticon [Gold E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247811.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Morrok (2023) [Ru/Multi] (Build 11369620) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247798.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ A Light in the Dark / Yeguang (2018) [Ru/Multi] (1.2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247761.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.2.0/dlc) Repack seleZen [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247756.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.4b/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247750.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247749.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Crime Detective: Red Flags (2025) [Ru/Multi] (Build 20464442) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247745.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ Dreams of Another (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247739.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ Tin Hearts (2023) [Ru/Multi] (1.0.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247735.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ Tin Hearts – это адвенчура и по совместительств�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E893CF552F8FE0B49D4E6B0D01CC9255B0B48F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638208   (247726) от 07.06.2023
+
+Bread & Fred (2023) [Multi] (1.011) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bread & Fred - это сложный кооперативный платформер от Apogee, в котором два игрока должны сообща прыгать и карабкаться на вершину снежной горы. Играйте за Хлеба и Фреда в их изнурительном, а иногда и безумном восхождении, которое требует точности при каждом прыжке. Каждый раз, приземляясь, вы будете ближе к вершине и на шаг ближе к освоению платформера, но ваше (   Читать дальше...   )Тип издания: LicenseРазработчик: SandCastles StudioЖанр: Action, Arcade, PlatformerЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C9F9C405DCE7C75C53EF7C685DE2F69337D6BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

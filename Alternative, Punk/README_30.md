@@ -6,7 +6,7 @@ Bring Me The Horizon - 2004 - 2013 (2017) [MP3|320 Kbps] <Alt. Rock, Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287972.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ King Gizzard and the Lizard Wizard - Paper Mache Dream Balloon (2015) [OGG|493-5
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287142.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Cog is Dead - Steam Powered Stories (2010) [MP3|128 kbps]<Steampunk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285971.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Loya - Aimovoria (2016) [MP3|320 Kbps] <Alternative Metal, Post-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284894.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Merge - Ineffable (2016) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284802.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Circle Of Dust (Klayton) - Machines Of Our Disgrace (2016) [MP3|320 Kbps] <Indus
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284602.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Alter Bridge - Walk The Sky (2019) [MP3|320 Kbps] <Alternative Rock, Alternative
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284398.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Eye Empire - Moment Of Impact (2010) [MP3|320 kbps]<Alt. Metal / Hard Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282917.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Know - Niebo Sie Podarto (2015) [MP3|320 кб/с]<Nu-Metal, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280793.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Snow Patrol - Reworked (2019) [MP3|320 Kbps] <Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277517.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Deuce (ex-Hollywood Undead) - Invincible (2017) [MP3|320 Kbps] <Alternative Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276959.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Fall Out Boy - Believers Never Die (Volume Two) (2019) [MP3|320 Kbps] <Punk Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269717.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ SunSay - X (2017) [MP3|320 Kbps] <Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268773.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Story Of The Year - Wolves (2017) [MP3|320 Kbps] <Alternative Rock, Post-Hardcor
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267960.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Coldplay - Live In Buenos Aires (2018) [MP3|320 Kbps] <Alternative Rock, Indie R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266589.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Brutto - Live Minsk - Arena 08.03.2017 (2017) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265143.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Unheilig - Discography (albums 2000-2006) + Single Schutzengel (2003)
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264771.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Asking Alexandria - Asking Alexandria (2017) [MP3|320 Kbps] <Metalcore, Post-Har
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264091.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Linkin Park - One More Light Live (2017) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264078.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Sweet 75 - Sweet 75 (1997) [MP3|320 кб/с]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261120.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Disappears - Pre Language (2012) [MP3|320 кб/с]<Post-Rock, Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259267.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Linkin Park - Burn It Down (Single) (2012) [MP3|320 кб/с]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256152.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Hollywood Undead - Hotel Kalifornia (2022) Deluxe Version, 2023, BMG Rights Mana
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254715.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Florence And The Machine - Ceremonials (Deluxe Edition) (2011) [MP3|320 кб/с]
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253828.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Celldweller - Wish Upon A Blackstar (Deluxe Edition) (2012) [MP3|320 кб/с]<In
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253808.jpg" />
 </div>
 
 
@@ -766,7 +766,7 @@ John 5 - God Told Me To (2012) [MP3|320 кб/с]<Alternative Metal / Instrumenta
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253455.jpg" />
 </div>
 
 

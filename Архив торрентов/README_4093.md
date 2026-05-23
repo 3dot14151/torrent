@@ -6,7 +6,7 @@ Microsoft Office 2021 for Mac LTSC v.16.78 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174304.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ PotPlayer 221102 (1.7.21833) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174298.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cent Browser 4.3.9.226 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174279.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Windows 7 (3in1) x64 by Updated Edition (11.10.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174275.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ StartAllBack 3.5.6 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174262.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Tor Browser Bundle 10.0.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174260.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Light Image Resizer 6.0.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174248.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ WhatsApp 2.2245.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174242.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ StartAllBack 3.5.6 StartIsBack++ 2.9.17 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174239.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VMware Workstation Pro 17.0 for Linux 17.0.0 Build 20800274 [x86, amd64] (bundle
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174210.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2022.12.07 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174196.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ WinToHDD 4.8 Release 1 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174190.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Maplesoft Maple 2020.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174180.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174174.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Microsoft Visual C++ 14.28.29617 Runtimes AIO (x86-x64) Repack by @burfade [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174173.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Codepoint for Mac 1.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174172.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Youtube Downloader HD 3.3.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174154.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Amadine 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174147.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ MediaHuman YouTube Downloader 3.9.9.50 (0912) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174139.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Rocket Typist Pro 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174136.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Victoria 5.34 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174116.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Symantec Endpoint Protection 14.3 RU1 3384 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174104.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ AnyDesk 6.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174086.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ BetterTouchTool 4.212 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174081.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Agisoft Metashape Professional 1.7.0 build 11539 pre-release [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174077.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ K-Lite Codec Pack Update 17.3.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174057.jpg" />
 </div>
 
 

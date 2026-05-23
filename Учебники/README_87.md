@@ -1,135 +1,3 @@
-###  Публикация: 1639818   (211455) от 15.06.2023
-
-А.И. Слободянюк | Физика для любознательных [4 книги] (2014 - 2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие в четырёх частях для средних учебных заведений.Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443B72224C1D6F7DA69512F7541FF3F32EEB8D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586176   (211454) от 25.10.2022
-
-В.В. Подбельский | Программирование. Базовый курс С# (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-На основе последних версий языка программирования С# и платформы .NET Framework изложены основные концепции и механизмы современного программирования. Методика изложения и тщательно отобранные примеры позволяют освоить не только синтаксис и семантику языка С#, но и изучить фундаментальные принципы процедурного, объектного, объектно-ориентированного и обобщенного (   Читать дальше...   )Жанр: Языки программированияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:626972E2548AE6E305BCE803666EA281BEE5AAC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586058   (211434) от 25.10.2022
-
-Г.М. Фихтенгольц | Основы математического анализа [2 книги] (1968) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-«Основы математического анализа» задуманы как учебник анализа для студентов первого и второго курсов математических отделений университетов; в соответствии с этим и книга делится на два тома.
-При составлении был широко использован трехтомный «Курс дифференциального и интегрального исчисления», но содержащийся в нем материал подвергся сокращению и переработке в целях (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:464E76DD95285512F9844C3E433F3DDA069E2EE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640156   (211394) от 16.06.2023
-
-Е.А. Ефимова | Основы программирования на языке Visual Prolog (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-В курсе изучается логическое программирование и язык Пролог. В качестве реализации языка Пролог используется современная версия языка Visual Prolog. Предназначен для начинающих.
-Рассматриваются основные теоретические понятия логического программирования, а также приемы и методы программирования на языке Пролог. Изучаются основы программирования на языке Visual Prolog (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:324C37718253C5E740F4555D08F5712141A458F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640274   (211317) от 17.06.2023
-
-Б.Б. Буховцев и др. | Сборник задач по элементарной физике (3 издание) (1968) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник задач по физике составлен в соответствии с материалом, изложенным в "Элементарном учебнике физики" под редакцией академика Г.С. Ландсберга. Большинство задач значительно превосходит по трудности задачи, предлагаемые обычно учащимся средних школ. Все они снабжены подробными решениями. Часть задач сборника составляют переработанные задачи (   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:225D48486128C390201358022315C12F21270FBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640135   (211266) от 16.06.2023
 
 А.Э. Кузьмичёв | Программирование для Windows Phone для начинающих (2016) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211266.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211249.jpg" />
 </div>
 
 
@@ -191,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211160.jpg" />
 </div>
 
 
@@ -217,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211120.jpg" />
 </div>
 
 
@@ -244,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211099.jpg" />
 </div>
 
 
@@ -271,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211060.jpg" />
 </div>
 
 
@@ -298,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210989.jpg" />
 </div>
 
 
@@ -324,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210952.jpg" />
 </div>
 
 
@@ -350,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210850.jpg" />
 </div>
 
 
@@ -376,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210630.jpg" />
 </div>
 
 
@@ -402,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210579.jpg" />
 </div>
 
 
@@ -428,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210539.jpg" />
 </div>
 
 
@@ -454,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210439.jpg" />
 </div>
 
 
@@ -481,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210218.jpg" />
 </div>
 
 
@@ -507,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210057.jpg" />
 </div>
 
 
@@ -533,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210031.jpg" />
 </div>
 
 
@@ -559,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209941.jpg" />
 </div>
 
 
@@ -585,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209849.jpg" />
 </div>
 
 
@@ -611,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209750.jpg" />
 </div>
 
 
@@ -637,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209711.jpg" />
 </div>
 
 
@@ -664,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209704.jpg" />
 </div>
 
 
@@ -676,6 +544,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:644BF57A755E3EE2753434A98D85CBA2271C5F52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644399   (209666) от 06.07.2023
+
+И.Е. Иродов | Курс физики [5 книг] (2014 - 2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Широко известный курс общей физики из 5 томов. Предназначен для студентов физических специальностей высших учебных заведений.Жанр: ФизикаИздательство: БИНОМ. Лаборатория знанийФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFCC3F345E346B9194B9ADD453DBBBD20DCCC768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645255   (209531) от 08.07.2023
+
+Н.В. Новикова, В.О. Афонько | Электрические измерения. Лабораторный практикум (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит краткие теоретические сведения для выполнения практических и лабораторных работ по учебной дисциплине «Электрические измерения». В каждой практической и лабораторной работе приведены необходимые формулы, схемы и рисунки. Закрепить полученные знания помогут задания для самоконтроля и проверочный тест.
+Адресуется учащимся учреждений среднего (   Читать дальше...   )Жанр: МетрологияИздательство: РИПОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9A98D1CB2FF90A4FD41329EC789E31F6C8A06F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645171   (209512) от 08.07.2023
+
+О.А. Пустовая, Е.А. Пустовой | Электрические измерения (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209512.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассматривается устройство аналоговых измерительных приборов и их классификация, электронные измерительные приборы и мосты. Пособие содержит как самостоятельные, так и лабораторные задания. Пособие составлено в соответствии с учебной программой "Электрические измерения" для студентов и преподавателей инженерно-технических специальностей, (   Читать дальше...   )Жанр: МетрологияИздательство: ДальГАУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B07E2638B62F08AC01E672E83955BCCBD143148F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645456   (209347) от 09.07.2023
+
+В.А. Широков | Возведение одноэтажных промышленных зданий (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209347.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены рациональные, проверенные практикой способы возведения промышленных зданий на основе эффективных методов производства работ. Основное внимание уделено технологии и организации монтажа конструктивных элементов здания и применяемым при этом грузоподъемному оборудованию и приспособлениям, оптимизации методов производства работ, разработке (   Читать дальше...   )Жанр: СтроительствоИздательство: ДальГАУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABFCA5A830178AB8376B1E316ECE2360F4FCD852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645438   (209333) от 09.07.2023
+
+В.В. Бурчик, А.А. Кравцова | Организация, планирование и управление строительством (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание содержит расчеты, справочные и методические указания по выполнению курсовых проектов по дисциплине "Организация, планирование и управление строительством", а также соответствующие разделы выпускной квалификационной работы в соответствии с требованиями действующих нормативных документов.
+Представлен тематический план лекций, рассматриваются вопросы (   Читать дальше...   )Жанр: СтроительствоИздательство: ДальГАУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C62D8773D83539C251690B063BF92C5A39088E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (Build 20964708) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046721.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (Build 20964708) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046720.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Split Fiction (2025) [Ru/Multi] (1.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046712.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.5.0/dlc) Repack HardwareMining
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046711.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Last Case of John Morley (2025) [Ru/Multi] (Build 20987894) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046708.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Shana priestess of Tona (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay [Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046705.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MiSide (2024) [Ru/Multi] (0.93L) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046675.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Quartet (2025) [En] (1.2.20251019.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046674.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Brew (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046673.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Portal (2007) [Ru/Multi] (18647097) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046644.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Myst (2021) [Ru/Multi] (3.0.9) Repack Necros [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046639.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Disney Villains Cursed Cafe (2025) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046627.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Lost Paws (2023) [Ru/Multi] (1.0.5) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046626.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Falconeer: Revolution Remaster (2025) [Ru/Multi] (2.0.0.1/dlc) Repack FitGir
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046625.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Ayasa Shadows of Silence (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046607.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ VORON: Raven's Story (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046594.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Hunter's Moon: A Sovereign Syndicate Adventure (2025) [Ru/Multi] (1.0.43 HF3) Re
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046593.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.7.1/dlc) Repack Hardwa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046592.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/Multi] (16167732/dlc) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046575.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ ASTRONEER (2016) [Ru/Multi] (1.36.31.0/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046572.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Fran Bow (2015) [Ru/Multi] (11189293) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046556.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Riven (2024) [Ru/Multi] (1.7.5) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046555.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046520.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Bridge Constructor Studio (2025) [Ru/Multi] (1.0r11-fix) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046504.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Construction Simulator 4 (2025) [Ru/Multi] (1.0) License GOG [Pocket Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046503.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (Build 20964708) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046501.jpg" />
 </div>
 
 

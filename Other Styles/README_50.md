@@ -6,7 +6,7 @@ Hitoshi Sakimoto, Masaharu Iwata, Mitsuhiro Kaneda - Odin Sphere Original Soundt
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779125.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ludwig Goransson - Black Panther / Чёрная пантера (Original Motion 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779089.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ David Arkenstone - Parisian Lounge (2018) [MP3|320 Kbps] <New Age, Chillout, Lou
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778987.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ludwig Goransson - Чёрная пантера / Black Panther (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778944.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lyn Avenue - Never Been to Nashville (2018) EP [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778855.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hennie Bekker - Temba (1995) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778728.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Hennie Bekker - Kusasa (1999) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778721.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Hennie Bekker - The Smoke That Thunders (1997) Holborne [MP3|320 Kbps] <New Age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778720.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Hennie Bekker - Jabula (The Joyful Spirit Of Southern Africa) (1998) Avalon Musi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778712.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Giovanni - Love Me Tender (1998) Reissue, 2000, New Castle [FLAC|Lossless|image 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778710.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Kitaro - India (1983) Reissue, 1985, Geffen Records [FLAC|Lossless|image + .cue]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778691.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sally Oldfield - The Enchanted Way (2018) [MP3|320 Kbps] <Folk, Pop, Singer-Song
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778685.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Peder B. Helland - Bright Future (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778652.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Hennie Bekker - Summer Breeze (1993) Holborne [MP3|256 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778559.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Hennie Bekker - Relaxing Pachelbel (2005) Tapestries [MP3|320 Kbps] <New Age, Tr
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778551.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Hennie Bekker - Winter Reflections (1994) Holborne [MP3|256 Kbps] <New Age, Pian
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778549.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Hennie Bekker - Spring Rain (1992) Holborne [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778546.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Valefim Planet - Heart Of The Sun (2018) [MP3|320 Kbps] <Enigmatic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778520.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Francis Goya - Collection 2CD,  (2005) [FLAC|Lossless|image + .cue] <Acoustic Gu
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778474.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Medwyn Goodall - Eagle Spirit (1996) [FLAC|Lossless|tracks] <New Age, Celtic, In
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778361.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Will Brady - 3 альбома (1997-2009) [MP3|192 кб/с] <Instrumental, Blues
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778332.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778285.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Arthur Fieldler & The Boston Pops - Pop Concert Favorites (1992) [FLAC|Lossless|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778166.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Guy Sweens - The Best of Guy Sweens (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778148.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778069.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Salvador Candel - Armonia (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777975.jpg" />
 </div>
 
 

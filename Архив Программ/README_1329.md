@@ -6,7 +6,7 @@ KMS Tools Portable 18.10.2018 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362884.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hee-SoftPack v3.3.2 Light (Обновления на 17.11.2012) [Русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_362880.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Ashampoo UnInstaller 5.02 + Portable by Valx [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_362873.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ YouTube By Click Premium 2.2.141 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362857.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ MediaHuman YouTube Downloader 3.9.9.47 (1710) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362838.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ PicPick 5.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362836.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ R-Drive Image 6.3 Build 6307 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362835.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Aiseesoft Video Converter Ultimate 9.0.8 Portable by poni-koni [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362752.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ PowerISO 6.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362744.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ YouTube By Click Premium 2.2.141 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362738.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ R-Drive Image 6.3 Build 6307 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362734.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ ClipGrab 3.8.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362731.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ onOne Perfect Photo Suite 7.0.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_362701.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ PowerISO 7.0 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362690.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Foxit Reader 9.7.0.29455 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362656.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ UltraISO Premium Edition 9.7.2.3561 DC 30.09.2019 RePack (& Portable) by KpoJIuK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362645.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Foxit PhantomPDF Business 7.2.2.929 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362614.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ JetBrains CLion 1.1.1 Build #CL-141.2614 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362607.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ IsMyLcdOK 4.22 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362591.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Unreal Commander 3.57 Build 1490 + GraphXPack + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362590.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Adobe Flash Player 27.00.183 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362571.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ AVG AntiVirus 2016 16.0.7226 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362484.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Foxit Reader 7.2.5.930 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362481.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ WinToHDD 4.5 Technician/Enterprise/Professional/Free RePack (& Portable) by Doda
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362470.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Topaz DeNoise AI 2.3.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362458.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ NVIDIA GeForce Desktop 388.00 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362445.jpg" />
 </div>
 
 

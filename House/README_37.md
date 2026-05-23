@@ -6,7 +6,7 @@ VA - A House Is Not A Home Without A Dog #01 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634367.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Macarize:01 (04.04.2012) [MP3|320 кб/с]<Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633884.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ VA - Deep House Ibiza - Vol 1 (2015) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633864.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - Boys & Girls Want to Workout (2017) [MP3|320 Kbps] <Electronic, Dance, Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633393.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Summer 2017 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633379.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Solid Stone - Introspection (2016) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632517.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Benny Benassi - Danceaholic (2016) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632368.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Live In Montreal (Finale) (Mixed by John Digweed) (2016) [MP3|320 Kbps] <De
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630593.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Live In Montreal (Mixed by John Digweed) (2016) [MP3|320 Kbps] <Downtempo, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630592.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Summer Swagging Vol.3 (Ibiza Electronic Tunes) (2017) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629657.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Paris Fashion Beats Vol.1 (Finest Electronic Style Beats Collection) (2017)
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629654.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Dance Therapy, Vol. 1 (These Bangers Push You To The Limit) (2017) [MP3|320
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628902.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Clinique Sampler (Part 94) (2017) [MP3|320 Kbps] <House,Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627907.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Classic Progressive House Vol. 1 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627747.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Ibiza Anthems (2016) [MP3|320 Kbps] <House, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626660.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ VA - SoLee Pres: 10 Years Parquet Rec (2016) [MP3|320 Kbps] <Tech House, Progres
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626659.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - Visceral 050 (2017) [MP3|320 Kbps] <Progressive House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625921.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - Asian House Music (2019) [MP3|320 Kbps] <House, Deep House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624111.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - Palma De Disco (Balearic Beats Deluxe) (2015) [MP3|320 кб/с]<Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624078.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Deep House For Your Body and Soul Vol 2 (2015) [MP3|320 кб/с]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624067.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - Deutsche DJ Charts Vol.21 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623914.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Melodic Progressive House Vol. 06 (2016) [MP3|320 Kbps] <House, Melodic Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622748.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - Pete Tong & Felix Da Housecat - All Gone Ibiza 11 (2011) /AGPT01D2/ [MP3|32
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_621873.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ VA - Ibiza Night Affairs The Very Best Of Chill House (2015) [MP3|320 кб/с]<D
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621565.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ VA - Urban House: Deep House Elements For Urban People (06-July-2012) [MP3|320 �
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621151.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ Chicane - The Place You Can't Remember, The Place You Can't Forget (2018) [MP3|3
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620892.jpg" />
 </div>
 
 

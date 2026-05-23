@@ -6,7 +6,7 @@ Grim Dawn (2016) [Ru/Multi] (1.0.1.1/dlc) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612452.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Forgotten Realms: The Archives - Collection Two (1988-1993) [En] (1.0/1.3/1.2/1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612060.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Medieval Dynasty (2021) [Ru/Multi] (1.3.0.5) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609157.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bastion [Ru/En] (RePack/1.0r21) 2011 l Audioslave
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608955.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Bastion [Ru/En/Multi6] (RePack/1.0r21) 2011 l R.G.Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607073.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Ghost of a Tale (2018) [Ru/Multi] (8.33) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606001.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Xanadu Next (2016) [En] (24.11.2016) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605400.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Bastion [Ru] (RePack/1.0r21) 2011 l Fenixx
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605032.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Shadowrun: Dragonfall (2015) [Ru/Multi] (2.09) Repack xGhost [Director's Cut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604594.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sudeki (2005) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604179.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Bard's Tale (2004) [Ru/Multi] (2.7.2.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603624.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Grimshade (2019) [Ru/En] (1.1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603027.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ For The King (2018) [Ru/Multi] (1.0.10.9949) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603024.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Serpent Rogue (2022) [Ru/Multi] (0.0.160) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602753.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602323.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Fall of Light (2017) [Ru/Multi] (1.50c) Repack Other s [Darkest Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601537.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Witches, Heroes and Magic (2015) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600783.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Waylanders (2022) [Ru/Multi] (1.10) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600711.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Fall of Light (2017) [Ru/Multi] (1.50c) License PLAZA [Darkest Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600671.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ SUPER DRAGON BALL HEROES WORLD MISSION (2019) [Ru/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597408.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Drakkhen (1989) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594754.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (1.0.2) License FAIRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594465.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Fallout of Nevada (2015) [Ru] (1.0/upd2) Repack ak97nsk
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588020.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Immortal: Unchained (2018) [Ru/Multi] (1.15/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587816.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586904.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Goliath (2016) [Ru/Multi] (1.0.6-GLU/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586090.jpg" />
 </div>
 
 

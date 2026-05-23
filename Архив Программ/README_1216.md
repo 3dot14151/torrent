@@ -6,7 +6,7 @@ Google Chrome 46.0.2490.71 Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427245.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 46.0.2490.71 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427240.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wise Plugin Manager 1.28.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427238.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WinNc 9.5.0.0 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427236.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ GOM Player Plus 2.3.57.5321 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427233.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ JetBrains Rider 2022.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427209.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VMware Workstation 16 Pro 16.2.4 Build 20089737 (24.08 2022) RePack by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427203.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Windows Privacy Dashboard (WPD) 1.3.1203 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427176.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ W10Privacy 3.3.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427172.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Wise Folder Hider Free 3.24.134 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427157.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ USDownloader 1.3.5.9 (12.10.2015) Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427144.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Everything 1.4.0.705 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427143.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Bandicam 4.6.4.1728 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427136.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ IObit Driver Booster Pro 8.0.2.189 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427135.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Glary Utilities Pro 5.36.0.56 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427080.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Punto Switcher 4.1.4 Build 568 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427078.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Process Lasso Pro 8.8.8.2 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427074.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Media Player Codec Pack 4.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427059.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ NetworkTrafficView 2.00 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427056.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ WebBrowserPassView 1.68 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427050.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ uTorrent 3.5.5 Build 45341 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427049.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Registry Backup 3.3.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427048.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ CCleaner 5.72.7994 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427006.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Internet Download Manager 6.31 Build 7 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426989.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Adobe Flash Player 19.0.0.207 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426937.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ IObit Driver Booster Pro 3.0.3.261 Portable by punsh [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426935.jpg" />
 </div>
 
 

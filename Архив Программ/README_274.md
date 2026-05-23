@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921902.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CCleaner 5.84.9126 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921898.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera 67.0.3575.79 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921879.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SamDrivers 20.2 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921877.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ WinTools.net Premium 20.3.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921869.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ My Spy 002 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921864.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ AutoPlay Media Studio Portable 8.0.3.0 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921831.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ AutoScreenRecorder Pro 3.1.361 [eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921815.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Recuva 1.53.1087 Free | Professional RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921782.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Phase One Capture One Pro 21 14.3.1.14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921776.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Simple Port Forwarding Pro 3.0.16 [Multi (включая русский)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921758.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Web Page Maker 3.21 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921707.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Reg Organizer 8.76 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921628.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Ummy Video Downloader 1.10.10.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921609.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Adobe Photoshop Lightroom Classic 10.4.0.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921588.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ AKVIS NatureArt 2.0.944 Multilingual for Adobe Photoshop  Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921560.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Adobe After Effects 2021 18.4.1.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921552.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ AKVIS Sketch v12.0.2207  ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921540.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ xSpider 7.7 Build 3.100 by AndreX / Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921522.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Hard Disk Sentinel Pro 5.61 Build 11463 Final RePack (& Portable) by KpoJIuK [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921520.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ SamDrivers 20.2 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921498.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ ABBYY FineReader 15.0.112.2130 Corporate RePack (& Portable) by TryRooM (12.03.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921411.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ S-Soft Program Pack v.7.00 v.7.00 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921358.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Mozilla Firefox 45.0 beta 7 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921015.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Stellarium 0.90.0.9115 TEST [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920871.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Privacy Eraser Free 5.14.2 Build 3978 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920865.jpg" />
 </div>
 
 

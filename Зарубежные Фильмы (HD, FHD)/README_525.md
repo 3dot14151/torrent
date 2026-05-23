@@ -1,55 +1,3 @@
-###  Публикация: 1237197   (551288) от 24.07.2018
-
-Талли / Tully (2018) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Что подарить многодетной матери на рождение третьего ребенка? Тонну памперсов, беруши или блок релаксантов? А что, если подарить ей… няньку? Если мамаше удастся немного потерпеть причуды подарочной няньки, она поймет, какое счастье привалило и ей, и детям! Если, конечно, удастся.Производство: США / Bron Studios, Right Way Productions, Denver and Delilah ProductionsЖанр: Драма, комедияРежиссер: Джейсон РейтменАктеры: Маккензи Дэвис, Шарлиз Терон, Марк Дюпласс, Рон Ливингстон, Эмили Хейн, Илэйн Тан, Кристал Лоннеберг, Эльфина Люк, Марселин Хьюго, Майкл Патрик ЛэйнПеревод: Дублированный (iTunes)Субтитры: Русские (Full), английские (Full)Продолжительность: 01:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CED19B75ED6C79DF2A35591AA9D2675CB72050A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046765   (550892) от 28.08.2016
-
-Река / River (2015) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Американец Джон работает врачом в Лаосе. Однажды, изрядно подвыпив, он вступается за местную девушку и случайно убивает иностранца. Джон паникует, не знает, что делать, и пускается в бега.Производство: Канада, Лаос / Redlab Digital & Living FilmsЖанр: ТриллерРежиссер: Джэми М. ДаггАктеры: Россиф Сазерленд, Даунгмани Солифанх, Сара Ботсфорд, Тед Атертон, Девид Сонсин, Эйдан Джиллетт, Яннавоути Чанталунгси, Карен Глэйв, Витхая Пансрингарм, Амфаифун ФоммапуньяПеревод: Одноголосый закадровый (Хихикающий Доктор)Язык субтитров: Русский (полные), Английский (форсированные)Продолжительность: 01:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9F4DBFB9622229FAAA5D3F97F3C05EEB631538B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 692721   (550872) от 24.08.2013
 
 Очень паранормальное кино / Paranormal Whacktivity (2012) WEB-DL [H.264/720p-LQ] [Line]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550872.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550863.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550787.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550785.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550742.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550739.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550727.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550721.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550712.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550710.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550704.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550702.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550289.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550083.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550001.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550000.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549999.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549988.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549962.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549915.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549876.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549871.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549852.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549849.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:337713A10AE86A1717F64C5565A6AD0FC5486805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047311   (549840) от 29.08.2016
+
+Равные / Equals (2015) BDRemux [H.264/1080p] [US Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм «Равные» рассказывает историю Сайласа, который живет в будущем, в обществе, названном «Коллектив». Жители этого современного мира — новое поколение людей, называемое «Равными». Равные — это мирные, спокойные, вежливые и справедливые люди, и жизнь в «Коллективе» идеальна. В нем не существует ни бедности, ни жадности, ни насилия, ни эмоций… Но над обществом нависает (   Читать дальше...   )Производство: США / Freedom Media, Infinite Frameworks Studios, Route One FilmsЖанр: фантастика, драма, мелодрамаРежиссер: Дрейк ДоримусАктеры: Николас Холт, Кристен Стюарт, Гай Пирс, Джеки Уивер, Тоби Хасс, Дэвид Селби, Кейт Лин Шейл, Ребекка Хэзлвуд, Тео Ю, Аврора ПериньоПеревод: Дублированный (Лицензия)Язык субтитров: Русский, английскийПродолжительность: 01:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8F8ABB24970C271C4917C7312620B29107FC5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047461   (549836) от 29.08.2016
+
+Черепашки-ниндзя 2 / Teenage Mutant Ninja Turtles 2 (2016) WEB-DL [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгое время черепашки-ниндзя скрывались от людей в лабиринтах городской канализации. На протяжении нескольких лет учитель Сплинтер обучал их боевым искусствам и прививал им чувство справедливости. В один прекрасный момент им пришлось подняться наверх, чтобы спасти Нью-Йорк от Шредера, предводителя Клана Футов, захватившего власть в Нью-Йорке. Вместе с отважным репортером (   Читать дальше...   )Производство: США, Гонконг, Китай, Канада, Gama Entertainment Partners, Nickelodeon Movies, Paramount PicturesЖанр: Фантастика, Боевик, Фэнтези, ПриключенияРежиссер: Дэйв ГринАктеры: Меган Фокс, Уилл Арнетт, Уильям Фихтнер, Стивен Эмелл, Лора Линни, Брайан Ти, Тайлер Перри, Алессандра Амбросио, Джереми Ховард, Пит Плошек, Ноэль Фишер, Алан Ритчсон, Дэнни Вудберн, Антуанетта НикпрелажПеревод: Дублированный (iTunes)Язык субтитров: Русский (Forced), Русский (Full)Продолжительность: 01:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F992D019379F11D547A6C753001DA947BE94B55
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,56 +1,3 @@
-###  Публикация: 1254397   (347352) от 25.10.2018
-
-Город-бомба / Bomb City (2017) BDRip [H.264/720p] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Криминальная драма о культурной неприязни по отношению к группе панков в консервативном Техасе. Чем дальше заходит их борьба с ненавистью, тем сильнее она превращается в парад насилия и жестокости, тем самым ставя под вопрос моральные устои, на которых стоит американское правосудие.
-Фильм основан на реальных событиях.Производство: США / 3rd Identity FilmsЖанр: Боевик, Триллер, Драма, КомедияРежиссер: Джэми БруксАктеры: Дэйв Дэвис, Гленн Моршауэр, Логан Хаффман, Лорелей Линклейтер, Эдди Хэсселл, Доминик Райан Гэбриел, Люк Шелтон, Мэймэй Ренфроу, Майк СэйтцПеревод: Авторский одноголосый (М. Яроцкий) без цензурыСубтитры: Русские (Forced), Английские (Full, SDH)Продолжительность: 01:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF07ADC943AA2B08AB8573C9B364ABAB133FF8FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 723539   (347347) от 21.11.2013
-
-Имоджен / Girl Most Likely (2012) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Это история успешной нью-йоркской писательницы, которая изображает попытку самоубийства для того, чтобы вернуть экс-бойфренда.Производство: США | Maven Pictures, Anonymous Content, Ambush EntertainmentЖанр: КомедияРежиссер: Шари Спрингер Берман, Роберт ПульчиниАктеры: Кристен Уиг, Аннетт Бенинг, Мэтт Диллон, Даррен Крисс, Кристофер Фицджералд, Джун Рафаэль, Наташа Лионн, Боб Бэлабан, Сидни Лукас, Джимми Палумбо ...Перевод: Многоголосый закадровый, профессиональный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192D159E3DEEA7AA97142BA9EEEAF91FA14EAE59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 724210   (347340) от 21.11.2013
 
 Орудия смерти: Город костей / The Mortal Instruments: City of Bones (2013) HDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347340.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347339.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347333.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347329.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347328.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347307.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347304.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347302.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347297.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347276.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347256.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347246.jpg" />
 </div>
 
 
@@ -375,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347180.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347039.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347038.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347030.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347026.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347021.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347009.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346875.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346869.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346795.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346762.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346757.jpg" />
 </div>
 
 
@@ -672,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E7A289F2FBC751D036A3609E652BBC899136A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 838599   (346731) от 07.11.2014
+
+Шпионские игры / Spy Game (2001) BDRip [H.264/720p-LQ] [Hi10P]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Натан Мьюир - специальный агент ЦРУ, ветеран разведки. В свой последний рабочий день перед уходом на пенсию он узнает, что его протеже, талантливый оперативник Том Бишоп, находится в китайской тюрьме, и ему грозит смертная казнь. Профессионалу экстра-класса Мьюиру потребовалось совсем немного времени, чтобы понять, что Бишопа отдадут «на заклание» властям Китая. (   Читать дальше...   )Жанр: Боевик, Триллер, КриминалРежиссер: Тони СкоттАктеры: Роберт Редфорд, Брэд Питт, Катрин МакКормак, Стивен Диллэйн, Ларри Бриггман, Марианн Жан-Баптист, Мэттью Марш, Тодд Бойс, Майкл Пол Чан, Гаррик Хэгон, Andrew Grainger, Билл Бюэлл, Колин Стинтон, Тед Мэйнард, Tom Hodgkins, Руфус Райт, Деметри Горицас, Куинн Коллинз, Sam Scudder, Ян Джонсон, Пэт МакГратПеревод: Дублированный, Многоголосый, Двухголосый, Авторский x2Язык субтитров: Русский x2, Английский x3Продолжительность: 02:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCAFDAC72EF5F8761AE632AA413D3B747529230A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179538   (346695) от 01.11.2017
+
+Венецианские львы / Leoni (2015) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гуальтьеро, богатый «папенькин сынок», не унаследовал «предпринимательского гена» и из-за финансового кризиса стал банкротом, растратив все состояние семьи. Теперь ему придется идти на самые невероятные уловки, чтобы сохранить прежний роскошный уровень жизни. Почему бы не устроиться на работу? Гуальтьеро приходит в голову наладить производство первых в мире распятий (   Читать дальше...   )Производство: Италия, CSC ProductionЖанр: КомедияРежиссер: Пьетро ПаролинАктеры: Нери Маркоре, Стефано Пеше, Витторио Босколо, Алекс Сендрон, Анна Далтон, Пьера Дельи Эспости, Эудженио КрауссПеревод: Многоголосый закадровый, профессиональный (Eurochannel)Субтитры: отсутствуют.Продолжительность: 01:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39F3F08D4453D8A092CEF860F9872ECA3B599FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

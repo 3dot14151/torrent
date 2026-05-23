@@ -6,7 +6,7 @@ Disk Pulse Ultimate 9.3.16 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897239.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SiSoftware Sandra Personal / Business / Engineer 2016.03.22.20 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896739.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bitsum CPUBalance Pro 1.0.0.90 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896539.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Paragon Linux File Systems for Windows 5.2.1146 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890137.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Paragon Hard Disk Manager 15 Suite 10.1.25.813 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888996.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Raxco PerfectDisk Professional Business / Server 14.0 Build 895 [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879754.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ HDD Guardian 0.7.1 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861787.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ SSDkeeper Professional 1.0.0.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861785.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ UltraDefrag 7.0.1 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855121.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ MemTest86 9.3 Build 1000 Pro [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839341.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Paragon ExtFS for Windows 2.1.440 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839302.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Raxco PerfectDisk Professional Business / Server 14.0 Build 900 RePack by KpoJIu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831550.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ EVGA Precision X 5.3.11 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824783.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ PassMark PerformanceTest 10.1 Build 1007 RePack (& Portable) by elchupacabra [En
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817361.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ SetFSB 2.3 Build 173.133 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816726.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Paragon Hard Disk Manager Advanced 17.20.9 RePack by elchupacabra [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795283.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ USB Low-Level Format 5.01 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792559.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ USB Low-Level Format 5.01 RePack by AlexYar Portable [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791242.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ UltimateDefrag 5.0.16.0 RePack by elchupacabra [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786038.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Abelssoft SSD Fresh Plus 2018 7.3 RePack by Susel [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780318.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ LeoMoon CPU-V 2.0.4 Portable [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771363.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ ESET SysInspector 1.4.2.0 Portable [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769711.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Futuremark 3DMark Developer Edition 2.7.6296 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754837.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ SSD Tweaker Pro 4.0.1 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744584.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Gtopala SIW (System Information for Windows) 2018 8.1.0227 Enterprise RePack (& 
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740571.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Paragon Migrate OS to SSD 4.0 + WinPE Recovery Media Builder (x64) [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725450.jpg" />
 </div>
 
 

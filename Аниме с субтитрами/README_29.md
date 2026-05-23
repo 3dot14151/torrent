@@ -6,7 +6,7 @@ Haha o Tazunete Sanzenri | 3000 Leagues In Search of Mother | 3000 лиг в п�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882293.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Zombie Land Saga Revenge | Зомбиленд. Сага: Месть [2021, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_880615.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Daishizen no Majuu Bagi | Bagi, the Monster of Mighty Nature | Баги, мон�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880336.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Daishizen no Majuu Bagi | Bagi, the Monster of Mighty Nature | Баги, мон�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880335.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Koukaku Kidoutai: Shin Gekijouban | Ghost in the Shell New Movie  | Призра
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880272.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Chihayafuru 3 | Игра Тихайи (ТВ-3) [2019, TV, 24 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879769.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Haikyuu!! To the Top | Волейбол [ТВ-4, часть I ] [2020, TV, 13 и
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879749.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Hitsugi no Chaika / Chaika the Coffin Princess / Чайка и гроб [2014, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879004.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Kaze o Mita Shonen / The Boy Who Saw the Wind / Парящий на ветру [
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878750.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Mizuiro / The Color of Water / Цвет воды [2003, OVA, 2 из 2] DVDRip 48
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878027.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Shadow Skill - Movie / Искусство тени OVA-2 [1996, OVA, 3 ep.] DVDR
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877738.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Shadow Skill - Epilogue / Искусство тени OVA-1 [1995, OVA, 1 ep.] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877502.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Shadow Skill - Eigi / Искусство тени [1998, TV, 26 ep.] DVDRip raw 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877138.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 эп. + 13 SP] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_876972.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Nekomonogatari (Kuro) | История кошки (чёрная глава) [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876778.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Future War 198X Nen | Future War Year 198X | Будущая война 198x-го
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875239.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Jigoku Sensei Nube / Hell Teacher Nube / Адский учитель Нубэ [1
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874235.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Munou na Nana | Talentless Nana | Бездарная Нана [2020, TV, 13 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872858.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Kuragehime / Princess Jellyfish / Принцесса-медуза [2010, 11 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872647.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Sousei Kishi Gaiarth / Genesis Survivor Gaiarth / Гайярт происхож�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870879.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870827.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870818.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ D4DJ First Mix | Первый микс [2020, TV, 13 из 13] BDRip 1080p 10-bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869790.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Tantei wa Mou, Shindeiru. / The Detective Is Already Dead / Детектив у�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869224.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Ore, Tsushima | Я — Цусима [2021, TV, 12 эп.] WebRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869218.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Tokyo Revengers | Токийские мстители [2021, TV, 24 + SP] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869213.jpg" />
 </div>
 
 

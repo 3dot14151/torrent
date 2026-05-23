@@ -1,29 +1,3 @@
-###  Публикация: 1849420   (1053796) от 23.01.2026
-
-Philip M. Peek, Kwesi Yankah | African Folklore. An Encyclopedia (2004) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Written by an international team of experts, this is the first work of its kind to offer comprehensive coverage of folklore throughout the African continent. Over 300 entries provide in-depth examinations of individual African countries, ethnic groups, religious practices, artistic genres, and numerous other concepts related to folklore. Featuring original field (   Читать дальше...   )Жанр: Энциклопедии, История, Мифология, ФольклорЯзык: АнглийскийИздательство: RoutledgeФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54696353725CDC91CD8F8EABB496483FF29D8037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849376   (1053793) от 23.01.2026
 
 Lilia Fernández | 50 Events That Shaped Latino History. An Encyclopedia of the American Mosaic (2018) [PDF] [EN]
@@ -32,7 +6,7 @@ Lilia Fernández | 50 Events That Shaped Latino History. An Encyclopedia of the 
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053793.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ BradyGames | Capcom 30th Anniversary Character Encyclopedia (2013) [PDF] [EN]
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053792.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ Jay H. Lehr, Jack Keeley | Alternative Energy and Shale Gas Encyclopedia (2016) 
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053791.jpg" />
 </div>
 
 
@@ -116,7 +90,7 @@ Mathew Klickstein | The Little Encyclopedia of Jewish Culture/ 101 People, Place
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053777.jpg" />
 </div>
 
 
@@ -144,7 +118,7 @@ I. McNeil | An Encyclopedia of the History of Technology (2002) [PDF] [EN]
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053776.jpg" />
 </div>
 
 
@@ -170,7 +144,7 @@ William Schweiker, Maria Antonaccio, Elizabeth Bucar | Encyclopedia of Religious
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053775.jpg" />
 </div>
 
 
@@ -196,7 +170,7 @@ Lucy Morrison, Staci L. Stone | A Mary Shelley Encyclopedia (2003) [PDF] [EN]
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053773.jpg" />
 </div>
 
 
@@ -224,7 +198,7 @@ Pam J. Crabtree, Peter I. Bogucki | Ancient Europe. 8000 B.C. to A.D. 1000. An E
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053772.jpg" />
 </div>
 
 
@@ -250,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053771.jpg" />
 </div>
 
 
@@ -276,7 +250,7 @@ Mac Fulfer | Amazing Face Reading. An Illustrated Encyclopedia for Reading Faces
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053770.jpg" />
 </div>
 
 
@@ -302,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053621.jpg" />
 </div>
 
 
@@ -328,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053589.jpg" />
 </div>
 
 
@@ -356,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053551.jpg" />
 </div>
 
 
@@ -382,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053550.jpg" />
 </div>
 
 
@@ -408,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053549.jpg" />
 </div>
 
 
@@ -434,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053548.jpg" />
 </div>
 
 
@@ -460,7 +434,7 @@ Donald Rizzo, Elisa Ratliff | Fundamentals of Anatomy and Physiology. 5th Editio
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053543.jpg" />
 </div>
 
 
@@ -486,7 +460,7 @@ Stephanie Ryan, Michelle McNicholas, Stephen J. Eustace | Anatomy for Diagnostic
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053542.jpg" />
 </div>
 
 
@@ -514,7 +488,7 @@ Karen Bescherer Metheny, Mary C. Beaudry | Archaeology of Food. An Encyclopedia 
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053516.jpg" />
 </div>
 
 
@@ -542,7 +516,7 @@ Paul Malmassari | Armoured Trains. An Illustrated Encyclopedia 1825-2016 (2016) 
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053512.jpg" />
 </div>
 
 
@@ -568,7 +542,7 @@ William R. Leben, Brett Kessler, Keith Denning | English Vocabulary Elements. A 
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053455.jpg" />
 </div>
 
 
@@ -594,7 +568,7 @@ Talia Swinton | English Vocabulary Mega Quiz Book. 5001 Solved Examples on Words
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053454.jpg" />
 </div>
 
 
@@ -620,7 +594,7 @@ Dan Piestun, Felecia Killings и др. | Basic Electrical And Electronics Engine
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053441.jpg" />
 </div>
 
 
@@ -649,7 +623,7 @@ Brandon Smith | Illustrated Dictionary of Computer Science. 3Ed Edition (2024) [
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053440.jpg" />
 </div>
 
 
@@ -675,7 +649,7 @@ Canan Cengiz | Illustrated Dictionary of Science. 3rd Edition (2024) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053430.jpg" />
 </div>
 
 
@@ -689,6 +663,32 @@ License. A Wide variety of references are listed. Reasonable efforts have been( 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3940E6B93CF8708DCBE4675052963ECCD9E98B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848821   (1053341) от 20.01.2026
+
+Зинаида Бичанина, Денис Креленко | Первая мировая война. Хроника войны в картах, событиях, фактах. Большой иллюстрированный атлас (2019) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053341.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Первая мировая война. Большой иллюстрированный атлас» – это систематизированное собрание цветных карт о военных действиях и сражениях мировой истории, потрясших мир в начале ХХ в. Сопроводительные тексты помогут сориентироваться в ходе событий, особенностях положения на различных фронтах, вооружении, расстановке сил. Более 500 иллюстраций дополняют карты и текст, (   Читать дальше...   )Жанр: История, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0E0DAC3FEBEA032C83D0AF513C93C10E88550B
 ```
 
 https://mybot314.ru/tekegram_catalog/

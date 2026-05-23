@@ -1,137 +1,3 @@
-###  Публикация: 1726399   (108770) от 28.05.2024
-
-Alex Forero | ESL Conversation Lessons (2016) [EPUB] [EN]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-This book contains not only questions but also activities including, role-plays, board games, discussions and much more designed to get your students speaking effortlessly. Lessons are best suited to lower intermediate to advance level learners. Features:
-Instant lessons. Print and go type lessons inside.
-Easy to follow lessons.
-Online access- FREE Downloadable worksheets (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CreateSpace Independent Publishing PlatformФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940E9536FAA056F260E75F1E5E103DD034DF2C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726359   (108765) от 28.05.2024
-
-John Hughes | ETpedia: 1,000 Ideas for English Language Teachers (2017) [PDF] [EN]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-ETpedia is an essential resource for those who teach English as a second or foreign language. It provides novice teachers and those who are in the early years of their careers with 1,000 creative tips, techniques, questions, thoughts and ideas on common teaching and classroom issues.
-Each section covers a different aspect of teaching and offers a selection of 10 (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Pavilion PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C036D1F5055520696401D55BC33976D21B59BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726340   (108762) от 28.05.2024
-
-Andrew William | ESL Classroom Games: 180 Educational Games and Activities for Teaching ESL/EFL Students (2017) [PDF] [EN]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-The book features a wide variety of reading, writing, speaking and listening games and activities which are suitable for teen and adult learners alike. With focus on warm-up, repetition and drilling, team-based, spelling and grammar, speaking and pronunciation, memory and concentration, turn-based and one-on-one games. It's broken down into games for beginner, intermediate (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CreateSpace Independent Publishing PlatformФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5997703CF08B402DED99BA614728EE10A4947FB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732160   (107572) от 23.06.2024
-
-И.И. Привалов | Интегральные уравнения (1935) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга представляет собой систематический курс теории интегральных уравнений, в котором особое внимание уделено теории и подробно развиты применения к краевым задачам математической физики. Этот курс будет полезным руководством для физико-метематических факультетов университетов, а также полезным пособием для лиц смежных специальностей, желающих познакомиться (   Читать дальше...   )Жанр: МатематикаИздательство: Объединённое научно-техническое издательство НКТП СССРФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D172A7222026C2803BF2968A0FEA8F430D8EB575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732140   (107568) от 23.06.2024
-
-К. Поссе, И. Привалов | Курс интегрального исчисления (1939) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В настоящем издании мною произведена коренная переработка курса интегрального исчисления проф. К. Поссе. Эта книга содержит полный курс интегрального исчисления и включает в объеме, необходимом для втузов, разделы диференциальных уравнений и рядов Фурье. В изложение всего материала книги я внес существенные изменения, причем значительная часть текста написана мною (   Читать дальше...   )Жанр: МатематикаИздательство: ГостехиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E72557700981B153A42D8F0EDB9FCC2DC6A1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732106   (107567) от 23.06.2024
 
 К. Поссе | Курс дифференциального исчисления (1935) [DJVU]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107567.jpg" />
 </div>
 
 
@@ -167,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106870.jpg" />
 </div>
 
 
@@ -193,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106652.jpg" />
 </div>
 
 
@@ -220,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106444.jpg" />
 </div>
 
 
@@ -246,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106231.jpg" />
 </div>
 
 
@@ -272,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106118.jpg" />
 </div>
 
 
@@ -298,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106049.jpg" />
 </div>
 
 
@@ -325,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105874.jpg" />
 </div>
 
 
@@ -351,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105867.jpg" />
 </div>
 
 
@@ -377,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105861.jpg" />
 </div>
 
 
@@ -403,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105807.jpg" />
 </div>
 
 
@@ -429,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105783.jpg" />
 </div>
 
 
@@ -455,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105660.jpg" />
 </div>
 
 
@@ -481,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105187.jpg" />
 </div>
 
 
@@ -507,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105151.jpg" />
 </div>
 
 
@@ -533,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105141.jpg" />
 </div>
 
 
@@ -560,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105138.jpg" />
 </div>
 
 
@@ -586,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105135.jpg" />
 </div>
 
 
@@ -612,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105133.jpg" />
 </div>
 
 
@@ -638,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105103.jpg" />
 </div>
 
 
@@ -664,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104678.jpg" />
 </div>
 
 
@@ -676,6 +542,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FEF5EE548C4112850B32CA87E7F9D7C0D288C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752109   (104008) от 28.09.2024
+
+А.С. Литвак | Программированное обучение в судебной медицине (1970) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104008.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном учебном пособии освещены основные разделы судебной медицины с использованием элементов программирования в виде информации, контроля и самоконтроля. Подобное пособие нацелено на оптимизацию учебного процесса. Оно обеспечивает изучение основ теории и практики судебной медицины и может оказать существенную помощь преподавателям и студентам. Допущено Главным (   Читать дальше...   )Жанр: Судебная медицина, учебная литератураИздательство: Москва: МедицинаФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD04177C2C9B39BEC93D111530F6BAB2E87681F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822798   (101583) от 08.10.2025
+
+РИКЗ | Централизованный экзамен. Централизованное тестирование. Английский язык. Сборник тестов (2025) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник тестов содержит экзаменационные (тестовые) задания по английскому языку, предложенные участникам централизованного экзамена и централизованного тестирования в 2025 году. Ко всем заданиям даны ответы. В издании также приведены образцы бланка ответов, использование которых поможет приобрести навыки заполнения бланка и избежать технических ошибок при оформлении (   Читать дальше...   )Жанр: Учебная литератураИздательство: «Образование и воспитание» УО «Республиканский институт контроля знаний»Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3EC11E35074F04C6B5C1B503906206583050BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822626   (100934) от 07.10.2025
+
+Т.Л. Миронова | Церковнославянский язык (2010) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник Т. Л. Мироновой сформировался на основе многолетнего опыта преподавания церковнославянского языка в Православном Свято-Тихоновском Гуманитарном университете и на Учебных курсах Отдела религиозного образования и катехизации Русской Православной Церкви. Он содержит грамматику церковнославянского языка, упражнения и контрольные работы по каждой теме, словарь (   Читать дальше...   )Жанр: Учебное пособие, лингвистика, самоучитель, изучение церковнославянского языкаИздательство: Издательство Московской патриархииФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE5BA1E5CC7A7C9C4A2817470436D58379D2930E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822622   (100930) от 07.10.2025
+
+Иеромонах Андрей (Эрастов) | Грамматика церковнославянского языка. Конспект. Упражнения. Словарь (2007) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий конспект составлен иеромонахом Андреем (Эрастовым) и используется в качестве учебника на уроках церковнославянского языка в Свято-Троицкой семинарии (США). Главной задачей при составлении этого конспекта, основанного на фундаментальной грамматике иеромонаха (ныне архиепископа) Алипия (Гамановича), было изложить грамматический материал насколько возможно (   Читать дальше...   )Жанр: Учебное пособие, лингвистика, самоучитель, изучение церковнославянского языкаИздательство: БиблиополисФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:805FAD7F77174C9F39A4E4091673760241E7AA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822625   (100907) от 07.10.2025
+
+А.Г. Воробьева | Учебник церковнославянского языка (2008) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник предназначается для студентов православных высших и средних духовных учебных заведений, в том числе для заочников, а также может служить удобным пособием всем желающим изучать церковнославянский язык самостоятельно.
+Среди учебных текстов — утренние и вечерние молитвы, псалмы, входящие в состав церковных служб, полностью Евангелие от Матфея, канон и акафист (   Читать дальше...   )Жанр: Учебное пособие, лингвистика, самоучитель, изучение церковнославянского языкаИздательство: Православный Свято-Тихоновский гуманитарный университетФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B62488F1A637FC971E9E7D463E772D1E68C0B275
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Conclusion (2016) [Ru/En] (1.0.2) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557490.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mortyr: Dilogy / Мортир: Дилогия (1999-2004) [Ru/En] (1.0/1.352) Li
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557269.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ POSTAL: Brain Damaged (2022) [Multi] (1.0 Build 8904334) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556854.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SUPERHOT (2016) [Ru/Multi] (13.07.18) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556483.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Signal From Tölva (2017) [En] (1.0.65) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556480.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Void Bastards (2019) [Ru/Multi] (v1.0) Repack SpaceX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555989.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Day: 40 (2019) [Multi] (1.0/upd6) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554538.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ ZOMBI (2015) [Ru/Multi] (1.1) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554363.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ BioShock Infinite (2014) [Ru] (1.1.25.5165/dlc) Repack Dok2 [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553378.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552682.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551705.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551702.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551701.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Phantaruk (2016) [Ru/Multi] (1.4.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549795.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Before Nightfall (2018) [Ru/En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546915.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Frontlines: Fuel of War (2008) [Ru/En] (1.3.0) Rip R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543967.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Hotel 19-95 (2017) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542362.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Redneck Rampage Collection (1997) [En] (1.01/1.0/1.01/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542086.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Painkiller: Redemption / Painkiller: Искупление (2011) [Ru/En] (1.05f)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540418.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Starship Troopers / Звездный десант [Ru] (RePack) 2005 | PUNISHER
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540286.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Ziggurat (2014) [Ru/Multi] (31.07.2017) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538476.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Battlezone: Combat Commander (2018) [En/Ge/Fr] (2.0.180) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538195.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534733.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Star Wars: Jedi Knight 2 - Jedi Outcast (2002) [Ru/En] (1.04) Rip R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534688.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Star Wars: Republic Commando (2005) [Ru/En] (1.0) Rip R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534683.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Star Wars: Jedi Knight - Jedi Academy (2003) [Ru/En] (1.01) Rip R.G. Механ�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534677.jpg" />
 </div>
 
 

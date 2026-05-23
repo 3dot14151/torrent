@@ -1,107 +1,3 @@
-###  Публикация: 960812   (304798) от 29.11.2015
-
-Spelunky (2012) [Xbox360] [RegionFree] [FreeBoot] [XBLA] [En] | R.G. X360CLUB
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Spelunky – это уникальный платформер, в котором уровни генерируются случайным образом, так что игра вам долго не наскучит! Спуститесь в подземелье и исследуйте фантастические места, изобилующие монстрами, ловушками и сокровищами.Тип издания: XBLAРазработчик: Derek YuЖанр: Indie, Arcade (Platform), 2DЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968795993D37E48CAE704C46AD9938CF7C0491D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960856   (304788) от 29.11.2015
-
-Ace Combat: Assault Horizon (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Впечатляющий шаг вперед в развитии знаменитой серии аркадных авиасимуляторов. Восточная Африка, 2015 год. Прикомандированный к международному миротворческому корпусу полковник Бишоп возглавил небольшую эскадрилью, которой поручено провести операцию по подавлению повстанцев-экстремистов.Тип издания: LicenseРазработчик: Project AcesЖанр: Simulator (Flight Combat) / 3DЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F445F8DD5C455432E07F7274D74A9570219911B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333410   (302970) от 25.10.2019
-
-Ranko Tsukigime's Longest Day / Short Peace: Ranko Tsukigime's Longest Day (2014) [PS3] [EUR] 4.55 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ranko Tsukigime's Longest Day - это одна из частей анимационно-игрового омнибуса Short Peace, точнее говоря - пятый сегмент, только не анимационный, а игровой: двухмерный сайдскроллер-экшн Ranko Tsukigime's Longest Day, сценарий которого написал Гоити Суда, а непосредственно разработкой занималась студия Crispy (Tokyo Jungle). Сюжетно он никак не связан с перечисленными (   Читать дальше...   )Тип издания: LicenseРазработчик: Grasshopper Manufacture, Crispy'sЖанр: АrcadeЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40BB6B64838A8234B7A05507506C1F8CF6F096B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961064   (302719) от 30.11.2015
-
-The Incredible Hulk (2008) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru] | R.G. X360CLUB
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-The Incredible Hulk создан на основе одноименного фильма, показанного в 2008 году. Основной акцент игрового процесса в этом эшене сделан на невероятную силу главного героя. Управляя Халком, вы сможете побродить по большой части Нью-Йорка, круша при этом все, что попадется по руки. Вы можете разбивать машины, автобусы, уличные фонари и даже громить целые дома.Тип издания: LicenseРазработчик: Amaze Entertainment, Edge of RealityЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD37D0D6245C79B10088EEC4725C6FE61DEB00FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 585478   (302316) от 06.12.2012
 
 Tak And The Guardians Of Gross [Wii] [Eng] [PAL] (2008)
@@ -110,7 +6,7 @@ Tak And The Guardians Of Gross [Wii] [Eng] [PAL] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302316.jpg" />
 </div>
 
 
@@ -138,7 +34,7 @@ Zack & Wiki: Quest for Barbaros' Treasure [Wii] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301627.jpg" />
 </div>
 
 
@@ -164,7 +60,7 @@ Man vs. Wild (2011) [PS3] [USA] 3.56 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300956.jpg" />
 </div>
 
 
@@ -190,7 +86,7 @@ Marvel Super Hero Squad: The Infinity Gauntlet (2010) [PS3] [EUR] 3.41 [Cobra OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300819.jpg" />
 </div>
 
 
@@ -216,7 +112,7 @@ Need For Speed: Hot Pursuit (Limited Edition) (2010) [PS3] [EUR] 3.50 [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300653.jpg" />
 </div>
 
 
@@ -244,7 +140,7 @@ Demon's Souls (2009) [PS3] [USA] 3.41 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298325.jpg" />
 </div>
 
 
@@ -271,7 +167,7 @@ Kung Fu Panda: Showdown of Legendary Legends (2015) [Xbox360] [RegionFree] FreeB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298272.jpg" />
 </div>
 
 
@@ -297,7 +193,7 @@ Ultra Street Fighter 4: The Complete Edition (2014) [Xbox360] [RegionFree] FreeB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298270.jpg" />
 </div>
 
 
@@ -325,7 +221,7 @@ Sonic and the Secret Rings [Wii] [PAL] [Multi 5] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297093.jpg" />
 </div>
 
 
@@ -354,7 +250,7 @@ Raven Squad: Operation Hidden Dagger / Отряд "Ворон" (2009) [Xbox360] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296634.jpg" />
 </div>
 
 
@@ -380,7 +276,7 @@ Dark Void (2010) [Xbox360] [RegionFree] FreeBoot [License] [Ru] | R.G. X360CLUB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296632.jpg" />
 </div>
 
 
@@ -406,7 +302,7 @@ Conflict: Denied Ops (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296565.jpg" />
 </div>
 
 
@@ -432,7 +328,7 @@ Enemy Territory: Quake Wars (2008) [PS3] [EUR] 2.30 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296474.jpg" />
 </div>
 
 
@@ -458,7 +354,7 @@ Pikmin 2 [Wii] [PAL] [Multi 5] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294967.jpg" />
 </div>
 
 
@@ -486,7 +382,7 @@ X-Men: The Official Game (2006) [Xbox360] [RegionFree] FreeBoot [License] [Ru] |
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294495.jpg" />
 </div>
 
 
@@ -513,7 +409,7 @@ Endless Ocean [Wii] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293379.jpg" />
 </div>
 
 
@@ -541,7 +437,7 @@ The Swapper (2014) [PS3] [EUR] 4.21 [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293263.jpg" />
 </div>
 
 
@@ -567,7 +463,7 @@ Ratatouille / Рататуй (2007) [PS3] [EUR] 1.80 [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292558.jpg" />
 </div>
 
 
@@ -593,7 +489,7 @@ Nobunaga's Ambition: Sphere of Influence (2015) [PS3] [USA] 4.21 [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291566.jpg" />
 </div>
 
 
@@ -619,7 +515,7 @@ Rogue Warrior (2009) [PS3] [USA] 3.01 [Cobra ODE / E3 ODE PRO ISO] [License] [En
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290723.jpg" />
 </div>
 
 
@@ -645,7 +541,7 @@ Bound by Flame (2014) [Xbox360] [RegionFree] FreeBoot [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290488.jpg" />
 </div>
 
 
@@ -671,7 +567,7 @@ Rock Band 2 [Wii] [PAL] [Eng] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289568.jpg" />
 </div>
 
 
@@ -682,6 +578,110 @@ Rock Band 2 [Wii] [PAL] [Eng] (2008)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DB8D7A68DBC4E41C16D74E070D42455C157AC0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 268929   (289565) от 13.12.2010
+
+Boom Blox [Wii] [PAL] [Multi 6] (2008)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из игр, которая создавалась компанией Electronic Arts вместе со Стивеном Спилбергом. В Boom Blox вам предстоит решать физические головоломки, используя уникальную технологию управления Wii, причем игра настолько увлекательна, а управление просто, что в нее смогут играть все члены семьи. Кроме одиночного режима игры, есть и многопользовательский. В нем вы можете (   Читать дальше...   )Разработчик: EA Los AngelesЖанр: action, puzzleЯзык интерфейса: Multi 6Формат: образ в формате
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63BFF6CC15371B4E36EFDDD1D0156A9C95457E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334969   (289013) от 01.11.2019
+
+Truck Racer (2013) [PS3] [EUR] 4.46 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Садитесь за руль несущегося на полной скорости грузовика, сметайте с дороги соперников и одержите победу! Truck Racer - это игра про гонки на грузовиках. На выбор игроку представлены 8 различных типов автомашин, включая даже такую экзотику, как пожарные и военные машины. 8 гоночных трасс из 8 различных стран, до 8 игроков на трассе. Присутствует так же система повреждения (   Читать дальше...   )Тип издания: LicenseРазработчик: Kylotonn GamesЖанр: RacingЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AFF4F7455019582A36DB186B946022DEFA65EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334545   (288917) от 01.11.2019
+
+Cars: Mater-National Championship (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любителей мультфильма «Тачки» ждет отличный сюрприз! Забавная машинка Молния МакКуин и ее друзья стали героями еще одной увлекательной видеоигры. Искрометный юмор, забавные персонажи и головокружительные скорости, с которыми они носятся по городку Радиатор Спрингс, превращает вторую часть хитового проекта в незабываемый аттракцион. Испытайте на себе всю прелесть (   Читать дальше...   )Тип издания: LicenseРазработчик: Rainbow StudiosЖанр: RacingЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5CB9386205C47686878EE512E0117A3FFCA477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963351   (288648) от 07.12.2015
+
+Kung Fu Panda: Showdown of Legendary Legends (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kung Fu Panda: Showdown of Legendary Legends – стилизованный под мультфильм двухмерный файтинг на базе знаменитой серии, посвященной приключениям панды По и Неистовой Пятерки. Игру разрабатывает студия Vicious Cycle, ответственная за выпуск адаптаций по анимационным лентам «Турбо» и «Мадагаскар».Тип издания: UnofficialРазработчик: Vicious Cycle SoftwareЖанр: FightingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E41D98D25420F0717D1976261BC33558E94AFC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

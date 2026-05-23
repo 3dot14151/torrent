@@ -1,29 +1,3 @@
-###  Публикация: 1310362   (547631) от 23.06.2019
-
-На крючке. Нашествие кальмаров / Squid invasion (2010) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Колонии кальмара Гумбольдта быстро распространяются, вторгаясь на новые территории в северной части Тихого океана. Какую опасность они несут?Производство: США, Michael Hoff Productions, Nat Geo WildЖанр: Документальный, природа, фаунаРежиссер: Джонатан БурхопПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1C237984CCEC3A78CF7D4DD06C7EA4BD221284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310367   (547628) от 23.06.2019
 
 Акула против хищников / Shark v. Predator (2017) HDTV [H.264/1080i-LQ]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547628.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547624.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Animal Planet: В дикие края с Эваном. Поездка в Пер�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547623.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ NGW: Секретное королевство Борнео: странные и
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546984.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Discovery. Титаник. Ответы из Бездны / Titanic. Answers fro
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546464.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ BBC. Большое австралийское приключение / Coast Au
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546138.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545982.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ NG:Армия львов: Битва за выживание / Lion Army. Battle
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545750.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ NG:Королева тигров / Tiger Queen (2010) HDTVRip[H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544866.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Discovery: Мегаперевозки / Mega Shippers (2016) HDTVRip [H.264/720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544619.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ NG. Вампиры в Венеции / Vampires in Venice (2010) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544509.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Discovery. Пешком вдоль Нила / Walking the Nile (2015) HDTV [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544501.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ NGW: Человек против монстра / Man vs Monster (2011-2012) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543707.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ BBC: Лететь ли нам на Марс? Мысли о будущем / The 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543637.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ BBC. Жизнь млекопитающих / The Life of Mammals (2002) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543388.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543267.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543261.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ BBC. Город под водой. Павлопетри / City Beneath the Waves
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542658.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ NG. Хранители Природы / Guardian of Nature (2005) HDTVRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542270.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542219.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ NG: Как это связано? От мечей до беспилотнико�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542144.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ Discovery:  Жизнь отвратительных животных / Nasty by 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542139.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Discovery: Искусство выживания Рэя Мирса / Ray Mears B
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541825.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ BBC: Пираты Карибского моря. Черная борода / Bla
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541760.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ NG. Осушить океан: Тайны начала операции / Drain 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541713.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ NG. Осушить океан: Тайны начала операции / Drain 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A82015CDF92D7620292DB6F40B2C7C22D62427EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311373   (541709) от 29.06.2019
+
+NG. Осушить океан: Тайны начала операции / Drain the Oceans: Secrets of D-Day (2019) HDTV [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используя новейшие сонарные технологии, уникальная экспедиция, отправившаяся составлять карту кораблей союзников, затонувших во время Второй мировой войны недалеко от Нормандского побережья. В проливе Ла-Манш находится более 100 останков десантных и прочих кораблей, входивших в состав крупнейшего флота, осуществлявшего операцию десантирования. После «осушения» пролива (   Читать дальше...   )Производство: Великобритания, Австралия, Mallinson Sadler Productions, Electric Pictures for National GeographicЖанр: Документальный, история, исследованияРежиссер: Доминик ОзаннПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D8133F8898B91DE141159877CB248BD97DAE5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

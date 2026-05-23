@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90291.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Offline Explorer Enterprise 6.2.3734 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90258.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Autodesk AutoCAD P&ID 2013 x86-x64 RUS-ENG (AIO)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89939.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kaspersky World 1.3.5.89 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89871.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Dropbox 1.3.39 Experimental [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89803.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Windows 7x86 Ultimate UralSOFT & miniWPI v.4.8.12 (2012) (Rus)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89758.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Everimaging Great Photo 1.0.0 [Английский + русификатор]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89673.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ HyperSnap 7.14.01 + Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89589.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Autodesk AutoCAD Mechanical 2013 (x86, x64) (Русский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89552.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ ACDSee Pro 5.2 Build 157 Final RUS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89542.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Daum PotPlayer 1.5.32007 [x86-x64] [Rus] [сборка 7sh3 от 12.04.2012]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89492.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ IconTo 5.51 Professional [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89484.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Kaspersky World 1.3.5.88 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89404.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ FlippingBook PDF Publisher 1.5.8 Corporate [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89314.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Uniblue SpeedUpMyPC 2012 Build 5.2.1.7 [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89306.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ O&O Defrag Professional 15.5 Build 323 (x32 and x64) [Eng+Rus(русификат
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89303.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Autodesk AutoCAD Mechanical 2013 x86-x64 RUS-ENG (AIO)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89300.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Driver Genius Professional 11.0.0.1128 Portable [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89291.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ FileMenu Tools v6.1.3 Final + Portable [ENG\RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89284.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Codec Pack All in 1 6.0.3.0 [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89223.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ MKVToolnix 5.5.0.437 + Portable [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89188.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Sony Sound Forge Pro 10.0d Build 503 + Dolby Digital AC-3 Pro + Noise Reduction 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89140.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ SOFTPIR WPI Professional v.04.12 (x32/x64/ML/RUS/XP/Vista/7)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89130.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ AbelCam 4.2.6 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89116.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Steinberg - Groove Agent 2.0.0 Build 29 INTERNAL(Rebuild SynsoEmu) by AiR.ISO[VS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89098.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Skype 5.9.66.114 Business Edition RePack by Boomer [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89093.jpg" />
 </div>
 
 

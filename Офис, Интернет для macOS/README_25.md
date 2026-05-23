@@ -6,7 +6,7 @@ uTorrent 1.8.7 (42515) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550751.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BookReader 5.13 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550470.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Business Mix for Pages 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549249.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Flyers Templates for Pages 1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549245.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Set for iWork 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549175.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Aiseesoft PDF Converter 3.2.55 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549163.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Spillo 1.8.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548419.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Letterspace — Taking notes made easy 1.7.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548258.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Highland 1.9.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543853.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Elements for iWork 2.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543813.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Megapack for iWork 2015 v2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543761.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ PDF Expert 2.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543663.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Bitdefender Antivirus 2016 v4.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543448.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Inspiration Set for Pages 3.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542107.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Posters Templates for Pages 1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540518.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ MenuTab Pro for Facebook 6.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540507.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Arq 5.2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537986.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Falcon 1.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534807.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Pinegrow Web Designer 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531027.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Templates for Pages 4.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531012.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Perfect Diet Tracker 3.8.8003 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529264.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Suite for iWork 3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529259.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ SnippetsLab 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528863.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ InstaBro | Instagram Browser 5.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527802.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Layouts for Keynote 2.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527367.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Themes for iBooks Author 4.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527359.jpg" />
 </div>
 
 

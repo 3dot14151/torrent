@@ -6,7 +6,7 @@ Windows 7 Enterprise SP1 x64 Rus by OneSmiLe [20.04.2023]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254977.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ BELOFF 2023.04
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254960.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Viber 19.9.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254954.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Text Edit Plus 12.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254952.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Adobe Photoshop Lightroom Classic 12.3.0.15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254933.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Zoner Photo Studio X 19.2303.2.447 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254923.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ PDF Expert 3.0.38 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254920.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Infuse PRO 7.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254912.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254896.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ BoFuri: Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. 2 | 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254893.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Pulsar Modular - P11 Abyss 1.2.2 VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254885.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Zoner Photo Studio X 19.2303.2.447 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254879.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ BurnAware Professional 16.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254878.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ PeaZip 9.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254876.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Sandboxie plus 1.9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254854.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Skype 8.97.0.203 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254849.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ uDock 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254847.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Skype 8.97.0.203 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254846.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ FastFlix 5.5.0 + portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254842.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ nakst - Apricot Hybrid Synth 1.1.0 (FL Studio Native) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254841.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ RegCool 1.334 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254840.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 22.04.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254834.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Opera GX 97.0.4719.89 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254816.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ GeoGebra 6.0.774.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254815.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Sketch 96.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254814.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Unclutter 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254812.jpg" />
 </div>
 
 

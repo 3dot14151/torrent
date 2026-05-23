@@ -6,7 +6,7 @@ Artensoft Photo Collage Maker 2.0.124 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779076.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VirtualBox 5.2.8 Build 121009 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779040.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bitcoin Core 0.16.0 with Blockchain [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779039.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ FontExpert 2018 15.0 Release 1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779036.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VLC Media Player 3.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779034.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ WinCatalog 2017 17.45 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779000.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Opera 51.0.2830.40 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778995.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ XMedia Recode 3.4.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778990.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Icecream Screen Recorder  PRO 5.30.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_778985.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Duplicate File Detective 6.1.65 Enterprise [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778980.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Athentech Perfectly Clear + Essentials + WorkBench 3.5.7.1160 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778973.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Screen Gif 2018.4 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778965.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ CoolUtils Total Audio Converter 5.3.0.162 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778960.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ PowerISO 7.1 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778952.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ PowerISO 7.1 RePack by cuta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778950.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Total Uninstall  6.22.0.500  x64 Professional Edition RePack (& Portable) by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778938.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ ON1 Photo RAW 2018.1 v12.1.0.4934 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778908.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Allavsoft Video Downloader Converter 3.15.5.6635 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778868.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Pale Moon 27.8.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778843.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ KeePassXC 2.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778827.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ YouTube Video Downloader PRO 5.9.4 (20180214) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778804.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ LibreOffice 6.0.2.1 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778800.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Internet Download Manager 6.30 Build 7 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778777.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Total Commander 9.12 VIM 30 portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778754.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778751.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Red Giant Shooter Suite 13.1.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778740.jpg" />
 </div>
 
 

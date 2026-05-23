@@ -1,29 +1,3 @@
-###  Публикация: 1140524   (390962) от 10.10.2017
-
-Immortal Redneck (2017) [Ru/Multi] (1.3.2) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Immortal Redneck — это шутер с элементами жанра роуглайт, действие которого происходит в Египте. Классические перестрелки от первого лица сочетаются здесь с механиками, свойственными играм жанра роуглайт: бешеный темп, отзывчивое управление и аркадная атмосфера, с одной стороны, и случайно создаваемые подземелья, 9 классов с разными особенностями, дерево навыков (   Читать дальше...   )Тип издания: RepackРазработчик: CremaЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4072ED03553F860F5EA6DC7D3E6894333ECC36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173218   (390960) от 10.10.2017
 
 Take Off - The Flight Simulator (2017) [Ru/Multi] (1.0) License SKIDROW
@@ -32,7 +6,7 @@ Take Off - The Flight Simulator (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390960.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Mass Effect 3 [En/Ru] (NoDVD/1.04.5427.111) 2012 | RELOADED
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390670.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Mass Effect 3 [Ru/En] (Update/NoDVD/1.04.5427.111) 2012 | RELOADED
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390637.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390412.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ Spirit of Revenge 6: Unrecognized Master / Месть духа 6: Непризн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389638.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/Multi] (3.0.146.
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389519.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Artania (2017) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389469.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ Monster Truck Destruction (2013) [Ru/Multi] (1.02) Unofficial Unleashed
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389195.jpg" />
 </div>
 
 
@@ -247,7 +221,7 @@ Putrefaction 2: Rumble in the hometown (2017) [Ru/En] (1.0а) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388760.jpg" />
 </div>
 
 
@@ -273,7 +247,7 @@ Putrefaction 2: Rumble in the hometown (2017) [Ru/En] (1.0а) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388705.jpg" />
 </div>
 
 
@@ -299,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_388120.jpg" />
 </div>
 
 
@@ -326,7 +300,7 @@ Zombie Driver: Summer of Slaughter / Смертельная гонка: Троп
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387947.jpg" />
 </div>
 
 
@@ -352,7 +326,7 @@ The Harvest (2013) [Multi] (1.0) Unofficial ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387516.jpg" />
 </div>
 
 
@@ -381,7 +355,7 @@ Dark Parables 16: Portrait of the Stained Princess (2019) [En] (1.0) Unofficial 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387182.jpg" />
 </div>
 
 
@@ -407,7 +381,7 @@ Eisenwald: Blood of November (2016) [Ru/Multi] (1.3) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387078.jpg" />
 </div>
 
 
@@ -433,7 +407,7 @@ EBOLA 3 (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387041.jpg" />
 </div>
 
 
@@ -459,7 +433,7 @@ Battlevoid: Harbinger (2016) [Ru/Multi] (2.0.6) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386913.jpg" />
 </div>
 
 
@@ -485,7 +459,7 @@ Midnight Mysteries 6: Ghostwriting / Тайны прошлого 6: Литера
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386805.jpg" />
 </div>
 
 
@@ -511,7 +485,7 @@ Of Orcs and Men [Ru/En] (RePack/1.0) 2012 | R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386771.jpg" />
 </div>
 
 
@@ -541,7 +515,7 @@ Crysis / Wreckage [Ru/En/De] (RePack/Mod) 2012 | dr.Alex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386656.jpg" />
 </div>
 
 
@@ -567,7 +541,7 @@ Exorcise The Demons (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386562.jpg" />
 </div>
 
 
@@ -593,7 +567,7 @@ Devil's Hunt (2019) [Ru/Milti] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386561.jpg" />
 </div>
 
 
@@ -619,7 +593,7 @@ Dungeons 3 (2017) [Ru/En] (1.2) Repack Covfefe
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386543.jpg" />
 </div>
 
 
@@ -645,7 +619,7 @@ Shu (2016) [Multi] (1.1.0/u1) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386336.jpg" />
 </div>
 
 
@@ -671,7 +645,7 @@ Stronghold Legends (2009) [Ru/Multi] (1.3) License PROPHET [Steam Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386243.jpg" />
 </div>
 
 
@@ -682,6 +656,32 @@ Stronghold Legends (2009) [Ru/Multi] (1.3) License PROPHET [Steam Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03C05F7564AB4AD17E9EA6042260B41105F9D0DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064927   (386127) от 29.10.2016
+
+Karma. Incarnation 1 (2016) [Ru/Multi] (1.0/upd1) License HI2U
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта оригинальная приключенческая игра раскрывает историю любви двух прекрасных душ через искрометный юмор и причудливый, вручную анимированный мир. Возлюбленную нашего героя похищают злые духи и единственный способ вернуть ее, это явиться в мир в виде дракона, чтобы победить Зло. Но что-то пошло не так и его душа переродилась в червяка по имени Пип. Теперь Пип должен (   Читать дальше...   )Тип издания: LicenseРазработчик: AuraLabЖанр: AdventureЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21E6C29AD2CE163DB973DC7069D1A242B6C23AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

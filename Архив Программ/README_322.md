@@ -6,7 +6,7 @@ Process Lasso Pro 9.7.0.48 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890155.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ReviverSoft Driver Reviver 5.33.3.2 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_890098.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Extreme Picture Finder 3.48.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_890092.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Telegram Desktop 2.0.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_890089.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ WonderFox HD Video Converter Factory Pro 18.9 RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890087.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Aiseesoft Video Converter Ultimate 10.0.6 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890084.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ CyberLink PowerDVD Ultra 21.0.2019.62 RePack by Lisabon [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890073.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Movavi Photo Editor 6.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890009.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889963.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Glarysoft Malware Hunter PRO 1.99.0.688 RePack ( & Portable) by Dodakaedr [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889958.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Movavi Photo Editor 6.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889926.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Telegram Desktop 2.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889906.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ ReNamer Pro 7.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889895.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NirLauncher Package 1.23.17 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889881.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Movavi PDF Editor 3.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889858.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Snappy Driver Installer Origin R710/ Драйверпаки 20033 [Multi/Ru] (Of
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889855.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mailbird Pro 2.7.16.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889849.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VueScan Pro 9.7.27 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889813.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Defender Control v1.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889810.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ picpick 4.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889722.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Comodo Dragon 48.12.18.243 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889685.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ WinRAR 5.90 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889677.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Wise System Monitor 1.3.8.34 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889675.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Easy Disc Burner 4.7.1.331 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889667.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ cdrtfe 1.5.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889663.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Glarysoft Malware Hunter 1.5.0.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889616.jpg" />
 </div>
 
 

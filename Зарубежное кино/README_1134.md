@@ -1,55 +1,3 @@
-###  Публикация: 1402739   (488983) от 27.08.2020
-
-Средь бела дня / The Cold Light of Day (2012) BDRip [H.264/1080p] [Open Matte] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Испания, море, яхта – отпуск с поднадоевшей молодому Уиллу Шоу компанией родственников... Никто не мог предположить, что уже через несколько часов палуба яхты обагрится кровью, а члены семьи Шоу станут заложниками в руках неизвестных. В поисках родных Уилл невольно узнает о государственном заговоре и раскрывает тайны своего отца. У парня всего несколько часов, чтобы (   Читать дальше...   )Производство: США, Испания / Summit Entertainment, Intrepid Pictures, Galavis FilmЖанр: боевик, триллерРежиссер: Мабрук Эль МекриАктеры: Генри Кавилл, Сигурни Уивер, Брюс Уиллис, Вероника Эчеги, Джозеф Моул, Кэролайн Гудолл, Рафи Гаврон, Эмма Хэмилтон, Рошди Зем, Оскар ХаэнадаПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6141C9FD88963B391571D24C62F10DE6BC2E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379733   (488971) от 27.08.2020
-
-Призраки: Лучшая участь / Spooks: The Greater Good (2015) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Когда террорист убегает из-под опеки в ходе передачи, Уилл Кромби должен объединиться с опальным шефом разведки MI5 Гарри Пирсом, чтобы разыскать его перед неминуемой террористической атакой на Лондон.Производство: Великобритания / Shine Pictures, Kudos Film and Television, Pinewood PicturesЖанр: боевик, триллер, драмаРежиссер: Бхарат НаллуриАктеры: Майкл Уилдман, Таппенс Мидлтон, Джеффри Стретфилд, Питер Фёрт, Эллиот Леви, Мэттью Уолкер, Элиес Габел, Дэвид Хэрвуд, Дженнифер Эль, Тим МакиннерниПеревод: Профессиональный многоголосый закадровыйСубтитры: Русские (форсированные)Продолжительность: 01:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8270DAAC1FC6B046C43C8D37BA40F958BBB266D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544353   (488824) от 08.09.2012
 
 Пурпурная дива / Scarlet Diva (2000) DVD9
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488824.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488788.jpg" />
 </div>
 
 
@@ -113,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488779.jpg" />
 </div>
 
 
@@ -142,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488777.jpg" />
 </div>
 
 
@@ -171,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488761.jpg" />
 </div>
 
 
@@ -199,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488759.jpg" />
 </div>
 
 
@@ -225,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488755.jpg" />
 </div>
 
 
@@ -251,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488751.jpg" />
 </div>
 
 
@@ -277,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488721.jpg" />
 </div>
 
 
@@ -303,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488716.jpg" />
 </div>
 
 
@@ -329,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488665.jpg" />
 </div>
 
 
@@ -355,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488664.jpg" />
 </div>
 
 
@@ -382,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488611.jpg" />
 </div>
 
 
@@ -408,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488604.jpg" />
 </div>
 
 
@@ -434,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488597.jpg" />
 </div>
 
 
@@ -460,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488542.jpg" />
 </div>
 
 
@@ -487,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488506.jpg" />
 </div>
 
 
@@ -513,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488504.jpg" />
 </div>
 
 
@@ -539,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488492.jpg" />
 </div>
 
 
@@ -565,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488458.jpg" />
 </div>
 
 
@@ -591,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488455.jpg" />
 </div>
 
 
@@ -617,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488342.jpg" />
 </div>
 
 
@@ -643,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488202.jpg" />
 </div>
 
 
@@ -670,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488074.jpg" />
 </div>
 
 
@@ -681,6 +629,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CE6F8E049433C9A4F248BB3E59E6DD873D3F3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 405367   (488069) от 26.07.2022
+
+Несносные боссы / Horrible Bosses (2011) [Театральная версия] [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Единственное, что могло бы сделать трудовые будни Ника, Курта и Дэйла чуть более выносимыми - возможность стереть в порошок их несносное начальство.
+Уволиться с работы - не вариант, поэтому, изрядно выпив и воспользовавшись советами бывшего преступника, трое друзей разрабатывают витиеватый и, казалось бы, безупречный план, как помочь друг другу навсегда избавиться (   Читать дальше...   )Производство: США / Warner Bros, New Line Cinema, Rat EntertainmentЖанр: комедия, криминалРежиссер: Сет ГордонАктеры: Джейсон Бейтман, Чарли Дэй, Джейсон Судейкис, Кевин Спейси, Дженнифер Энистон, Колин Фаррелл, Джейми Фокс, Джули Боуэн, Линдсей Слоун, П.Дж. БирнПродолжительность: 01:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4323C6A45EA1CBF0F9BAE21B737B5F23FA70368C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565597   (488067) от 26.07.2022
+
+Серый человек / The Gray Man (2022) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488067.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2003 году ЦРУ вербует отбывающего срок за убийство Курта Джентри, и тот становится так называемым серым человеком — спецагентом под кодовым именем Сьерра Шесть. 18 лет спустя, устранив очередную цель, он узнаёт, что только что убил бывшего Сьераа Четыре, и получает носитель с информацией, представляющей угрозу для секретной программы «Сьерра». Отказавшись передать (   Читать дальше...   )Производство: США / Netflix, Roth Films, Roth/Kirschenbaum Films, Russo BrothersЖанр: боевик, триллерРежиссер: Энтони Руссо, Джо РуссоАктеры: Райан Гослинг, Крис Эванс, Ана де Армас, Билли Боб Торнтон, Джессика Хенвик, Дхануш, Элфри Вудард, Реге-Жан Пейдж, Вагнер Моура, Джулия БаттерзПеревод: Многоголосый профессиональный (Jaskier, TVShows, NewComers), авторский одноголосый (Юрий Сербин)Субтитры: Русские, английские, испанские, французские, украинские, немецкие, португальскиеПродолжительность: 02:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15DE743D42B42CACC1024621841356EC3C5EB585
 ```
 
 https://mybot314.ru/tekegram_catalog/

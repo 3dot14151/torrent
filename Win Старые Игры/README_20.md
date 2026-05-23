@@ -6,7 +6,7 @@ Stonekeep (1995) [Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402151.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Spirit of Excalibur [En] (RePack) 1990 | RG Games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398038.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dark Heart of Uukrul [En] (RePack) 1989 | RG games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397858.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Kingdom at War [En] (RePack) 1992 | RG Games/Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396863.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Darkspyre [En] (RePack) 1990 | RG Games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395900.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Worms: Armageddon [Ru/En/Multi9] (RePack/3.6.31.2b) 1999 | R.G. GraSe Team
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395504.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Neverending Story 2 [En] (RePack) 1991 | RG games/Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390715.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Jim Power in "Mutant Planet" [En] (RePack) 1993
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390058.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война Миров
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388887.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386775.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Beltion: Beyond Ritual / Бельтион: Свод Равновесия (2009) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384892.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mortal Kombat Trilogy (1996) [En] (1.0hf) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383150.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Advent Rising (2005) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381952.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Enclave (2003) [Multi] (1.0.0.1) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381938.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ CyberMage: Darklight Awakening [En] (RePack) 1995 | dimonstrer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380580.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Wings of Honour / Крылья отваги [Ru] (P) 2003
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377689.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Darkstone (1999) [En/Ge/Fr] (1.0.5b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376909.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Master of Orion 3 / Master of Orion 3: Престол Галактики (2003) 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376753.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Teenagent (1994) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376124.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Code Blue: The Interactive ER Game / Скорая помощь 1 (2000) [Ru] (1.
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375360.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Knight Rider: The Game / Рыцарь дорог (2003) [Ru] (1.0) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375189.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Call of Juarez / Call of Juarez: Сокровища Ацтеков (2006) [Ru/En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370345.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Tom Clancy's Splinter Cell: Double Agent [Ru/En] (Rip/1.02a) 2006 | R.G. Shift
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369712.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Myth Anthology (1997-2001) [Ru/En] (1.5/1.8/1.3.1/dlc) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368243.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Blade & Sword 2 [Ru] (RePack) 2005 l IGALLARDOI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367371.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Resident Evil 2 Seamless HD Project (1998) [En] (1.0) Repack/Mod Andriel
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365096.jpg" />
 </div>
 
 

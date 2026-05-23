@@ -6,7 +6,7 @@ Inno Setup 5.5.8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964292.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Acrobat Professional DC 15.010.20056 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964275.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ XYplorer 20.80 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964272.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ApowerREC 1.4.2.13 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964270.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Loaris Trojan Remover 3.1.12.1402 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964253.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Trojan Killer 2.1.10 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964249.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Google Chrome 80.0.3987.100 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964248.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ OCCT 5.5.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964245.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ IObit Smart Defrag Pro 6.4.5.99 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964237.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ WinNTSetup 3.8.6 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964233.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ IObit Uninstaller Pro 9.3.0.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964185.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Rainlendar Lite 2.15.3 Build 165 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964184.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Aiseesoft Video Converter Ultimate 9.2.86 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964183.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Google Chrome 80.0.3987.100 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964182.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Brave Browser 1.3.113 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964178.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ TweakPower 1.088 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964133.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ K-Lite Codec Pack Update 15.3.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964131.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ O&O ShutUp10 1.7.1407 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964128.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ CodeLobster IDE 1.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964127.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ MEmu 7.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964122.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Microsoft Windows and Office ISO Download Tool 8.31.0.135 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964120.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Hard Disk Sentinel Pro 5.60 Build 11463 Final RePack (& Portable) by KpoJIuK [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964073.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Hard Disk Sentinel PRO 5.60 Build 11463 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964068.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Psiphon 3 build 152 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964065.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Snappy Driver Installer Origin R708 / Драйверпаки 20010 [Multi/Ru] (�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964059.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Kerish Doctor 2020 4.80 DC 08.02.2020 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964056.jpg" />
 </div>
 
 

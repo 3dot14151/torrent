@@ -1,86 +1,3 @@
-###  Публикация: 1626484   (240852) от 14.04.2023
-
-Чингиз Абдуллаев | Дронго (Книга 51). Волшебный дар (2023) [MP3, Зоя Банкетова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Известный эксперт-аналитик Дронго решил ненадолго забыть о своей опасной работе, передохнуть, полюбоваться прекрасными пейзажами далекой Португалии, взять в руки клюшку для гольфа… Не вышло. В отеле, где он поселился, «сильные мира сего» решили провести неофициальную встречу спонсоров строительства атомных станций в Европе. Саммит омрачило жуткое событие: в своем (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD69B108EBB5AB4541C4CAE4FC40AA573A0033A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626462   (240836) от 14.04.2023
-
-Арто Паасилинна | Лес повешенных лисиц (2023) [MP3, Юрий Красиков]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-«Лес повешенных лисиц» – плутовской роман, полный специфического, но очень понятного финского юмора и простой, остроумной житейской мудрости, благодаря которым Арто Паасилинна и заработал свою славу философа и юмориста.
-
-Где можно надежно спрятать тридцать шесть килограммов золота? Именно этим вопросом задается Ойва Ютунен, бандит, ни в какую не желающий делиться (   Читать дальше...   )Жанр: Приключения, Современная зарубежная литератураИздательство: Эксмо, InspiriaПродолжительность: 07:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A10860DF44CBD5E7B2EDD486B7AE84702E8C44C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620164   (240835) от 19.03.2023
-
-Бобби Палмер | Айзек и яйцо (2022) [MP3, Константин Панченко]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Иногда, чтобы выбраться из дебрей, нужно в них зайти.
-
-Айзек стоит на мосту в одиночестве. Он сломлен, разбит и не знает, как ему жить дальше. От отчаяния он кричит куда-то вниз, в реку. А потом вдруг слышит ответ. Крик – возможно, даже более отчаянный, чем его собственный. Айзек следует за звуком в лес. И то, что он там находит, меняет все.
-(   Читать дальше...   )Жанр: ПрозаПродолжительность: 08:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD87C2DF8FB78455A33B96C02912A53D915310E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626037   (240832) от 12.04.2023
 
 Макс Гудвин | Спирит (Книга 2) (2023) [MP3, Никита Петров (Петроник)]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240832.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240827.jpg" />
 </div>
 
 
@@ -143,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240814.jpg" />
 </div>
 
 
@@ -172,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240812.jpg" />
 </div>
 
 
@@ -198,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240803.jpg" />
 </div>
 
 
@@ -224,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240785.jpg" />
 </div>
 
 
@@ -252,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240776.jpg" />
 </div>
 
 
@@ -278,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240768.jpg" />
 </div>
 
 
@@ -304,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240759.jpg" />
 </div>
 
 
@@ -330,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240746.jpg" />
 </div>
 
 
@@ -356,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240724.jpg" />
 </div>
 
 
@@ -384,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240710.jpg" />
 </div>
 
 
@@ -410,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240706.jpg" />
 </div>
 
 
@@ -436,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240663.jpg" />
 </div>
 
 
@@ -462,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240656.jpg" />
 </div>
 
 
@@ -488,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240647.jpg" />
 </div>
 
 
@@ -514,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240606.jpg" />
 </div>
 
 
@@ -540,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240579.jpg" />
 </div>
 
 
@@ -566,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240538.jpg" />
 </div>
 
 
@@ -594,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240517.jpg" />
 </div>
 
 
@@ -620,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240495.jpg" />
 </div>
 
 
@@ -648,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240479.jpg" />
 </div>
 
 
@@ -677,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240472.jpg" />
 </div>
 
 
@@ -688,6 +605,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A2285B34B0DE7E17AFAABFFA2132DAF1EA0B8D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570992   (240445) от 19.08.2022
+
+Павел Мамонтов | Бойцовый кот (2022) [MP3, Семён Ващенко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей Казаков собрался в обычный турпоход, но оказался в другом мире. Вернее, сразу в нескольких. Это – Большая Игра. Здесь множество миров, которые объединяет одно: выжить в них очень непросто. Зато победитель получает все: деньги, славу, любовь, а главное – свободу. И безграничные возможности. Для тех, кто выживет…Жанр: Боевая фантастика, БоевикиПродолжительность: 08:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2831C8E3B56AD869D2C02796A963F9D773C1781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626391   (240416) от 14.04.2023
+
+Хайдарали Усманов | Тернистый путь (Книга 6). Неприятности и сюрпризы (2023) [MP3, Борис Клейнберг]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой парень бросается под несущуюся на огромной скорости машину, пытаясь спасти незнакомца, которого увидел на тёмной дороге. Ему удаётся спасти того ценой собственной жизни. А машина, сбившая его насмерть, безнаказанно уносится в даль, под звуки громкой музыки. Вполне предсказуемое развитие событий? Вот только не в этом случае! Ведь тот, кого он спасал, был очень (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 10:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C019E2961A18C32DB07117D70F24AF0ABE90E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636772   (240383) от 01.06.2023
+
+Евгений Нетт | Анимус (Книга 1). Гений клана (2023) [MP3, Макс Радман]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потерявший все готов сражаться за свое счастье.
+
+Гримуар. Книга, что, согласно легендам, может искажать время и пространство по желанию того, кто её отыщет. О нём мечтают многие, но ищут считаные единицы. И он, Элин Нойр, абсолют и мастер рун, что слишком часто заигрывал с тёмной стороной своей силы, первым добился успеха. По крайней мере, он так думал, когда открыл (   Читать дальше...   )Жанр: Боевое фэнтезиПродолжительность: 15:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:829D9A1BFE327B654DF7FA300AA539DED1BE6503
 ```
 
 https://mybot314.ru/tekegram_catalog/

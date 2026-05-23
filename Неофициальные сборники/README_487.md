@@ -1,37 +1,3 @@
-###  Публикация: 576877   (361690) от 18.11.2012
-
-VA - Danger Zone vol.24 (2012) [MP3|320 кб/с]<Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Daggers - Set You Straight
- 02. The Anix - Endlessly] 03. Sepiamusic - Sweet Pollution
- 04. Stateless - Miles to Go (instrumental version)
- 05. Hacktivist - Blades
- 06. Deftones - Poltergeist
- 07. Exotype - Kilo
- 08. Naive - Transoceanic
- 09. Hidden Hospitals - Picture Perfect
- 10. Pressure Recall - Guns And WordsЖанр: Alternative, Metal, RockПродолжительность: 02:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3209F0CB8E8874360AD4DCE77C6E69528A61C557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577033   (361687) от 18.11.2012
 
 VA - Big City Trance Volume 42 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
@@ -40,7 +6,7 @@ VA - Big City Trance Volume 42 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361687.jpg" />
 </div>
 
 
@@ -72,7 +38,7 @@ VA - Шансон Для Любимых (2012) [MP3|128 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361681.jpg" />
 </div>
 
 
@@ -107,7 +73,7 @@ VA - XXXL Осенний хитовый сезон (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361672.jpg" />
 </div>
 
 
@@ -142,7 +108,7 @@ VA - Guitar Collection 9 (2016) [MP3|320 Kbps] <Blues, Rock, Metal,>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361552.jpg" />
 </div>
 
 
@@ -171,7 +137,7 @@ VA - Шансон Для Души Со Стасом Михайловым (2011) 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361542.jpg" />
 </div>
 
 
@@ -206,7 +172,7 @@ VA - Топ-лист осенний 6. Лучшие из лучших (2012) [MP
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361538.jpg" />
 </div>
 
 
@@ -241,7 +207,7 @@ VA - Союз Хитовый - 5 (2012) [MP3|128 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361510.jpg" />
 </div>
 
 
@@ -276,7 +242,7 @@ VA - Дорожный шансон (2012) [MP3|128 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361348.jpg" />
 </div>
 
 
@@ -311,7 +277,7 @@ VA - Ээхх, Разгуляй! Часть 12 (2012) [MP3|256 кб/с]<Шанс
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361344.jpg" />
 </div>
 
 
@@ -346,7 +312,7 @@ VA - Союз шансон #5 (2011) [MP3|128 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361321.jpg" />
 </div>
 
 
@@ -381,7 +347,7 @@ VA - Хит-парады Топы Чарты FM-станций Октябрь (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361316.jpg" />
 </div>
 
 
@@ -410,7 +376,7 @@ VA - Original Mix Progressive Trance (2015) [MP3|320 кб/с]<Trance, Progressiv
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361278.jpg" />
 </div>
 
 
@@ -439,7 +405,7 @@ VA - Новейшие Зарубежные Треки (2012) [MP3|256 кб/с]<P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361174.jpg" />
 </div>
 
 
@@ -474,7 +440,7 @@ VA - Acoustic Romance (2015) [MP3|320 кб/с]<Downtempo, Chillout, Instrumental
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361159.jpg" />
 </div>
 
 
@@ -503,7 +469,7 @@ VA - Зарубежный фестиваль клубной музыки (2015) 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361110.jpg" />
 </div>
 
 
@@ -532,7 +498,7 @@ VA - 100% Русское радио: Все будет хорошо! 16 (2012) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360991.jpg" />
 </div>
 
 
@@ -567,7 +533,7 @@ VA - Piano Dream House (2005) [MP3|192-256 кб/с]<House, Piano, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360942.jpg" />
 </div>
 
 
@@ -596,7 +562,7 @@ VA - Sylt Finest Lounge Music Vol. 1-7 (2002-2010) [MP3|256 кб/с]<Lounge, dow
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360809.jpg" />
 </div>
 
 
@@ -640,7 +606,7 @@ VA - Dubstep Planet 3 (2012) [MP3|320 kbps]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360598.jpg" />
 </div>
 
 
@@ -674,7 +640,7 @@ VA - Beatport Deep House. Electro Sound Pack #189 (2020) [MP3|320 Kbps] <Deep Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360393.jpg" />
 </div>
 
 
@@ -703,7 +669,7 @@ VA - Рок в Авто (vol. 5) (2012) [MP3|320 кб/с]<Heavy Metal, Power Met
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360292.jpg" />
 </div>
 
 
@@ -732,7 +698,7 @@ VA - Русский рок - Новая генерация (2012) [MP3|256-320 �
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360286.jpg" />
 </div>
 
 
@@ -761,7 +727,7 @@ VA - Рок в Авто (vol. 4) (2012) [MP3|214-320 кб/с]<Heavy Metal, Glam 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360285.jpg" />
 </div>
 
 
@@ -790,7 +756,7 @@ VA - Music News vol.41 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360258.jpg" />
 </div>
 
 
@@ -819,7 +785,7 @@ VA - Русский рок - Rapcore (2013) [MP3|320 кб/с]<Rapcore>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360166.jpg" />
 </div>
 
 
@@ -833,6 +799,35 @@ VA - Русский рок - Rapcore (2013) [MP3|320 кб/с]<Rapcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B97EC96E56C4DBE9B305AF3E3A2BA305F572818A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548095   (360161) от 30.10.2015
+
+VA - Рок в Авто (Rapcore) (2012) [MP3|320 кб/с]<Rapcore, Nu Metal, Alternative Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PRoject Oxid - One Step Closer (Linkin Park)
+02. Hollywood Undead - Levitate (Rock Mix)
+03. Limp Bizkit - Rollin' (Air Raid Vehicle)
+04. Avery Watts - A Cut Above(   Читать дальше...   )Жанр: Rapcore, Nu Metal, Alternative MetalПродолжительность: 05:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89C4F91C15BFCEE2EB68341FFB8F542D21BE6E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

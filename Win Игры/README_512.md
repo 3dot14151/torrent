@@ -1,29 +1,3 @@
-###  Публикация: 1726845   (28180) от 09.02.2025
-
-Hero of the Kingdom: The Lost Tales 1 / Герой Королевства: Утраченные Сказания 1 (2020) [Ru/Multi] (1.2.12) License GOG
-
->>Win Игры
->>Strategy/Manager/Business (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в опасное приключение и спасите город от драконьей угрозы. В своих скитаниях по миру вы прибываете в город, недавно переживший нападение дракона. Никто не знает, откуда явилось это ужасное чудовище. Среди людей, охваченных страхом, живёт маленький мальчик-сирота по имени Брент, который мечтает совершать подвиги и заслужить всеобщее признание. Желание (   Читать дальше...   )Тип издания: LicenseРазработчик: Lonely TroopsЖанр: Приключенческие игры, Казуальные игры, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFEACDBF9ADF3E456CC4E6C8EE2769C4A81BAB19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726907   (28179) от 09.02.2025
 
 Hero of the Kingdom: The Lost Tales 2 / Герой Королевства: Утраченные Сказания 2 (2021) [Ru/Multi] (1.2.9) License GOG
@@ -32,7 +6,7 @@ Hero of the Kingdom: The Lost Tales 2 / Герой Королевства: Ут�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28179.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Repack DjDI 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28172.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Techno Banter (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28171.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ THE MUTE HOUSE (2025) [Multi] (1.0.39) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28161.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Backyard Boxing (2025) [En] (1.1.3) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28157.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Hero of the Kingdom II / Герой Королевства II (2015) [Ru/Multi] 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28153.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Grief like a stray dog / А Горюшко вслед собакою... (2025) [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28143.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17294620) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28134.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Drova - Forsaken Kin (2024) [Ru/Multi] (1.2.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28124.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ BORE BLASTERS (2024) [Multi] (1.52) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28122.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Sumerian Six (2024) [Ru/Multi] (1.0.3) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28118.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Fallen Enchantress (2012-2013) [En] (1.32/3.01) License GOG [Ultimate Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28114.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Garden In! (2023) [Multi] (1.4.5.4) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28113.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.512) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28112.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The Smurfs - Dreams (2024) [Ru/Multi] (1.0.27/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28099.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Thronefall (2024) [Ru/Multi] (2.12) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28096.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Stars In The Trash (2024) [Ru/Multi] (1.04 Build 20250209) Repack Let'sРlay [De
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28089.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Dark Pictures Anthology: House of Ashes (2021) [Ru/Multi] (Build 8603627/dlc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28073.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.2.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28072.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Jet Kave Adventure (2021) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28070.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Tails of Iron (2021) [Ru/Multi] (1.52/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28053.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Jet Kave Adventure (2021) [Multi] (1.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28048.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Back Then (2023) [Multi] (3.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28020.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.05b/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28008.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.12b/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27993.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ MULLET MADJACK (2024) [Ru/Multi] (1.12b/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:711071139A7624153BAE1F325A7143AFABFA0567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723490   (27990) от 11.02.2025
+
+Instruments of Destruction (2024) [Ru/Multi] (1.11c) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27990.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Instruments of Destruction используется передовая система разрушения, основанная на физических законах. Благодаря полностью интерактивной физике любое сооружение в игре можно разрушить на кусочки, и все объекты будут так или иначе взаимодействовать с разрушениями. Все элементы игровой реальности гармонично включены в систему разрушения и взаимодействуют друг с (   Читать дальше...   )Тип издания: RepackРазработчик: RadiangamesЖанр: Экшены, Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F7BA01DBE6F62BB23DA7B4DE8AC005A2EA6A7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

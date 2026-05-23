@@ -6,7 +6,7 @@ GeoGebra 6.0.640.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017740.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Media Encoder 2021 v15.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017737.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe XD v39.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017736.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Adobe Audition 2021 v14.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017734.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ISO Workshop Free 10.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017730.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ WiFi Explorer 3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017728.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Firefox Browser ESR 78.10.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017726.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ OCCT 8.1.3 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017717.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Image Uploader Nightly Build 1.3.3.4856 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017702.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Pipette 21.05.03 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017699.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Apache OpenOffice 4.1.10 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017696.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ StartIsBack++ 2.9.12 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017681.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ SkinFiner 4.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017672.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ KiCad 5.1.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017660.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Adobe After Effects 2020 v18.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017659.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Adobe Premiere Pro 2021 v15.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017655.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Feeder 4 v4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017603.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ NCH Doxillion Plus 5.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017597.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ NCH Debut Professional 7.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017586.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ DjVu Reader Pro 2.5.0 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017579.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Alchemist - This Thing Of Ours (2021) EP [FLAC|Lossless|Web-DL|tracks] <Hip-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017578.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Firefox Browser 78.10.1 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017576.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Firefox Browser 88.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017575.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Vivaldi 3.8.2259.40 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017558.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Internet Download Manager 6.38 Build 23 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017557.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Firefox Browser 88.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017552.jpg" />
 </div>
 
 

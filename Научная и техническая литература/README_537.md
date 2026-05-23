@@ -1,134 +1,3 @@
-###  Публикация: 1655035   (193909) от 24.08.2023
-
-А.В. Погорелов | Лекции по дифференциальной геометрии (1967) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-В книге излагаются основы дифференциальной геометрии в объеме действующих программ для физико-математических факультетов университетов и педагогических институтов. Книга содержит значительное количество упражнений и задач, дополняющих основное изложение.Жанр: МатематикаИздательство: Издательство Харьковского университетаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B06BF27D0DC20DF1233946E8967E1A4603B3DBCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655058   (193901) от 24.08.2023
-
-З.А. Ротенберг | Гидратированный электрон в химии (1979) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Брошюра посвящена истории открытия сольватированного электрона, разнообразным его свойствам, способам получения и возможным применениям.Жанр: ХимияИздательство: ЗнаниеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA0708D9A40587245CB68A01A6ECA7B14C80323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271754   (193869) от 23.08.2023
-
-Алексей Исаев | Курская битва. Всё о сражении, решившем судьбу Второй Мировой (2018) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-50-дневная Курская битва, продолжавшаяся с 5 июля по 23 августа 1943 года, стала поистине генеральным сражением Великой Отечественной и не имеет себе равных в мировой истории. В этом грандиозном противостоянии участвовало около двух миллионов бойцов, шесть тысяч танков, четыре тысячи самолетов. И наша победа вовсе не была предсказуемой и предрешенной, как может показаться (   Читать дальше...   )Жанр: Военная историяИздательство: ЭксмоФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1FBB544A987461547A69FEF4EAD8003EF71DCB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655517   (193837) от 26.08.2023
-
-Е.И. Бутиков и др. | Физика для поступающих в вузы (1982) [2-е издание] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой пособие по курсу физики средней школы. Особое внимание в ней уделяется тем вопросам, которые по тем или иным причинам не изложены в школьном учебнике или изложены там недостаточно глубоко и подробно.Жанр: ФизикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E00E64E885023C2F3B22FAB11945C4F16F6D4439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655511   (193813) от 26.08.2023
-
-Ч.А. Кариев | Основы работы с инструментами Яндекс (2-е изд.) (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Курс научит работать с Яндекс.Деньгами, создавать сайты на площадке Яндекс.Народ, применять инструменты для вебмастеров, размещать объявления Яндекс.Директ, а также профессионально использовать поиск.
-Увеличить эффективность своего серфинга, действительно использовать преимущества онлайн-оплат, создать свой сайт – зная совсем немного, прорекламировать его в Интернете (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67BA6E851DE3DFAC4F93CF5D56044B42B2414F69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655716   (193784) от 27.08.2023
 
 О.Р. Лапонина | Межсетевые экраны (2-е изд.) (2016) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193784.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193766.jpg" />
 </div>
 
 
@@ -192,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193760.jpg" />
 </div>
 
 
@@ -219,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193758.jpg" />
 </div>
 
 
@@ -246,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193609.jpg" />
 </div>
 
 
@@ -274,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193606.jpg" />
 </div>
 
 
@@ -300,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193543.jpg" />
 </div>
 
 
@@ -328,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193403.jpg" />
 </div>
 
 
@@ -354,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193390.jpg" />
 </div>
 
 
@@ -380,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193389.jpg" />
 </div>
 
 
@@ -407,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193292.jpg" />
 </div>
 
 
@@ -434,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193290.jpg" />
 </div>
 
 
@@ -460,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193289.jpg" />
 </div>
 
 
@@ -487,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193211.jpg" />
 </div>
 
 
@@ -513,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193150.jpg" />
 </div>
 
 
@@ -540,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193144.jpg" />
 </div>
 
 
@@ -566,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193013.jpg" />
 </div>
 
 
@@ -592,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192936.jpg" />
 </div>
 
 
@@ -618,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192859.jpg" />
 </div>
 
 
@@ -646,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192833.jpg" />
 </div>
 
 
@@ -673,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192793.jpg" />
 </div>
 
 
@@ -684,6 +553,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5A4073793DA3B567C6864ACD963316982993071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587240   (192792) от 30.10.2022
+
+Н.М. Меламедман, К.К. Пономарёв | Курс высшей математики [2 книги] (1974) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс высшей математики для программистов
+Первый том посвящён в основном аналитической геометрии
+Второй том посвящён математическому анализуЖанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A76EE74800EF376B2DEB6D4919C0B9E86C73D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587519   (192587) от 31.10.2022
+
+К.К. Пономарёв | Составление и решение дифференциальных уравнений инженерно-технических задач (1962) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие для физико-математических факультетов педагогических институтов. Является руководством по составлению и решению дифференциальных уравнений. Цель автора — создание учебного пособия, которое широко охватило бы различные задачи естествознания и техники и способствовало овладению современной методикой составления дифференциальных уравнений прикладных (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095CDCE7F80FF9734D91A01AAEEA85B2C6BC9115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587550   (192579) от 31.10.2022
+
+В.А. Садовничий (ред.) | Задачи и упражения по математическому анализу [2 книги] (1988 - 1991) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие соответсвует программе 1-го и 2-го курсов для студентов-математиков и отражает опыт преподавания математического анализа на механико-математическом факультете МГУ. Большая часть задач отлична от содержащихся в известном задачнике Б.П. ДемидовичаЖанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30D3F89795B3E126C8212FAF1A04CB62BC7B045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587459   (192565) от 31.10.2022
+
+В.А. Ильин и др. | Математический анализ [2 книги] (1985-1987) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двухтомное совместное издание Московского Государственного Университета и Софийского Университета имени святого Климента Охридского по математическому анализу.Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D3298A05E08C924B52D8E662AD3F1E0F7A84578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587507   (192563) от 31.10.2022
+
+Александр Боханов | Император Александр III (2019) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Император Александр III еще при жизни заслужил звание Царя-Миротворца, так как за время его правления ни капли русской крови не пролилось на полях сражений. При нем Россия вернула престиж великой мировой державы, значение и влияние которой стали очевидны и общепризнаны. Александр III не восхищался Западом, не поклонялся либеральным идеям, считая, что буквальное насаждение (   Читать дальше...   )Жанр: История РоссииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF97D1F2A2294241BEDC73EA1B48FCABA59104E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

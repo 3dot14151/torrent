@@ -6,7 +6,7 @@ Revo Uninstaller Pro 4.2.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338974.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ KMSAuto Helper 1.1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338970.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ACDSee Pro 9.1 Build 453 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338937.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ HDCleaner 2.034 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338909.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cockos REAPER 6.68 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338903.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sandboxie plus 1.3.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338899.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Privacy Eraser Free 5.27.4 Build 4311 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338882.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ RegCool 1.323 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338877.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Google Chrome 77.0.3865.120 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338872.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ BluffTitler Ultimate 14.6.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338870.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338868.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Topaz DeNoise AI 1.3.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338855.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Notepad++ 7.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338847.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Devious Machines - Infiltrator 2 2.0.23 VST, VST 3, AAX (x64) RePack by TeamCube
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338741.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Glary Utilities Pro 5.195.0.224 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338739.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Glary Tracks Eraser 5.0.1.243 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338728.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ FBackup 9.8.677 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338721.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ ZD Soft Screen Recorder 11.5.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338719.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ FanControl V130 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338716.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ WonderFox HD Video Converter Factory Pro 25.5 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338713.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Wondershare Recoverit Ultimate 8.2.4.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338703.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Revo Uninstaller Pro 4.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338700.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft Visual Studio 2019 Community 16.3.3 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338699.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Skype 8.53.0.85 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338691.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Viber 11.6.0.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338680.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Cockos REAPER 6.68 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338584.jpg" />
 </div>
 
 

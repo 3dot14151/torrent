@@ -1,83 +1,3 @@
-###  Публикация: 1534966   (690720) от 04.03.2022
-
-Ирина Фельдман | Академия драконьих всадников (2022) [MP3, Екатерина Попова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Дебют Ирины Фельдман с книгой «Академия драконьих всадников» – событие в серии «Академия магии». Увлекательное приключение, в котором тесно сплелись уроки в академии, драконы и оборотничество, не оставит читателя равнодушным.
-
-Попасть в Королевскую академию драконьих всадников – большая удача. Но ведь не в качестве дракона! Теперь я питомец-компаньон нерадивого студента, (   Читать дальше...   )Жанр: Магические академии, Фэнтези про драконовПродолжительность: 10:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE93881039053C328EE841029420799877BF811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028178   (690655) от 22.06.2016
-
-Роман Волков | Тьма из подвалов, или Военрук. [Часть 1] (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Друзья Роман и Андрей не раз слышали о том, что в их городе пропадают дети. А однажды узнали: все исчезнувшие ребята учились в их школе! Неужели что-то необычное и пугающее происходит прямо у них под боком? Роман и Андрей знакомятся с девчонкой, которая может обладать важными сведениями… и, кажется, выходят на след пропавших. Только друзья не подозревают, что сами (   Читать дальше...   )Жанр: Детские ужастикиПродолжительность: 03:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A6C1274B7BE874281A5174B43152342611B42E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534928   (690639) от 04.03.2022
-
-Руслан Альфридович Самигуллин | Гонка героев (2022) [MP3, Борис Горский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие романа происходит в недалёком будущем Российского государства. Нищета и полная стагнация приводит к голоду, локальным конфликтам и повсеместному бандитизму. Для снижения протестных настроений раз в год проводится грандиозное шоу под названием «Гонка героев». В ходе шоу двадцать самых опасных и жестоких преступников проходят несколько этапов в надежде спасти (   Читать дальше...   )Жанр: Боевики, Киберпанк, ТриллерыПродолжительность: 07:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672F0E47B1369913017845634C1B2FD20B1FC193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534952   (690625) от 04.03.2022
 
 Блейк Крауч | Возвращение (2021) [MP3, Максим Гамаюнов]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690625.jpg" />
 </div>
 
 
@@ -113,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690600.jpg" />
 </div>
 
 
@@ -139,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690595.jpg" />
 </div>
 
 
@@ -165,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690533.jpg" />
 </div>
 
 
@@ -191,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690523.jpg" />
 </div>
 
 
@@ -217,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690483.jpg" />
 </div>
 
 
@@ -243,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690477.jpg" />
 </div>
 
 
@@ -269,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690404.jpg" />
 </div>
 
 
@@ -295,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690375.jpg" />
 </div>
 
 
@@ -321,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690370.jpg" />
 </div>
 
 
@@ -347,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690207.jpg" />
 </div>
 
 
@@ -373,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690154.jpg" />
 </div>
 
 
@@ -401,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690133.jpg" />
 </div>
 
 
@@ -427,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690022.jpg" />
 </div>
 
 
@@ -453,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689971.jpg" />
 </div>
 
 
@@ -480,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689867.jpg" />
 </div>
 
 
@@ -506,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689731.jpg" />
 </div>
 
 
@@ -533,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689434.jpg" />
 </div>
 
 
@@ -559,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689375.jpg" />
 </div>
 
 
@@ -585,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689253.jpg" />
 </div>
 
 
@@ -611,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689095.jpg" />
 </div>
 
 
@@ -637,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688684.jpg" />
 </div>
 
 
@@ -663,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688594.jpg" />
 </div>
 
 
@@ -674,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E50DC4FEB3A0863BE12C6E43CE54FF2ECE5767A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535149   (688591) от 05.03.2022
+
+Филип Дик | Проездной билет (2021) [MP3, KADMI]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продавец билетов Эд Джекобсон стал свидетелем престранного случая. Уставший коротышка пробился к кассе и попросил билет до станции Мэкон Хейтс. Но Эду пришлось отказать ему в продаже билета, поскольку такой станции назначения не существует ни на карте, ни в природе. Коротышка несказанно удивился, посмотрел на карту и … исчез!Жанр: ФантастикаПродолжительность: 00:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00CC3D537D2E151C356F67D0412B798BAC99731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403760   (688559) от 21.08.2020
+
+Галина Куликова | Два ужасных мужа (2020) [MP3, Варвара Варенич]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тася Румянцева отправляется в отпуск с новым бойфрендом в надежде обрести долгожданное личное счастье. Красавец Илья собирается покатать ее по Калининграду на только что отреставрированном старинном автомобиле. Однако вместо отдыха Тася попадает в опасную переделку. Машина, которой Илья так гордится, предположительно принадлежала одному из вождей Третьего рейха, (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:15:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95B0B73169924C6D1D99468C2CBE493A42BE213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403677   (688557) от 21.08.2020
+
+Дмитрий Медведев | Черчилль. Против течения (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представленная книга продолжает рассказ о жизни Уинстона Черчилля, повествуя о напряженном периоде с 1929 по 1939 год. Не занимая в течение десяти лет государственных постов, Черчилль сконцентрировался в эти годы на своей литературной деятельности, выступая биографом, историком, публицистом, журналистом, рецензентом и даже сценаристом.Жанр: Биографии и мемуарыПродолжительность: 09:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5316B8C531C01E472B6EC9ECF520474F1FC0728E
 ```
 
 https://mybot314.ru/tekegram_catalog/

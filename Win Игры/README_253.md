@@ -1,29 +1,3 @@
-###  Публикация: 946375   (426932) от 13.10.2015
-
-Whispered Secrets 4: Golden Silence / Нашептанные Секреты 4: Молчание - золото (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Четвертая часть игры из серии «Whispered Secrets ». Две трагические истории, мистический сюжет которых впитал в себя все худшие и лучшие качества людей. Молодая женщина и жена, отправившегося за заработки горняка, просит о помощи в розыске ее мужа Билла. Следы расследования приводят вас в недружелюбный город, где пропажа людей уже стала частью истории города.Тип издания: Неофициальное изданиеРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4929ECDDF1A3AA241FFAEF8B2871B0A5A5D5CEBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946389   (426922) от 13.10.2015
 
 League of Light 3: Silent Mountain / Лига Света 3: Безмолвная гора (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ League of Light 3: Silent Mountain / Лига Света 3: Безмолвная
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426922.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426681.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Wasteland 2 (2014) [Ru/En] (1.0 u6/dlc) License GOG [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426493.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Hollow Knight (2017) [Ru/Multi] (1.4.3.2/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426282.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Keeper of Antiques 3: The Last Will / Антиквар 3: Последняя
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426273.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Impact Winter (2017) [Ru/Multi] (2.0.5) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425976.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Puzzle Dimension [Ru/Multi11] (RePack/1.0u12) 2010 | NSIS
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425905.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Living Legends Remastered: Ice Rose / Живые легенды. Переизд�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425397.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Interstellaria (2015) [En] (1.089) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425341.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Ships 2017 (2016) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425244.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Ships 2017 (2016) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425243.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Being a DIK Season 1 (2020) [En] (0.4.8.14/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425107.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ ELDERBORN (2020) [Ru/Multi] (1.09/dlc) License GOG [Metal AF Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425102.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Distance (2018) [En] (1.4) License HI2U
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425086.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Secret City: London Calling / Тайный город: Лондон вызыва
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424330.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ BloodRayne: Betrayal (2014) [Ru/Multi] (13.10.15) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424251.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Goggles - World of Vaporia (2015) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424250.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Path to Mnemosyne (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424118.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Haunted Halls 3: Revenge of Doctor Blackmore. Collector's Edition / Месть �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423856.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Flood of Light (2017) [En/Ch] (1.1.3) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423608.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Rochard [Ru/Multi12] (RePack/1.31) 2011 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423528.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM 3 Full Burst HD (2017) [Ru/Multi] (1.0.0.
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423457.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Ultimate Marvel vs Capcom 3 (2017) [En] (1.0/upd1) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423455.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episo
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423431.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Tyranny (2016) [Ru/Multi] (1.2.0.0124/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423253.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Tyranny (2016) [Ru/Multi] (1.2.0.0124/dlc) Repack R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39673BBC393D912331B20C7508AD0601B18E4D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166769   (423251) от 17.09.2017
+
+Need for Speed: Rivals (2013) [Ru] (1.4.0.0) Repack Other s
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрите грань между одиночным и многопользовательским режимом в постоянном соперничестве между гонщиками и полицией. Свободно войдите в мир, в котором ваши друзья уже участвуют в гонках и погонях. Забудьте об отдельных режимах игры. Никаких лобби, никакого ожидания. Вы и ваши друзья участвуете в одних и тех же гонках, ваши пути пересекаются, ваши игры сливаются.Тип издания: RepackРазработчик: Ghost GamesЖанр: Racing (Cars), Simulator, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2B817794D6AE389AE5F42577CD6CE01EA0EEE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

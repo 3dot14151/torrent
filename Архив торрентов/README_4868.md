@@ -6,7 +6,7 @@ EOBD Facile: OBD 2 авто сканер v3.71.1079 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27495.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.3194 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27488.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ v2rayN 7.8.3 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27466.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Altus 5.5.2 (Альтернатива WhatsApp Desktop) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27461.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Office Tool Plus 10.20.15.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27460.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ YT Downloader 9.11.22 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27455.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Display Driver Uninstaller 18.0.9.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27447.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 13.02.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27438.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Imagine 1.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27432.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ IObit Uninstaller Pro 14.2.0.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27428.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SQLite Expert Professional 5.5.31.642 RePack (& Portable) by elchupacabra [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27419.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Mock Locations (fake GPS path) v1.29.3 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27418.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Paint.NET 5.1.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27417.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ O&O DiskImage Professional 20.2 Build 346 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27413.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Balabolka 2.15.0.888 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27412.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ FireAlpaca 2.13.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27407.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ R-Wipe & Clean 20.0.2495 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27401.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 11.02.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27399.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ SnapEdit - AI photo editor v7.3.1 Mod by Oflarm [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27397.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ OneCommander Pro 3.95.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27394.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ PhotoLine 25.00 + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27393.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Alfa eBooks Manager 9.1.9 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27371.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Activation Program 1.02 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27355.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ AntiPlagiarism.NET 4.137.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27349.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Vov Sticky Notes 9.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27344.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ XtraTools Professional 25.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27340.jpg" />
 </div>
 
 

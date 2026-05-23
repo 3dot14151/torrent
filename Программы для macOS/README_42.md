@@ -6,7 +6,7 @@ Transmission for Mac 3.00 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799910.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AppGenome - create desktop app from any Website! 1.4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799635.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Mirror for Sony TV 1.4.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799594.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ musicMath Touch 5.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799529.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Textual 7 v7.2.1 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799524.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ PDF Squeezer 4 v4.3.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799500.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ QuickRes 4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799486.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ QuickRes 4.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799222.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Videoloupe for Mac 1.1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799202.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Cinch 1.2.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799130.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Prizmo 4 Pro Scanning + OCR v4.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799073.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Newton (Plugin for After Effects) 2.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798996.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Playr 2.2.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798799.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Display Maestro 5 v5.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798764.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Vitamin-R 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798758.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ iNet Network Scanner 2.8.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798755.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Battery Health 3 v1.0.28 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798454.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Disk Drill Media Recovery 4.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798421.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ SketchUp Pro 2021.1.2 v21.1.331 fix [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798339.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Voice Memo 2.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798307.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Resolutionator 2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798304.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Murasaki 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798297.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Renamer 6.0.6 fix [Ru/En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798291.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Araxis Merge Pro Edition 2021.5644 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798282.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Aurora HDR 2019 1.0.1 fix [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798272.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Archiver 4.0.0 fix [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798255.jpg" />
 </div>
 
 

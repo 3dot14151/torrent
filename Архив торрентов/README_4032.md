@@ -6,7 +6,7 @@ AOMEI Backupper Technician Plus 7.3.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187357.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinRAR 6.24 Beta 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187355.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Photoshop 2023 (24.0.0.59) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187354.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows 10 22H2 x64 Rus by OneSmiLe [19045.2311]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187348.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Display Driver Uninstaller 18.0.6.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187340.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Somerville (2022) [Multi] (1.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187338.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Adobe Acrobat Pro 2022.003.20282 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187316.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ BlueStacks App Player 5.13.5.1001  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187313.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Hard Disk Sentinel PRO 6.10.5 Build 12918 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187307.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ uTorrent Pack 1.2.3.75 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187291.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Adobe Photoshop 2023 24.7.1.741 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187265.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ IObit Driver Booster Pro 11.0.0.21 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187249.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Adobe Photoshop 2024 25.0.0.37 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187221.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Auslogics Registry Cleaner Pro 10.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187181.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Cockos REAPER 6.70 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187178.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Slimjet 37.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187166.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Microsoft Edge 107.0.1418.52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187158.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Skype 8.104.0.207 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187145.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ PowerDirector – Video Editor v12.5.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187136.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ doPDF 11.7.357 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187135.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Sumatra PDF 3.5.15578 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187132.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ GPU-Z 2.51.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187131.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Mp3tag 3.22a + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187130.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ ExamDiff Pro Master Edition 14.0.1.13 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187123.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ SiSoftware Sandra Lite 20/21 R18 (версия 31.112) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187122.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ HWiNFO 7.63 Build 5215 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187121.jpg" />
 </div>
 
 

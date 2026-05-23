@@ -6,7 +6,7 @@ Malia & Boris Blank - Convergence (2014) [FLAC|Lossless]<Electronic, Future Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886431.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nicki Parrott - The Look of Love (2013) [FLAC|Lossless|image + .cue] <Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886421.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Thisbe Vos - Under Your Spell (2013) [MP3|320 кб/с] <Contemporary Jazz, Vocal
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886242.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Wade Legge Trio (1953-1955) 2016, Fresh Sound Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886118.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Marcus Johnson - Chocolate City Groovin' (1998) Encoded Music [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886106.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Onaje Allan Gumbs - That Special Part Of Me (1998) MCA Records[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886097.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Stanley Cowell - Musa: Ancestral Streams (1974) 2006, Bomba Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886059.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Monika Roscher Bigband - 2 Album (2012, 2016) [FLAC|Lossless|WEB-DL|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886050.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Various Artists - Hammond Street (2001) [FLAC|Lossless|image + .cue] <Acid Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886007.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Oscar Peterson - Keyboard 1950 (2005) Membran Music [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885623.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Dwane Dixon - Black Satin Blues (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885575.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Omar & the Howlers - Essential Collection (2011) 2×CD, Compilation [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885563.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Duke Pearson - Now Hear This (1968) Remaster, 2014, Universal[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884801.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Kosuke Mine with Kimiko Kasai - Yellow Carcass In The Blue (1971) Remaster, 2013
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884786.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Dr. Lonnie Smith - Spiral (2010) Palmetto Records[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884760.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Easy Listening: 30 Best Pieces Of Beautiful Instrumental Music (2015) [MP3|
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884614.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Matthew Whitaker - Now Hear This (2019) [FLAC|Lossless|tracks + .cue] <Contempor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884537.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Samantha Fish - Faster (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884454.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ The Oscar Peterson - Big 6 At Montreux 1975 (1997) Original Jazz Classics [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883998.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Benoit Lugue - Cycles (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883737.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Mel Torme - Sunday In New York & Other Songs About New York (1963) Remaster, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883706.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Johnnie Bassett & The Blues Insurgents - I Gave My Life To The Blues (1996) [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883699.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Johnnie Bassett & The Blues Insurgents - Cadillac Blues (1998) [FLAC|Lossless|im
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883637.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Cannonball Adderley - Soul Zodiac (1972) 2008, EMI Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883520.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ The Jive Aces - Recipe For Rhythm (2008) [FLAC|Lossless|image + .cue] <Swing, Ju
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883405.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Orchestre Poly-Rythmo - Cotonou Club (2011) [FLAC|Lossless|tracks + .cue] <Afro-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883198.jpg" />
 </div>
 
 

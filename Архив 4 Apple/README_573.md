@@ -6,7 +6,7 @@ TechSmith Snagit 2023.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200393.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Movist Pro 2.10.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200323.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ App Cleaner & Uninstaller Pro 8.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200321.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ PDF Expert 3.0.37 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199739.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Little Snitch nightly 5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199536.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Disk Drill Enterprise 5.2.1215 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199505.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ AnyTrans for iOS 8.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199366.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VMware Fusion Pro 13.0.2 (build 21581413) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199216.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Cinema 4D Studio 2023.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198796.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ XMind PRO 22.11 (3656) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198603.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ CrossOver 22.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198435.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ ZBrush 2023.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198292.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ CrossOver 22.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198004.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Serato DJ Pro Suite 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197398.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ ON1 Sky Swap AI 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197255.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ iToolab UnlockGo 5.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197174.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Microsoft Office 2021 for Mac LTSC v16.74 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197009.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Davinci Resolve Studio 18.5b4 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196875.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Adobe Illustrator for Mac 2023 v.27.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196802.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Maxon Cinema 4D Studio 2023.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196532.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Audio Hijack 4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196498.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Disk Drill Enterprise 5.3.1308 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196385.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Screaming Frog SEO Spider 19.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195412.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Adobe After Effects 2023 23.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195343.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Davinci Resolve Studio 18.5 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195269.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Adobe Lightroom Classic for Mac 12.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195256.jpg" />
 </div>
 
 

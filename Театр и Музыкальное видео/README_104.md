@@ -1,119 +1,3 @@
-###  Публикация: 1183205   (309951) от 13.11.2017
-
-Iced Earth - Festivals Of The Wicked (2011) 2хDVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Двойной DVD группы, содержащий документальный фильм Festivals Of The Wicked, выступления на Metal Camp Slovenia 2008, Rock Hard Festival 2008, Wacken Open Air 2007 и  видеоклипы.Производство: Century MediaЖанр: Power Metal, Thrash MetalСубтитры: Отсутствуют (док. фильм на английском)Продолжительность: 00:56:30+01:27:45+01:24:22+01:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB74A864AFD630AD9F447DCF7D3343C49F2BC16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959682   (309827) от 27.11.2015
-
-Lacrimosa - Live in Moscow 19.11.2015 (2015) WEB-DL [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Концерт группы Lacrimosa в Москве 19.11.201501.Lacrimosa Theme
-02.Kelch der Hoffnung
-03.Kaleidoskop
-04.Schakal(   Читать дальше...   )Жанр: Концерт, Gothic MetalПродолжительность: 02:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13E03157290A53E1327F659FCD8FC8C1C078246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583798   (309764) от 03.12.2012
-
-Peter Gabriel - Secret World Live (2012) BDRemux
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Переиздание на Blu-ray концерта Питера Гэбриэла, снятого за 2 вечера в итальянском городе Модена в 1993 году.01. Come Talk to Me
-02. Steam
-03. Across the Water
-04. Slow Marimbas
-05. Shaking the Tree
-06. Blood of Eden
-07. San Jacinto
-08. Kiss That Frog
-09. Washing of the Water
-10. Solsbury Hill(   Читать дальше...   )Жанр: Progressive Rock / Art RockПродолжительность: 01:42:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729060   (309479) от 02.12.2013
-
-Насмешливое моё счастье /  Театр им. Евг. Вахтангова (1975) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Драма, телеспектакльРежиссер: Александра Ремизова, Майя МарковаАктеры: Юрий Яковлев, Елена Коровина, Анатолий Кацинский, Юлия Борисова, Евгений Карельских, Елена Добронравова и др.Продолжительность: 01:18:13 + 01:07:59 (02:26:12)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A7CE48FD3017422C7B1554A3E0E61402AFB7E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 418331   (308942) от 04.12.2011
 
 Высоцкий. Последний концерт (1980) SATRip
@@ -122,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308942.jpg" />
 </div>
 
 
@@ -152,7 +36,7 @@ Alice Cooper: Theatre of Death - Live At Hammersmith (2009) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308831.jpg" />
 </div>
 
 
@@ -178,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308776.jpg" />
 </div>
 
 
@@ -207,7 +91,7 @@ Muse - Live in Rome (The Unsustainable Tour) (2013) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308752.jpg" />
 </div>
 
 
@@ -236,7 +120,7 @@ Adriano Celentano - Greatest Video. Vol.1 (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308315.jpg" />
 </div>
 
 
@@ -262,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307911.jpg" />
 </div>
 
 
@@ -288,7 +172,7 @@ Lindsey Stirling - Song of the Caged Bird (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307902.jpg" />
 </div>
 
 
@@ -314,7 +198,7 @@ The Best of...(vol.3) (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307582.jpg" />
 </div>
 
 
@@ -340,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307322.jpg" />
 </div>
 
 
@@ -368,7 +252,7 @@ Peter Gabriel / Secret World Live (1993/2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_307199.jpg" />
 </div>
 
 
@@ -394,7 +278,7 @@ Linkin Park / Road to Revolution - Live at Milton Keynes (2008) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_307195.jpg" />
 </div>
 
 
@@ -420,7 +304,7 @@ Steven Wilson - Home Invasion: In Concert at the Royal Albert Hall (2018) 2xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307108.jpg" />
 </div>
 
 
@@ -449,7 +333,7 @@ Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) DVDR
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306842.jpg" />
 </div>
 
 
@@ -478,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306082.jpg" />
 </div>
 
 
@@ -509,7 +393,7 @@ Slim - Шлягер (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305745.jpg" />
 </div>
 
 
@@ -535,7 +419,7 @@ Rob Orlemans & Half Past Midnight - Open The Cage (2007) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305413.jpg" />
 </div>
 
 
@@ -564,7 +448,7 @@ Scorpions - Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304794.jpg" />
 </div>
 
 
@@ -593,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304276.jpg" />
 </div>
 
 
@@ -622,7 +506,7 @@ The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304202.jpg" />
 </div>
 
 
@@ -651,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303769.jpg" />
 </div>
 
 
@@ -680,7 +564,7 @@ Cesaria Evora - Live D'amor (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303342.jpg" />
 </div>
 
 
@@ -709,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302639.jpg" />
 </div>
 
 
@@ -720,6 +604,116 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36C91744668BF1405FC07754A07B8B68E0BFC771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077840   (302413) от 30.11.2016
+
+Joe Bonamassa - Live at the Greek Theatre '2015 (2016) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт записан в августе 2015 года во время тура "3 KINGS TRIBUTE", посвященного трем королям блюза, и состоит преимущественно из музыки Альберта Кинга, Фредди Кинга и Би Би Кинга. Причем, вещи Элберта Кинга Джо играл на собственной гитаре гиганта, купленной у Стивена Сигала. Концерт был построен как помпезное представление в духе эстрадных шоу 90-х Эрика (   Читать дальше...   )01. Beginnings
+02. See See Baby
+03. Some Other Day, Some Other Time
+04. Lonesome Whistle Blues(   Читать дальше...   )Производство: Mascot Music ProductionsЖанр: BluesРежиссер: Philippe KloseАктеры: Joe Bonamassa & BandПеревод: ОтсутствуетПродолжительность: 02:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D8A2C7A5EF785344F8D944276D2D8571900E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077946   (302216) от 30.11.2016
+
+Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302216.jpg" />
+</div>
+
+
+###  Подробнее
+
+В июне 2016 года легендарный гитарист Ричи Блэкмор (Ritchie Blackmore) воплотил в жизнь мечты многих фэнов, возродив свою группу RAINBOW для трех выступлений в Европе – двух в Германии и одного в Англии. Немецкие шоу в Лореляе и Битигхайме были запечатлены на видео и легли в основу релиза под названием "Memories In Rock - Live In Germany", который увидел (   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: Rock, Hard RockПродолжительность: 01:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E5E0FDF772D65D9BF64586D03A5F721383B5D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078204   (302184) от 30.11.2016
+
+The Rolling Stones: Havana Moon (2016) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302184.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ноябре 2016 года The Rolling Stones на лейбле Eagle Rock выпускают «HAVANA MOON (LIVE)» сразу в нескольких форматах: на Blu-ray, DVD, CD и в цифровом виде. 25 марта 2016 года состоялось уникальное событие - знаменитая британская группа The Rolling Stones приехала на Кубу, чтобы сыграть первый рок-концерт на Острове свободы. Тысячи людей собрались, чтобы послушать (   Читать дальше...   )01. It's About Time...
+02. Jumpin' Jack Flash
+03. It's Only Rock 'N Roll (But I Like It)
+04. Out Of Control(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: Rock, Clasic Rock, КонцертРежиссер: Paul DugdaleСубтитры: Английские, немецкие, испанские, французские, итальянские, португальские, нидерландскиеПродолжительность: 01:50:05 + 00:28:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD9844E8AA4695A815803048B93D6A6B9A24562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077848   (302159) от 30.11.2016
+
+Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302159.jpg" />
+</div>
+
+
+###  Подробнее
+
+В июне 2016 года легендарный гитарист Ричи Блэкмор (Ritchie Blackmore) воплотил в жизнь мечты многих фэнов, возродив свою группу RAINBOW для трех выступлений в Европе – двух в Германии и одного в Англии. Немецкие шоу в Лореляе и Битигхайме были запечатлены на видео и легли в основу релиза под названием "Memories In Rock - Live In Germany", который увидел (   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: Rock, Hard RockПродолжительность: 01:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:342A984C2061BC82B4097B5D41442ABC753C62A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

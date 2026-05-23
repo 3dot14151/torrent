@@ -6,7 +6,7 @@ Hobo: Tough Life (2021) [Ru/Multi] (1.00.023) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016476.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Realpolitiks II (2021) [Ru/Multi] (1.00) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016185.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013648.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Lumberhill (2021) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010727.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Lawn Mowing Simulator (2021) [Ru/Multi] (7142717) License Fairlight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001672.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001612.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cooking Simulator (2019) [Ru/Multi] (2.5.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989644.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Flower (2019) [Ru/Multi] (1.45) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971524.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.7.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963885.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Train Sim World 2020 (2018) [Ru/Multi] (1.0/dlc) Repack Other s [Digital Deluxe 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961709.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Train Sim World: 2020 Edition (2018) [Ru/Multi] (1.0.0.550/dlc) Repack xatab [Di
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956598.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Timber! The Logging Experts (2016) [En/De] (1.0) License PROPHET
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954945.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ World of Subways Vol. 1: New York Underground "The Path" / Метро Нью-Й�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945960.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944458.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944454.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Professional Farmer 2017 (2016) [Multi] (1.3) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931883.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Legend of Merchant (2016) [Multi] (1.83) Unofficial SiMPLEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931791.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Thief Simulator (2018) [Ru/Multi] (1.4) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928682.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Masters of The World: Geopolitical Simulator 3 [En] (L) 2013 | SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927883.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Car Mechanic Simulator 2014 (2014) [Ru/Multi] (1.2.0.5/dlc) Repack R.G. Меха
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927190.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Bus Simulator 18 (2018) [Ru/Multi] (1.0/upd13/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909969.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Subway Simulator (2020) [Ru/Multi] (A 2.8.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909950.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Mainlining (2017) [En] (1.0.06.9536) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902568.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Kitaria Fables (2021) [Ru/Multi] (7286275) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896950.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ OPUS: Echo of Starsong (2021) [Multi] (7280057) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896849.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Bus Driver Simulator 2019 (2019) [Ru/Multi] (5.7.c/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889688.jpg" />
 </div>
 
 

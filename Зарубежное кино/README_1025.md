@@ -1,55 +1,3 @@
-###  Публикация: 922512   (558956) от 03.08.2015
-
-Выскочка / Election (1999) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Настоящая война развернулась между самой активной и нахальной ученицей школы Харвер Хай Трэйси Флик и ее учителем Джимом МакАлистером. Выскочка Трэйси хочет во что бы то ни стало быть избранной президентом школьного совета, а мистер МакАлистер, зная вероломный и склочный характер Флик, готов пойти на все, чтобы этого не случилось. К сожалению, мистер МакАлистер даже (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: КомедияРежиссер: Александр Пэйн / Alexander PayneАктеры: Мэттью Бродерик, Риз Уизерспун, Крис Клейн, Джесика Кэмпбелл, Марк Харелик, Фил Ривз, Молли Хэйгэн, Делани Дрисколл, Коллин Кэмп, Фрэнки ИнграссияПеревод: Двуголосый закадровыйЯзык субтитров: Русские, английскиеПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACA55E3F35A16485C9A83E09FABDEB590723556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 814438   (558941) от 20.08.2014
-
-Шоу Трумана / The Truman Show (1998) BDRip [H.264/720p-LQ] [Hi10P]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Труман Бербэнк узнает, что он — главный герой реалити-шоу, которое снимается с самого его рождения. Все люди, с которыми Труман общается каждый день — актеры. А мир вокруг — всего лишь декорация. Теперь у Трумана появляется выбор: остаться марионеткой в вымышленном безопасном мире или переселиться в мир настоящий, незнакомый и полный опасностей. Зрители, затаив дыхание, (   Читать дальше...   )Жанр: Фантастика, Драма, КомедияРежиссер: Питер УирАктеры: Джим Кэрри, Лора Линни, Ноа Эммерих, Наташа МакЭлоун, Холланд Тэйлор, Брайан Дилэйт, Питер Краузе, Рон Тэйлор, Дон Тэйлор, Тед Рэймонд, Джуди Клэйтон, Джадсон Вон, Энтони Короне, Марио Эрнесто Санчес, Джон Роселиус, Тони Тодд, Роберт Дэвис, Эд Харрис, Пол Джаматти, Адам Томей, Хэрри Ширер, Уна Дэймон, Филип Бейкер Холл, Джон Плешетт, Филип Гласс, О-Лан Джонс, Эл (   Читать дальше...   )Перевод: Многоголосый x3, Авторский x2Язык субтитров: Русский, АнглийскийПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E8EB8D0E1D6C38FBA48460E68F060DA8BA0EA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530604   (558913) от 04.08.2012
 
 Невинная ложь / Innocent Lies (1995) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558913.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558882.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558866.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558862.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558860.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558820.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558819.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558814.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558805.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558801.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558776.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558774.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558768.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558758.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558697.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558695.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558692.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558690.jpg" />
 </div>
 
 
@@ -534,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558689.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558685.jpg" />
 </div>
 
 
@@ -586,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558683.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_558646.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558619.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558614.jpg" />
 </div>
 
 
@@ -676,6 +624,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35ED9AF2321FAC94CFB01E1CB5F4908FF9905502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924292   (558613) от 03.08.2015
+
+Наследие / Legacy (2015) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шон и его четверо друзей собирались на важнейшую вечеринку "Хром", но когда они с треском были изгнаны с нее, Шон узнал, что у его старшего брата есть темная история с клубным промоутером Дэмиеном Чейзом. И Шон решил сделать свою наикрутейшую вечеринку. Когда Дэмиен узнает, что пять друзей планируют свергнуть его империю, он идет на все, уверенный, что (   Читать дальше...   )Производство: Великобритания / Angry Badger Pictures, Plumcourt Legacy, Plumcourt Production, Think Big Productions, Unstoppable EntertainmentЖанр: Драма, КомедияРежиссер: Дэвей Фербенкс, Марк СмоллАктеры: Франц Драмех, Эми Тайгер, МакКелл Дэвид, Джейкоб Чепмен, Акшай Кумар, Алекс Ланипекун, Стивен Кри, Оливия Ченери, Том Дэвис, Келси ХардвикПеревод: Дублированный (iTunes)Продолжительность: 01:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621B9AA4FDD41DC652D8AF34D8674497DFE68DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923382   (558612) от 03.08.2015
+
+Переправа / The Crossing (2014) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558612.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре повествования три пары, чьи судьбы драматически связаны с событиями, которые разворачиваются на фоне военных действий. Фильм основан на реальной трагедии потопления корабля «Тайпин», произошедшем в 1949 году и унесший жизни более 1500 пассажиров и экипажа.Производство: Китай, Япония, Корея Южная, США / Beijing Gallop Horse Film & TV Production, China Film Group CorporationЖанр: драма, историяРежиссер: Джон ВуАктеры: Такеши Канеширо, Цзыи Чжан, Хе Гё Сон, Сяо Мин Хуан, Тун Давэй, Масами Нагасава, Шан Конг, Джек Као, Хитоми Куроки, Боуи Лам, Вэй Ли, Хайлу Цинь, Аарон ШангПеревод: Дублированный (iTunes)Язык субтитров: КитайскиеПродолжительность: 02:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DB849912E0946980D4A2390DF868C71B7818D4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,82 +1,3 @@
-###  Публикация: 1547524   (602994) от 28.04.2022
-
-Валентина Савенко | «Профессиональный дракон» Книга 2. Настоящий дракон (2022) [MP3, Екатерина Еремкина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Драконы никогда не сдаются, а ведьмы всегда идут к цели. Мерит и то и другое. Ведь когда в сердце любовь, никакие заговоры, древние легенды и предсказания не испугают. Даже если придется раскрывать тайны загадочных подземелий и искать прях, сплетающих судьбы. Только бы крылья и походный набор ведьмы не подвели!Жанр: Любовное фэнтези, Юмористическое фэнтезиПродолжительность: 08:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58173E5CBB69A677364FB2EB259300C1C843C67C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547555   (602984) от 28.04.2022
-
-Оксана Гринберга | Отбор для Тёмной ведьмы (2022) [MP3, Лючия Светлая]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Кто она, нелюбимая дочь короля и любимая воспитанница Тьмы, на чьей руке зажглась метка Избранницы Светлого принца? Это и собирается выяснить Лиррит из Норберга, отправляясь в столицу Астора, чтобы принять участие в ненавистном Отборе невест.
-Ведь ей вовсе не нужен принц Айдар из династии Орвик, да и Темной не место в Светлом королевстве! Но Лиррит и не подозревала, (   Читать дальше...   )Жанр: Любовное фэнтези, Юмористическое фэнтезиПродолжительность: 10:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA1E52178FF2244417C630EB1049AC4BE1C88AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547493   (602980) от 28.04.2022
-
-Виктор Моключенко | S.T.A.L.K.E.R. Ретроспект (Книга 4), Витки Спирали (2021) [MP3, Виктор Моключенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Все возвращается на круги своя, и ничего не напоминало о прежней Зоне, разве что иссушенные ветки-стволы, тянущиеся к небу с немой укоризной. Не бродили больше мутанты, не поджидали аномалии, утихла стрельба, исчезнув, словно кошмарный сон человечества. Но что делать в этом новом, дивном, светлом мире путнику, привыкшему воевать?Жанр: ФантастикаПродолжительность: 07:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7D5FBD3DE898A56645CBAA84F3983ED316DEBDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148809   (602964) от 08.07.2017
 
 Сельма Лагерлёф | Избранное (2017) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602964.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602939.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602935.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602924.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602914.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602888.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602866.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602865.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602731.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602553.jpg" />
 </div>
 
 
@@ -345,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602548.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602547.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602534.jpg" />
 </div>
 
 
@@ -425,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602474.jpg" />
 </div>
 
 
@@ -452,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602466.jpg" />
 </div>
 
 
@@ -481,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602427.jpg" />
 </div>
 
 
@@ -509,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602385.jpg" />
 </div>
 
 
@@ -535,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602380.jpg" />
 </div>
 
 
@@ -561,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602336.jpg" />
 </div>
 
 
@@ -588,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602304.jpg" />
 </div>
 
 
@@ -614,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602287.jpg" />
 </div>
 
 
@@ -641,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602249.jpg" />
 </div>
 
 
@@ -667,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602211.jpg" />
 </div>
 
 
@@ -678,6 +599,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBF1BFD2AB13BC9BAB28284461A03C2E00364CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232212   (602204) от 23.06.2018
+
+Жоэль Диккер | Маркус Гольдман (Книга 1). Правда о деле Гарри Квеберта (2018) [MP3, Игорь Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие этой истории с головокружительным сюжетом и неожиданным концом происходит в США. Молодой успешный романист Маркус Гольдман мается от отсутствия вдохновения и отправляется за помощью к своему учителю, знаменитому писателю Гарри Квеберту. Однако внезапно выясняется, что помощь требуется самому Гарри, обвиненному в убийстве, которое произошло в тихом американском (   Читать дальше...   )Жанр: ДетективИздательство: АудиокнигаПродолжительность: 21:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41EFC11F0D5774128EE2F7952A0387259FC9CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547976   (602036) от 30.04.2022
+
+Анна Джейн | «Небесная музыка» Книга 1. Луна (2022) [MP3, Евгения Осинцева]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Санни – талантливая певица, которая играет в собственной группе и мечтает покорить музыкальный Олимп. В ее жизни все идет хорошо, пока она не встречает Дастина – известного актера с отвратительным характером, и Кристиана – богатого наследника, который весело прожигает жизнь.
+Санни и не подозревает, что однажды ей сделают предложение, от которого она не сможет отказаться. (   Читать дальше...   )Жанр: Остросюжетный романПродолжительность: 20:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E290B3D271C3AC0856B6F57D9EAF718AFCBE9AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547867   (601995) от 30.04.2022
+
+Роберт Шекли | Цивилизация статуса (2017) [MP3, Максим Суханов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601995.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Цивилизация статуса» - один из самых известных научно-фантастических романов Роберта Шекли. Главный герой - 27-летний гражданин Уилл Баррент обвинён в убийстве и попадает на планету-тюрьму Омега. Особенностью государственного устройства является то, что каждый гражданин обязан употреблять наркотики, посещать чёрные мессы, нарушать закон и убивать. Баррент ничего (   Читать дальше...   )Жанр: Зарубежная фантастика, Научная фантастика, Социальная фантастикаПеревод: Владимир БакановПродолжительность: 05:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D64814B12130D671A67B9AAADBC0BCD94B30CC70
 ```
 
 https://mybot314.ru/tekegram_catalog/

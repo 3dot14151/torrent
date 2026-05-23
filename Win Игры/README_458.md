@@ -1,29 +1,3 @@
-###  Публикация: 1746634   (44973) от 01.09.2024
-
-Campaign Series: Vietnam (2022) [En] (1.00.00) Scene SKIDROW
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Campaign Series: Vietnam - тактическая пошаговая варгейм-игра, посвященная различным военным конфликтам в Юго-Восточной Азии и в частности войне во Вьетнаме. Игра охватывает знаменитые события 20-го века, которые берут свое начало в послевоенный период с 1948 года по 1967 года. Разработчики постарались сделать бои и локации максимально аутентичными и правдоподобными, (   Читать дальше...   )Тип издания: SceneРазработчик: Campaign Series LegionЖанр: СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34A22629D4603BC255C4FB8AF9683A82608AB1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746640   (44965) от 01.09.2024
 
 Eden Genesis (2024) [Multi] (1.0.012) Scene Tenoke
@@ -32,7 +6,7 @@ Eden Genesis (2024) [Multi] (1.0.012) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44965.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Frogun (2022) [Multi] (1.9.3) License GOG [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44963.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Retail Company Simulator (2024) [Ru/Multi] (1.0.0.4) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44946.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Grim Tales 25: Light in the Darkness (2024) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44936.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Frogun Encore (2024) [Multi] (0.915) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44926.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Highrise City (2022) [Multi] (1.2.2/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44910.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Tomb Raider (2013) [Ru/Multi] (1.01.0.0/dlc) Scene Rune [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44908.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ ENDLESS DAYS Z (2024) [En] (3.0.5) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44904.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.26.2) Repack Wagner
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44898.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки миров (2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44897.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44893.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Call of Sentinels (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44885.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ CODE VEIN (2019) [Ru/Multi] (1.53.61787/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44879.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Sumerian Six (2024) [Ru/Multi] (1.0.0) Scene FAiRLIGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44877.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ NARIBIKIMURA (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44859.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.4/dlc) Repack Wagner
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44854.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ LightRay (2024) [En] (1.0) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44853.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ No Return (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44851.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Bewitching Sinners (2024) [En] (1.9.8.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44810.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Squirrel with a Gun (2024) [Multi] (1.0.2.14) Scene Doge
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44804.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.01) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44803.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9064) Repack FitGirl [Settler Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44801.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ ENDLESS DAYS Z (2024) [En] (3.0.5) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44800.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dimensions (2023) [Ru/Multi] (4.0) Repack FitGirl [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44794.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44775.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4C4D2DBB49279389D19E31397C9F0FB7281F7D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747001   (44755) от 03.09.2024
+
+I Wani Hug that Gator! (2024) [Ru/Multi] (1.6.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44755.jpg" />
+</div>
+
+
+###  Подробнее
+
+I Wani Hug that Gator! погружает вас в жизнь Инко, старшеклассника, столкнувшегося с двойным ударом: неловкостью новой школы и особенностью быть единственным человеком среди динозавров. Проследите за социальными трудностями, зарождающейся дружбой и даже потенциальным романом, когда он будет ориентироваться в этой уникальной среде.Тип издания: SceneРазработчик: CavemanonЖанр: Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B744720A9BA2A4FFC48119DE6ED728D41515090
 ```
 
 https://mybot314.ru/tekegram_catalog/

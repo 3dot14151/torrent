@@ -6,7 +6,7 @@ Daum PotPlayer 1.6.55084 Stable + Portable (x86/x64) by SamLab [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590395.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Baidu Browser 43.18.1000.65 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590392.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Password Depot Professional 7.6.6 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590387.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ EZ CD Audio Converter 3.0.8.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590384.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Internet Download Manager 6.23 Build 14 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590379.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Emsisoft Internet Security 10.0.0.5532 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590376.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Maelstrom 42.0.1.26 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590374.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The KMPlayer 3.9.1.137 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590368.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MEGA Sync Client 2.1.0 (a270a) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590362.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ YoWindow Unlimited Edition 4 Build 32 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590356.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Google Chrome 43.0.2357.132 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590351.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Adobe Flash Player 18.0.0.203 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590338.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Emsisoft Anti-Malware 10.0.0.5532 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590335.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Gtopala SIW (System Information for Windows) 2015 5.2.0707 Technician Portable [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590329.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Maxthon Cloud Browser 4.4.6.2000 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590325.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ AdwCleaner 4.208 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590316.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ USBboot Installer 1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590313.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Cent Browser 1.2.6.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590310.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VirtualBox 5.0.0 r101573 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590309.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Winzip Driver Updater 1.0.648.16469 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590302.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ NVIDIA GeForce Desktop 353.49 Hotfix driver + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590298.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ KMSAuto Helper Lite 1.0.5 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590297.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ ADVANCED Codecs for Windows 7/8/10 5.2.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590295.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Adobe Premiere Pro CC 2015.0 9.0.0 (247) Portable by PortableWares (09.07.2015) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590289.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Adobe Flash Professional CC 2015 15.0.1.179 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590280.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Adobe Dreamweaver CC 2015 16.0.1  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590278.jpg" />
 </div>
 
 

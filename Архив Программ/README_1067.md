@@ -6,7 +6,7 @@ Easy DriverPack 6.5.2015.0712 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505823.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Auslogics BoostSpeed 8.0.2.0 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505821.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ ArtMoney Pro 7.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505811.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ IsMyHdOK 1.81 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505795.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Rohos Logon Key 4.3 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505791.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ FxSound Enhancer 13.027 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505777.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VLC Media Player 2.1.0-git-20120827 (x32/x64) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505686.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ SAM CoDeC and DeCoDeR Pack 2012 4.44 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505643.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Maxthon 3.4.3.1800 Beta [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505576.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Windows 8 Codecs 1.1.8 (x86)/3.7.6 (x64) [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505414.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ PrivaZer 4.0.47 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505373.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Icecream Image Resizer 1.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505368.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ MediaInfo 0.7.77 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505365.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Privacy Eraser Free 4.3.0 Build 1560 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505361.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Icecream Slideshow Maker 1.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505358.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Mozilla Firefox 40.0.3 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505354.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Icecream PDF Split and Merge PRO 2.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505352.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Icecream Screen Recorder 2.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505284.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Icecream PDF Converter PRO 1.61 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505279.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Windows 7 Codec Pack 4.0.5 Final [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505238.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Adobe Audition CS6 5.0 build 708 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505228.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505217.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Skype 7.9.0.103 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505208.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Icecream Ebook Reader 1.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505196.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ ArtRage 6.0.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505162.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ ReviverSoft PC Reviver 3.8.0.28 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505156.jpg" />
 </div>
 
 

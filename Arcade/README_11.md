@@ -6,7 +6,7 @@ Kill to Collect (2016) [En/Multi] (1.1.0.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796673.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Jet Lancer (2020) [Ru/Multi] (1.0.23) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796489.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dead or Alive 5: Last Round (2015) [Ru/Multi] (1.10c/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796082.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Trial by Viking (2016) [En] (1.0.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795895.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Collider 2 (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795858.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ LEGO The Hobbit (2014) [Ru/En] (1.0.0.21750) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795761.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Abyss Odyssey (2014) [Ru/En] (1.14) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795463.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Human: Fall Flat (2016) [Ru/Multi] (107976214) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795421.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04/dlc) License CPY
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795401.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Zombies on a Plane (2016) [Ru/Multi] (1.0 u5/dlc) License 0x0007
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795161.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ LEGO Pirates of the Caribbean / LEGO Пираты Карибского моря 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794774.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Treasures of the Aegean (2021) [Multi] (1.0) License DARKSiDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794745.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Hidden Dragon: Legend (2018) [En/Ja/Ch] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794596.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79.d2f5cadd/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794542.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Apocalypse Hotel (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794419.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Ori and the Blind Forest (2016) [Ru/Multi] (1.0) Repack R.G. Origami [Definitive
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794343.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ The Lightbringer (2021) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793848.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ My Singing Monsters Playground (2021) [Ru/Multi] (2020.3.20.4310246) License TiN
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793737.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ OK K.O.! Let's Play Heroes (2017) [Ru/Multi] (1.0.0.157) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793700.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Blightbound (2021) [Ru/Multi] (1.1-128893/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793676.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Orcs Must Die! 3 (2021) [Ru/Multi] (1.1.0.0/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793675.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ The Bridge (2013) [Ru/Multi] (30.04.2016) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793326.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Ori and the Blind Forest (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [Definitiv
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793202.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Mortal Kombat: Komplete Edition (2013) [Ru] (1.07) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792705.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Epic Chef (2021) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792625.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ The Binding of Isaac: Rebirth (2014) [Ru/Multi] (1.75/dlc) License PLAZA [Comple
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792551.jpg" />
 </div>
 
 

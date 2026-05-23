@@ -6,7 +6,7 @@ AMD Catalyst Application Profiles 12.8 CAP2 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495968.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ashampoo Photo Optimizer RePack/Portable by Boomer 5.1.5 [Русский/Анг�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495965.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Photo Montage Guide 1.5 [Rus|Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495952.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Gilisoft File Lock Pro 10.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495943.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ AntiDupl.NET 2.3.7.197 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495936.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Actual Window Manager 8.5.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495910.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Aiseesoft Screen Recorder 2.1.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495906.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ save2pc Ultimate 5.5.2 Build 1571 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495809.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Handy Start Menu 1.72 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495783.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Wise Game Booster 1.04.12 Beta [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495779.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ PortableApps.com Platform 12.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495763.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Gilisoft Video Editor 7.1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495761.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Punto Switcher 4.1.1 Build 479 Final RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495752.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ WebcamMax 7.6.6.6 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495629.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Wondershare MobileGo 7.9.0.44 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495608.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Total Commander Extended 5.6.0 х86+х64 + Portable by BurSoft (2012) [Англ�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495597.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ ICQ 10.0 build 12367 Portable by Baltagy [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495584.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ XnView 2.34 | Standard | Extended + Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495498.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ HostsConfig 1.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495483.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Serif Affinity Designer 1.6.5.123 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495461.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Avira Free Antivirus 15.0.29.32 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495416.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ F-Secure Freedome VPN 1.0.1842.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495395.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Waves Complete v9r30 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495389.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495356.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ MAGIX Sound Forge Pro Suite 12.1 Build 170 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495353.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ SoftMaker Office Professional RePack/Portable by Boomer (rev 665) [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495350.jpg" />
 </div>
 
 

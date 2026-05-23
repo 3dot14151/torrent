@@ -6,7 +6,7 @@ Reviversoft Registry Reviver 4.2.3.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492242.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ XYplorer 17.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492227.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla Firefox ESR 45.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492220.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Windows and Office Genuine ISO Verifier 11.10.30.22 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492184.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492165.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Wise Disk Cleaner 9.7.7.694 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492116.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Twinkstar 4.5.2000.1808 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492108.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Privacy Eraser Free 4.27.2 Build 2374 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492085.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Tipard Blu-ray Converter 9.2.16 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492084.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Telegram Desktop 1.3.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492058.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Stellarium 0.18.2 + classic [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492013.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Wise Data Recovery 3.82.199 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492012.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Wise Force Deleter Beta 1.23.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492009.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492001.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ GPU Caps Viewer 1.36.2.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491985.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ PicPick Portable 3.1.7 by PortableApps [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491974.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ HyperSnap 7.18.00 [EN]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491973.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Revo Uninstaller Free 2.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491960.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ NetWorx 5.5.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491959.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Mozilla Firefox 49.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491953.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ TaskSchedulerView 1.11 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491910.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Artweaver Plus 6.0.9 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491904.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ FlylinkDC++ r503 build 19011 Stable Portable (x86) + Хаблист [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491903.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Wise PC 1stAid 1.46.65 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491899.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ MKVToolNix 26.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491892.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ LogViewPlus 2.1.14 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491889.jpg" />
 </div>
 
 

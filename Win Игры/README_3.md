@@ -6,7 +6,7 @@ Aphelion (2026) [Ru/Multi] (1.03.1628077) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067767.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Project Vesperi (2026) [Ru/En] (1.5.0) Repack Let'sРlay [Supporter Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067757.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10/dlc) Repack FitGirl [Super Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067743.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Council - Complete Season (2018) [Ru/Multi] (0.9.5.6359) License GOG [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067722.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Burnout Paradise Remastered (2018) [Ru/Multi] (1.0) Repack Wanterlude
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067719.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mass Effect 3 (2021) [Ru/Multi] (2.0.0.48602) Repack FitGirl [Legendary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067709.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mass Effect (2021) [Ru/Multi] (2.0.0.48602/dlc) Repack FitGirl [Legendary Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067707.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mass Effect 2 (2021) [Ru/Multi] (2.0.0.48602) Repack FitGirl [Legendary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067693.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mass Effect (2021) [Ru/Multi] (2.0.0.48602/dlc) Repack dixen18 [Legendary Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067682.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Heroes of Might and Magic Olden Era (2026) [Ru/Multi] (0.80.07) Repack Let'sРla
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067665.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.6.72.0) Repack Let'sРlay [
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067664.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Temtem: Swarm (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067580.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Black Myth Wukong (2024) [Ru/Multi] (30.04.2026) CrackFix voices38
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067502.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Moomintroll: Winter's Warmth (2026) [Ru/Multi] (0.1.1261.refs/dlc) Repack Let's�
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067413.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Aphelion (2026) [Ru/Multi] (1.3.0.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067361.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Aphelion (2026) [Ru/Multi] (1.03.1628077) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067333.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.6.0/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067311.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Heroes of Science and Fiction (2026) [Ru/Multi] (1.0.5rc1) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067095.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Look Outside (2025) [En] (2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067087.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Sudden Strike 5 (2026) [Ru/Multi] (1.02.28385/dlc) Repack FitGirl [Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067032.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Causal Loop (2026) [Ru/Multi] (CL-RC-1.0.1-2026-04-25) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066897.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Trench Lord Eastern Front (2026) [Ru/Multi] (1.03.002.4) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066892.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ REPLACED (2026) [Ru/Multi] (1.0.1102) Repack Other s [Supporter Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066869.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Causal Loop (2026) [Ru/Multi] (cl-1.0-2026-04-23) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066868.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Alaska Gold Fever (2026) [Ru/Multi] (2026.04.25.01) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066857.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Shapez 2 - Factory (2024) [Ru/Multi] (1.0.3-rc3/dlc) Repack Let'sРlay [Supporte
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066836.jpg" />
 </div>
 
 

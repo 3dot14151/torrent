@@ -1,29 +1,3 @@
-###  Публикация: 1243180   (374609) от 13.10.2018
-
-Discovery: Загадки планеты Земля / What on Earth? (2017) HDTVRip (сезон 4, эпизоды 18 из 18)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Чем больше спутников запускают в космос, тем меньше на Земле остается слепых пятен. Теперь, когда снимки из космоса стали частью общедоступных программ, таких как «Google Earth», на суше и на море вдруг стали обнаруживаться различные аномалии. Увлекательная программа «Загадки планеты Земля» возвращается с новым сезоном, где мы продолжим исследовать тайны и загадки (   Читать дальше...   )Производство: США, Wag TV, Discovery Communications, LLC.Жанр: Документальный, наука, космос, историяРежиссер: Сусанна Герберт, Дэниэл Эдвардс, Джон Нуттер...Перевод: Двуголосый закадровый, профессиональный (Мобильное Телевидение)Субтитры: отсутствуютПродолжительность: серии х ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1BBA82D7875C5CC51E120E2D585C683124AF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243181   (374601) от 13.10.2018
 
 Discovery: Загадки планеты Земля / What on Earth? (2017) HDTVRip [H.264/720p-LQ] (сезон 4, эпизоды 18 из 18) [50 fps] (Обновляемая)
@@ -32,7 +6,7 @@ Discovery: Загадки планеты Земля / What on Earth? (2017) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374601.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373880.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BBC: Цивилизация / Civilisation (1969) BDRip [H.264/720p-LQ] (Сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372647.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ BBC. В краю муссонов: Народы муссонов / Wonders of th
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372586.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Discovery: Разрушители легенд. Скрытая угроза / My
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372212.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ NG. Дикая Скандинавия / Wild Nordic (2019) HDTV [H.264/1080i] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371865.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ BBC: Как преуспеть ... / How to Get Ahead (2014) HDTVRip [H.264/720p
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371468.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ NG. 2000-е: Величайшие трагедии / The 2000s Greatest Tragedie
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370514.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370131.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ BBC: Океанская одиссея / BBC: Deep Ocean (2006) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_368330.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ NG: Суперсооружения: Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367688.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ NG: Секретные материалы древности. Святой гр�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367604.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ Discovery: Хакер в дикой природе / Hacking the Wild (2017) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367069.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ BBC: Голубая планета (Голубая бездна) / The Blue Plan
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366431.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ BBC: Авиакатастрофа в Мюнхене / The Munich Air Disaster (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366049.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ History Channel: Хит-парад древности. Первая десятк
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365550.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ History Channel: Хит-парад древности. Первая десятк
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365420.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365203.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ NG: Секретные материалы древности. Кровь Хри�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365186.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ BBC: Враги разума [2 серии] / The Enemies of Reason (2007) DVDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364802.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ NGW: Остров муссонов. Слоненок Лока / Island of the Mo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364093.jpg" />
 </div>
 
 
@@ -586,7 +560,7 @@ NG. Миссия на Марс / Ultimate Mars Challenge (2012) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363970.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ NG. Вся правда о ледяном человеке / Iceman Autopsy (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363835.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ NGW: Остров муссонов. Королева Яла / Island of the Mons
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363832.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ Animal Planet: В дебрях Латинской Америки / Wildest Latin
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363827.jpg" />
 </div>
 
 
@@ -675,6 +649,32 @@ Animal Planet: В дебрях Латинской Америки / Wildest Latin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:456BCB7553DCFA60105833E48DD9276A3EF803C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070799   (363793) от 08.11.2016
+
+Discovery. Как работают машины / Machines: How They Work (2016) HDTVRip (1-10 серий из 10)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание сериала, собственно, заложено в его названии. Многие видели подобные программы - "Как это устроено?", "Как это работает?", из этой передачи вы узнаете о работе самых разных по устройству и назначению машин.Телекомпания: Канада, Discovery ChannelЖанр: документальный, техникаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 10 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEECFA1DFB9E398B0DAC67E3F9AEE728BD942610
 ```
 
 https://mybot314.ru/tekegram_catalog/

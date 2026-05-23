@@ -6,7 +6,7 @@ VA - Top Of The Pops 1979 (2007) CD, Compilation [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289820.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Peter Felippi - Blue Light (1982) LP [MP3|320 Kbps] <Electronic, Krautrock, Synt
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289752.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Zdob si Zdub - Bestiarium (2019) [MP3|320 Kbps] <Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289427.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Quiet Riot - Hollywood Cowboys (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289426.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Foggy Mountain Rockers - Angel Heart (1999) [MP3|160-192 кб/с]<Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287641.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Elvis Presley - Christmas With Elvis And The Royal Philharmonic Orchestra (2017)
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286204.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jesus Culture - 12 Live albums (2006-2018) [MP3|234-320 кб/с]<Praise & Worshi
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285742.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Edge - Edge (1970) Reissue, 2009, Tone Arm [MP3|320 Kbps] <Psychedelic Rock, Har
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284796.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Joe Satriani - Supernova Remix - The Free EP (2016) [MP3|320 Kbps] <Instrumental
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284629.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Sandy and The Wild Wombats - Devoted to Rock`n`Roll (2017) [MP3|320 Kbps] <Rocka
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284062.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ The Alan Bown - Listen & Stretching Out (1970-71) Compilation, 1993, Edsel Recor
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282959.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Van Morrison - Versatile (2017) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282531.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Count Five - Psychotic Reaction (1966) Remastered, 2007, Repertoire Records [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281238.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Falling Up - Falling Up (2015) [OGG|475-507 кб/с]<Alternative rock, Christian
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280924.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Freak Kitchen - Cooking with Pagans (2014) [OGG|503-524 кб/с]<Heavy Metal, Ha
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280780.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Frankie Miller - Frankie Miller's Double Take (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280763.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ The Hoolios - God Invents Rock N Roll (2017) CD [MP3|320 Kbps] <Blues, Zydeco, R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280751.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Greatest Guitar Solos (2007) [MP3|320 kbps] <Rock / Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280654.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Elvis Presley - Elvis: Ultimate Christmas (2015) 2CD [MP3|320 кб/с]<Rock&Roll
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280629.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Foreigner - Double Vision (1978) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279616.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Gary Moore - Blues And Beyond (2017) Box Set 4CD, Limited Edition [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278601.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Paul McCartney - Privet Chuvaki! (Live In Moscow 2011.12.14) bootleg (2011) [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278196.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Tom Morello / The Nightwatchman - The Fabled City (2008) [MP3|128-192 kbps]<Folk
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278131.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Death - For The Whole World To See (1975) Reissue, 2009, Drag City [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277838.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ Help - Help & Second Coming (1971) Unofficial Release, 2000, Free Records [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277835.jpg" />
 </div>
 
 
@@ -750,7 +750,7 @@ VA - Children Of Nuggets - Original Artyfacts From The Second Psychedelic Era 19
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277778.jpg" />
 </div>
 
 

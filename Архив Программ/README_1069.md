@@ -6,7 +6,7 @@ YoWindow Unlimited Edition 3.0 Build 103 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504742.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera Next 12.50.1577 (x86+x64) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504682.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla Firefox 15.0 Final by PortableAppZ [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504672.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ TeamViewer 7.0.14484 Final + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504599.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ AIDA64 Extreme Edition & Business Edition 2.60.2100 Final RePack by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504595.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Coolutils Total PDF Converter 2.1.214 + Portable by Maverick [MULTi / Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504585.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Opera GX 88.0.4412.85 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504570.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Opera 89.0.4447.48 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504467.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ MAGIX Samplitude Pro X7 Suite 18.0.2.22200 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504465.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Vivaldi 1.0.264.3 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504411.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Uninstall Tool 3.6.0 Build 5686 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504380.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Skype 8.86.0.409 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504375.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ AOMEI Partition Assistant Standard Edition 9.8.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504371.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ R-Studio Network 9.1 Build 191020 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504369.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ NirLauncher Package 1.23.62 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504367.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ AlterPDF Pro 5.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504362.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ SIV (System Information Viewer) 5.65 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504361.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ NetAnimate – программа для индикации сетевой ак�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504320.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Telegram Desktop 0.8.55 Stable + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504253.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Hide Folders 5.3 Build 5.3.1.1121 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504241.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ AutoPlay Menu Builder Business 8.0 build 2459 RePack (& Portable) by TryRooM [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504221.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Dimonbizzzz Portable Soft 2.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504210.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ The KMPlayer 3.3.0.33 Final LAV by 7sh3 Portable by Valx [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504197.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Cacheman 10.0.0.1 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504172.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ StartIsBack++ 1.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504168.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Skype 7.9.32.103 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504164.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ War for the Overworld (2015) [Ru/Multi] (1.2.1/dlc) Repack SpaceX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466293.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Max Payne 3 [PS3] [RUS] [PAL] [3.55 Kmeaw] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466177.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465948.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sorcerer King (2015) [En] (1.2) Repack leve1ord
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465935.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464822.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Tom Clancy's Splinter Cell: Blacklist (2013) [Ru] (1.02) RePack YelloSOFT [Delux
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464421.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Borderlands 2 [En] (Repack/1.0) 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464354.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464317.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Borderlands 2 [En] (RePack/1.0) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464210.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Prelude of the Chambered (2011) [En] (1.0) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464149.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Jet Set Radio HD [En/Multi4] (L) 2012 | SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463922.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Renowned Explorers: International Society (2015) [En] (1.0.192) SteamRip R.G. И
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463798.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Tony Hawk's Pro Skater HD [En] (Repack) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462738.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462375.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ F1 2012 [En] (P) 2012 | FAIRLIGHT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462003.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Pro Evolution Soccer 2013 [Ru/Multi6] (L) (2012) | SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461883.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Pro Evolution Soccer 2013 [Ru/En] (RePack/1.0) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461741.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Torchlight II [En] (L) 2012 | RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461658.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ F1 2012 [Ru] (Repack/1.0) 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460154.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459721.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dead Rising 2 [En/Ru] (RePack) 2010 | LoL2xD
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459720.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ F1 2012 [Ru] (Lossless RePack/1.0) 2012 | DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459509.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Torchlight 2 [En] (RePack/1.9.5.1) 2012 | DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459508.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Party Hard (2015) [En] (1.0/upd2) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459454.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ F1 2012 [Ru] (RePack/1.0) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459420.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Torchlight II/2 [En] (P) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459417.jpg" />
 </div>
 
 

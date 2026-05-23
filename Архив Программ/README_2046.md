@@ -6,7 +6,7 @@ Opera GX 107.0.5045.60 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114021.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ IObit Uninstaller Pro 13.4.0.2 Portable by  FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114016.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Process Lasso Pro 14.0.0.40 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114004.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ HWiNFO 7.73 Build 5380 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113999.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ IObit Uninstaller Free 13.4.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113975.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Chromium 122.0.6261.112 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113971.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ LibreOffice 24.2.1.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113934.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ IceCream Ebook Reader Pro 6.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113931.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Google Chrome 122.0.6261.112 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113928.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ GIMP 2.10.36-1 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113922.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Icecream Video Converter Pro 1.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113919.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Icecream Screen Recorder PRO 7.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113918.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Icecream Video Editor Pro 3.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113917.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ USB Device Tree Viewer 4.0.5.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113916.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Icecream Photo Editor Pro 1.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113914.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Sumatra PDF 3.6.15983 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113901.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Skype 8.114.0.214 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113896.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Google Chrome 122.0.6261.112 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113890.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Opera One 108.0.5067.20 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113889.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Skype 8.114.0.214 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113887.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Brave Browser 1.63.169 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113886.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ SQL Dynamite 2.5.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113884.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Icecream Slideshow Maker PRO 5.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113881.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ QOwnNotes 24.3.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113863.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ GeoGebra 6.0.829.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113813.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ PdfFactory Std & Pro 8.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113800.jpg" />
 </div>
 
 

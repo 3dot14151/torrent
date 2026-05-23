@@ -1,29 +1,3 @@
-###  Публикация: 943247   (448443) от 03.10.2015
-
-Lumber Island - That Special Place (2015) [En] (1.0) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-От автора: "Lumber Island – That Special Place” это psychedelic horror adventure с видом от первого лица. Сюжет не ведет вас за руку, только самостоятельно исследовав мир вы узнаете историю этого места, или нет. Атмосфера самое важное, вы не увидите на экране ни одной кнопки, я избавился от свойственного этому жанру инветаря что обеспечивает максимальное погружениеТип издания: ЛицензияРазработчик: DeanForgeЖанр: Action (Survival horror) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B47D8852BCEE4337AAA47466F4639BCD9C86FAF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248038   (448057) от 17.09.2018
 
 Super Lucky's Tale (2018) [Ru/En] (2827966/dlc) Repack xatab
@@ -32,7 +6,7 @@ Super Lucky's Tale (2018) [Ru/En] (2827966/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448057.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.3.85/dlc) License HOODLUM
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448033.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Which [En] (RePack) 2010 | braindead1986
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447928.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Cliff Empire (2019) [Ru/Multi] (1.10b) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447886.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Mystery Solitaire: The Black Raven / Мистический солитер: Че
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447881.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Thrills & Chills - Roller Coasters (2016) [En] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447832.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Dead Island Dilogy (2016) [Ru/Multi] (1.1.2.0/1.1.2.0) SteamRip Let'sPlay [Defin
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447829.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447796.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Don't Knock Twice / Не стучи дважды (2017) [Ru/Multi] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447794.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Five Nights at Freddy's: Sister Location (2016) [En] (1.02) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447748.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Borderlands: Game of the Year Edition [Ru/En] (RePack/1.4.1/4 DLC) 2010 | R.G. S
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447562.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ The Chronicles of Riddick Gold [Ru/En] (RePack/1.0.0.1) 2009 | Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447555.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (Rip/1.00.2) 2012 | Audiosl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447450.jpg" />
 </div>
 
 
@@ -378,7 +352,7 @@ Might and Magic: Heroes VI Gold Edition / Меч и Магия: Герои 6 З�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447437.jpg" />
 </div>
 
 
@@ -405,7 +379,7 @@ Labyrinths of the World 12: Hearts of the Planet / Лабиринты мира 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447130.jpg" />
 </div>
 
 
@@ -431,7 +405,7 @@ Color Guardians (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446791.jpg" />
 </div>
 
 
@@ -457,7 +431,7 @@ Cross of the Dutchman (2015) [Ru/Multi] (1.0.0) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446467.jpg" />
 </div>
 
 
@@ -483,7 +457,7 @@ Leo’s Fortune - HD Edition (2015) [Ru/Multi] (1.0) Repack R.G. Механик�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446290.jpg" />
 </div>
 
 
@@ -509,7 +483,7 @@ Grim Tales 17: Guest From The Future (2019) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446172.jpg" />
 </div>
 
 
@@ -535,7 +509,7 @@ Enchanted Kingdom 5: Descent of the Elders / Зачарованное корол
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446167.jpg" />
 </div>
 
 
@@ -561,7 +535,7 @@ Euro Truck Simulator 2 (2013) [Ru/Multi] (1.32.3s/dlc) License SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445957.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (1.0.0/dlc) License GOG [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445897.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ Dark Realm 3: Lord of the Winds / Темный мир 3: Властелин Ве
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445859.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ Tropico Anthology (2001-2014) [Ru/Multi] Repack/Rip R.G. Механики
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445714.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ The Great Unknown: Houdini's Castle. Collector's Edition / Тайны замка
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445604.jpg" />
 </div>
 
 
@@ -676,6 +650,32 @@ The Great Unknown: Houdini's Castle. Collector's Edition / Тайны замка
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7307505B863D77539BFC67AA56253B9E5FA7D665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550456   (445431) от 27.09.2012
+
+Small Tanks [En] (RePack) 2012
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Small Tanks - 3D игра на популярную тему танчиков. Прохождение начинается простыми миссиями и заканчивается настоящей мясорубкой. Если станет совсем трудно, можно позвать друга и подключить второго игрока. Пройденные миссии сохраняются, по этому можно не бояться потерять заработанные потом и кровью ранги и пройденные миссии. Удачи!(   Читать дальше...   )Тип издания: Переупакованная лицензияРазработчик: Dima KivaЖанр: Arcade / 3DЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A20E82165E2690CD7CB5DD0CA7793083BD8D5F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

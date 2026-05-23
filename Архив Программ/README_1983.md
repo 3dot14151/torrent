@@ -6,7 +6,7 @@ Abelssoft SSD Fresh Plus 2024 13.0.51115 Portable by zeka.k [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131312.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Aiseesoft FoneLab for Android 5.0.30 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131311.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ RizomUV Virtual Spaces / Real Space 2023.0.71 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131291.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AIDA64 Engineer Edition 7.00.6700 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131280.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Illustrator 2024 28.1.0.141 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131268.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Blumentals HTMLPad | Rapid CSS | Rapid PHP | WeBuilder 2011 11.4.0.133 [MULTi / 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131266.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ onOne Perfect Effects 4.0.1 Premium Edition [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131248.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Stereoscopic Player 1.9.6 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131243.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131242.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Abelssoft SSD Fresh Plus 2024 13.0.51115 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131237.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ SpeedFan 4.48 beta 6 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131236.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Recovery Partition for Samsung NP-N102 S / Windows 7 Home Basic (х86) SP1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131213.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ The Bat! Professional 5.3.6 Christmas edition [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131180.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ HWiNFO 7.67 Build 5285 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131072.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ SUMo 3.4.16.191 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131049.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Microsoft PowerToys 0.76.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131024.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ WinISO Standard 6.3.0.4748 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131001.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ StartAllBack 3.7.1 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130993.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Topaz Photo AI 2.1.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130992.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Viber 21.4.0.0 (x64) RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130960.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Transmission 4.0.5 (a6fe2a64aa) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130949.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Krita 5.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130934.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Hard Disk Sentinel PRO 6.10.7 Build 12918 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130915.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Advanced SystemCare Pro 17.1.0.157 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130893.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ USB Safely Remove 7.0.5.1320 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130874.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ PDF24 Creator 11.15.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130842.jpg" />
 </div>
 
 

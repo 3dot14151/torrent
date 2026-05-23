@@ -6,7 +6,7 @@ Prototype 2 (RePack/1.0) [Ru] 2012 l SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572048.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Prototype 2 (Crack) [Multi12/+] 2012 | FLT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572030.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572029.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ StartIsBack++ 1.3.3 RePack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571998.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Viber 6.2.0.1306 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571986.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.00.5100 (&Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571983.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4849.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571980.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571978.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4849.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571977.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Honeyview 5.48 Build 6130 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571966.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ WinToUSB Technician 6.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571961.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Avast Premier 17.5.2303 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571940.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.11.1-f4/dlc) Repack R.G. Catalyst [Deluxe 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571916.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Futuremark 3DMark 2.8.6572 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571914.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ SideFx Houdini FX 17.5.258 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571911.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ UninstallPKG 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571910.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Substance Painter 2019.1.1 Build 3066 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571909.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Murus Pro Suite 1.4.21 (include Vallum 3.2) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571908.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Sketch 55 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571907.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4849.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571906.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Dawn of Man (2019) [Ru/Multi] (1.1.1) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571892.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Simply HDR v3.82 [En] - создания HDR эффекта на фотогра�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571891.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ K-Lite Codec Pack 12.3.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571886.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Nouwa - Redskin / Last Confrontation (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571879.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Signs - Clockout / Acid Test (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571869.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Cruk - Valhalla / Bring The Ruckus (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571865.jpg" />
 </div>
 
 

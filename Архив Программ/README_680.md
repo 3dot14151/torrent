@@ -6,7 +6,7 @@ Unreal Commander 3.57 Build 1215 + GraphXPack + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706320.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mozilla Firefox 53.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706315.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AMD Radeon Software Crimson ReLive Edition 17.4.4 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706314.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Far Manager 3.0 Build 4949 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706303.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ HWMonitor 1.31 Portable by Loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706302.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Clover 3.3.4.04141 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706241.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kaspersky Total Security 2017 17.0.0.611 (b) Final (without Secure Connection) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706228.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ IObit Driver Booster Pro 4.4.0.512 Final RePack (& Portable) by D!akov [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706222.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ WinRAR 5.50 Beta 2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706219.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ CoolUtils Total PDF Converter 6.1.0.143 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706191.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ K-Lite Codec Pack Update 14.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706095.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Chromium 68.0.3399.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706084.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Google Chrome 66.0.3359.117 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706083.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ GreenCloud Printer Pro 7.8.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706081.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ QQ Browser 10.0.972 Portable by Cento8 [Ru/Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705992.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Google Chrome 66.0.3359.117 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705989.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ YTD Video Downloader PRO 5.9.6 (20180315) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705983.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ oCam 280.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705974.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ SIV (System Information Viewer) 5.10 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705952.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Opera 38.0.2220.31 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705951.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ WSUS Offline Update 11.2.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705897.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Microsoft Windows and Office ISO Download Tool 6.02 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705888.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Aiseesoft Video Converter Ultimate 9.0.20 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705877.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Glary Utilities Pro 5.53.0.74 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705865.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ IObit Smart Defrag Pro 5.1.0.788 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705778.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ oCam Screen Recorder 280.0 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705776.jpg" />
 </div>
 
 

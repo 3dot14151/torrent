@@ -6,7 +6,7 @@ Athentech Perfectly Clear WorkBench 4.0.0.2189 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798416.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sublime Text Dev 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798411.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Opera 81.0.4196.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798410.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Whale Browser 2.11.126.23 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798409.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ O&O DiskImage Professional Edition 17.0 Build 424 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798387.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Macrorit Partition Expert 5.8.5 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798377.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ CPUID HWMonitor 1.45 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798372.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798364.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ ESET NOD32 Internet Security 15.0.18.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798335.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Smultron 12 v12.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798320.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BusyCal 2021.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798319.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ BusyContacts 1.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798316.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ GoodNotes 5 v5.7.43 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798314.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Menuwhere 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798311.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798309.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Magic Battery 6.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798308.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Jeremy Olander - Vivrant Radio 023 (Quantum New York City, United States) (2021-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798306.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ One Switch 1.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798305.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Amadine 1.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798303.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Postico 1.5.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798302.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Djs From Mars - Swiss Virtual Nights, Summer Festival 2021, Switzerland (2021-08
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798298.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Geekbench 5 v5.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798288.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Microsoft Edge 95.0.1020.40 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798277.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Firefox Browser 94.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798276.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ iVI Video Converter 4 v4.746 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798274.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Opera GX 80.0.4170.91 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798268.jpg" />
 </div>
 
 

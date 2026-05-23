@@ -6,7 +6,7 @@ Kono Oto Tomare! 2 | Stop This Sound! 2 | Задержите этот звук! 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418207.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kono Oto Tomare! | Stop This Sound! | Задержите этот звук! [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418203.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Fate/Kaleid Liner Prisma Illya: Prisma Phantasm | Судьба: Девочка-�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418189.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Dorohedoro | Дорохедоро [2020, TV, 12 из 12 + 1 из 1] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417830.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders | JoJo`s Bizarre Adventure: Stardus
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417541.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Arslan Senki: Fuujin Ranbu | The Heroic Legend of Arslan: Dust Storm Dance | С�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415893.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Arslan Senki Gaiden | Сказание об Арслане: Происхожде
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415884.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Arslan Senki | The Heroic Legend of Arslan | Сказание об Арслан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415707.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Souten no Ken: Regenesis | Кулак синих небес: Перерожде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415340.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Aguu: Tensai Ningyou | Агу: Куклы-гении [2018, TV, 12] HDTVRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415160.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Kekkai Sensen | Blood Blockade Battlefront | Фронт кровавой бло�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415115.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ High Score Girl | Девчонка не промах [2018, TV, 12] HDTVRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414987.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Kuroshitsuji: Book of the Atlantic | Black Butler: Book of the Atlantic | Тём
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414546.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Hero Mask | Маска героя [2018, Web, 15] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414326.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Hero Mask (2019) | Маска героя (2019) [2019, Web, 9] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414324.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Interlude / Интерлюдия [2004, OVA, 3 ep] DVDrip 576p raw Hi10P
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414113.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Plastic Nee-san / +Tic Elder Sister / Сестрёнка-моделистка [2
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413778.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Kikou Soseiki Mospeada | Genesis Climber Mospeada | Моспида - оружи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413605.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ The God of High School | Царь горы [2020, TV, 13] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413152.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Soba e | Рядом с тобой [2019, Web] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412717.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Madoromi no Vevara | Vevara in Your Dream | Вевара из мира дрём�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412591.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Joshi Kausei | Joshikausei | Беспечные старшеклассницы [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412560.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Keppeki Danshi! Aoyama-kun | Cleanliness Boy! Aoyama-kun | Чистюля! Ао�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412126.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Koi to Uso | Love and Lies | Любовь и ложь [2017, TV, 12 из 12] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411975.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Burn the Witch | Сжечь ведьму [2020, Movie] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411334.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Idolmaster: Cinderella Girls Second Series  / Идолмастер: Золушк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410803.jpg" />
 </div>
 
 

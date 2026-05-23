@@ -6,7 +6,7 @@ Slyders (2025) [Ru/Multi] (1.0.12) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048248.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sleep Awake (2025) [Ru/Multi] (R-1.0-43669) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048196.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sleep Awake (2025) [Ru/Multi] (R-1.0-43669) Scene TiNYiSO
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048194.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Project Motor Racing (2025) [Ru/Multi] (1.5.0.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048146.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Bloodface (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048133.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Lost Ember: Rekindled Edition (2025) [Ru/Multi] (Build 20965378/dlc) Repack FitG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048112.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Total Chaos (2025) [Ru/Multi] (1.035) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048101.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 20805989) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048069.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Netherworld Covenant (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047933.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Brotherhood (2025) [Ru/Multi] (1.0.4) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047886.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Yakuza 0 Director's Cut (2025) [Ru/Multi] (1.11) Repack Let'sРlay [Director's C
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047805.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ No, I'm not a Voenkom (2025) [Ru/En] (build 20799770) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047802.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Yakuza 0 Director's Cut (2025) [Ru/Multi] (1.11) Scene Rune [Director's Cut]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047801.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Mara (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047782.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.2.0.0/dlc) Repack
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047701.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Wall World 2 (2025) [Ru/Multi] (1.0.4.325) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047672.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Junji Ito Maniac: An Infinite Gaol (2025) [Ru/Multi] (1.0.0) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047668.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Surviving Mars: Relaunched (2025) [Ru/Multi] (1.0.0.382125/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047667.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Nitroglycerine! (2025) [Ru/Multi] (1.0.7) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047645.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Windswept (2025) [Ru/Multi] (1.02) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047644.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Ayasa: Shadows of Silence (2025) [Ru/Multi] (1.01 Build 20986812) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047631.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (Build 20964708) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047575.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Ayasa: Shadows of Silence (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047574.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047557.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (1.0) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047509.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Routine (2025) [Ru/Multi] (1.7.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047501.jpg" />
 </div>
 
 

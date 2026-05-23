@@ -6,7 +6,7 @@ Agricultural Simulator 2013 [En] (L) 2012 | SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359496.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Emergency Room 3 / Скорая помощь 2 (2001) [Ru] (1.0) License
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358687.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fishing: North Atlantic (2020) [Ru/Multi] (0.9.221.3829) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357353.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Spintires: The Original Game (2014) [Ru/Multi] (1.3.7/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351656.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Oxygen Not Included (2019) [Ru/Multi] (372041) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351651.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tony Hawk's Pro Skater HD [Ru/En/Multi5] (Lossless Repack/1.0.8788.0) 2012 | R.G
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344847.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Steamburg (2017) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341838.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Train Simulator 2019 (2018) [Ru/Multi] (65.6f) Repack Other s [32 & 64-bit Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337984.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Construction Simulator 2015 (2014) [Ru/Multi] (11.11.2015) License SKIDROW [Gold
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329863.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Police Helicopter Simulator (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308962.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Thief Simulator (2018) [Ru/Multi] (1.02) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306911.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Malzbie's Pinball Collection (2017) [Multi] (1.9.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303145.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.10.2.468/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302812.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Graviteam Tactics: Mius-Front (2016) [Ru/En] (6.0.3598/6/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301674.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.10715/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298399.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Farming Simulator 19 (2018) [Ru/Multi] (1.1.0.0/dlc) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285446.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Whiplash - Crash Valley (2016) [En] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285422.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Afterlife (1996) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279139.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ TIS-100 (2015) [En] (11.27.2017) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276706.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Unholy Heights (2013) [En/Jp] (20171109) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275618.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Project Hospital (2018) [Ru/Multi] (1.0.14611) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272881.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ PRO FISHING SIMULATOR (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272855.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ PC Building Simulator (2019) [Ru/En] (1.5.2/dlc) Repack Sceef
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272359.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Domina (2018) [En] (1.2.11) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269755.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Bee Simulator (2019) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269299.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Two Point Hospital (2018) [Ru/Multi] (1.9.24446/dlc) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266566.jpg" />
 </div>
 
 

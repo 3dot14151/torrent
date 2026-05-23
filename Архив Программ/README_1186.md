@@ -6,7 +6,7 @@ UninstallView 1.32 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442202.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ACDSee Pro 9.0 Build 439 (x86) Lite RePack by MKN (06.10.2015) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442184.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DriverPack Solution Online 16.7.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442180.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Movavi Video Converter 16.0.0 Portable by Valx [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442176.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Norton Internet Security 22.5.4.24 OEM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442174.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.50.3600 Final RePack by P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442173.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Destroy Windows 10 Spying 1.5 Build 475 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442171.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ IObit Driver Booster Pro 6.0.2.628 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442044.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Flip PDF Corporate Edition 2.4.9.25 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442043.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Apowersoft Video Download Capture 6.4.7 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442036.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ BELOFF [dp] 2019.8.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442002.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Unreal Commander 3.57 Build 1431 + GraphXPack + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441995.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Auslogics Disk Defrag Pro 4.7.0.0 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441984.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Advanced IP Scanner 2.4.2601 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441982.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Media Player Classic - Black Edition (MPC-BE) v1.2.1.0 -dev build 3474 + Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441920.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Auslogics BoostSpeed 10.0.16.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441880.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ R-Studio Network Edition 8.11.Build.175357 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441824.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ WinRAR 5.80 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441814.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Elcomsoft Wireless Security Auditor 5.9.359 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441807.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Daum PotPlayer 1.6.63638 DC 13.10.2016 Stable + Portable (x86/x64) by SamLab [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441775.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Skype 7.29.0.101 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441771.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Mojosoft BusinessCards MX v.4.72 Update [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_441721.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ NVIDIA GeForce Desktop 411.63 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441683.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ FastStone Image Viewer 6.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441677.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ O&O Defrag Professional / Server 22.0 Build 2284 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441670.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Daum PotPlayer 1.6.63638 DC 13.10.2016 Stable RePack + Portable by 7sh3 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441592.jpg" />
 </div>
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 386970   (464338) от 14.09.2011
-
-Two Worlds: Game Of The Year Edition [Ru] (RePack) 2008 | Spieler
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В незапамятные времена в мире гремела война. Азираал - темный бог войны - вел бесчисленную армию орков к завоеванию мира. Но его планам не было суждено исполниться. Азираал был повержен, и прах его упокоился в вечной гробнице. Лишившись покровителя, войско орков разбежалось. Воцарился мир... Но через многие тысячелетия гномы обнаружили храм, спрятанный глубоко в недрах гор. Слухи об артефактах, хранящихся в подземном святилище, разнеслись по всему свету. Из тьмы веков поднялась страшная угроза. Неизвестная чума черным ураганом обрушилась на мир.
-В начале великого пути дорога наемника приведет тебя на дальний север. Впервые с тех пор, как исчезла твоя сестра, ты напал на след ее похитителей. Ты встретишься с посланниками Темного Братства - это они забрали твою сестру, чтобы получить старинную реликвию вашей семьи. Люди верят, что ваш род - избранный. Но сейчас это уже неважно. Если ты хочешь увидеть сестру живой, нужно действовать и действовать быстро...Тип издания: RePackЖанр: RPG / Action / 3D / 1st Person / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA9C87B3611BC55E175AE868B9352948CE703EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941092   (463865) от 26.09.2015
 
 Anomaly Anthology (2011-2014) [Ru/Multi] (19.09.2015) RePack R.G. Механики
@@ -33,7 +6,7 @@ Anomaly Anthology (2011-2014) [Ru/Multi] (19.09.2015) RePack R.G. Механик
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463865.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ Bridge to Another World 9: Christmas Flight / Мост в Другой Мир 9:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463805.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ Assault Android Cactus (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463791.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ Star Hammer: The Vanguard Prophecy (2015) [En] (1.0.9) Repack leve1ord
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463759.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ Battlefleet Gothic: Armada (2016) [Ru/Multi] (1.7.9962/dlc) Repack R.G. Меха
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463502.jpg" />
 </div>
 
 
@@ -163,7 +136,7 @@ Mystery Case Files 19: Moths to a Flame (2019) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463259.jpg" />
 </div>
 
 
@@ -189,7 +162,7 @@ Prey - Mooncrash (2018) [Ru/En] (1.10) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463040.jpg" />
 </div>
 
 
@@ -215,7 +188,7 @@ Silent Hill: Alchemilla (2015) [Ru/En/Es] (1.1) Mod White Noise Team
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462990.jpg" />
 </div>
 
 
@@ -241,7 +214,7 @@ Project Remedium (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462906.jpg" />
 </div>
 
 
@@ -267,7 +240,7 @@ Worms W.M.D (2016) [Ru/Multi] (1637.583366/dlc) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462822.jpg" />
 </div>
 
 
@@ -293,7 +266,7 @@ Silent Hill: Alchemilla (2015) [Ru/En] (1.02) Repack R.G. Freedom
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462818.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ Neverwinter Nights: Enhanced Edition (2018) [Multi] (78.8186/dlc) License CODEX 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462693.jpg" />
 </div>
 
 
@@ -345,7 +318,7 @@ Dark Deception (2018) [Ru/Multi] (1.6.0/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462676.jpg" />
 </div>
 
 
@@ -371,7 +344,7 @@ Age of Empires (2019) [Ru/En] (27805) Repack R.G. Механики [Definitive E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462674.jpg" />
 </div>
 
 
@@ -397,7 +370,7 @@ Nevertales 4: Legends (2015) [En] Unofficial [Collector's Edition / Коллек
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462514.jpg" />
 </div>
 
 
@@ -423,7 +396,7 @@ Sinister City (2010) [Ru/Multi] License PROPHET
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462242.jpg" />
 </div>
 
 
@@ -449,7 +422,7 @@ The Raven: Legacy of a Master Thief (Episode 3: A Murder of Ravens) (2013) [En] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462156.jpg" />
 </div>
 
 
@@ -481,7 +454,7 @@ Inversion [Ru/En] (Repack/1.0.u1) 2012 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461661.jpg" />
 </div>
 
 
@@ -509,7 +482,7 @@ Metel - Horror Escape (2020) [Ru/En] (0.279) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461613.jpg" />
 </div>
 
 
@@ -535,7 +508,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.4.2/dlc) Repack West4it
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461531.jpg" />
 </div>
 
 
@@ -561,7 +534,7 @@ Winter Ember (2022) [Ru/Multi] (1.6.0_526e457) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461523.jpg" />
 </div>
 
 
@@ -587,7 +560,7 @@ Selma and the Wisp (2016) [Ru/Multi] (1.0/u2/dlc) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461460.jpg" />
 </div>
 
 
@@ -613,7 +586,7 @@ Parallels Cross / Пересечение судеб (2016) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461429.jpg" />
 </div>
 
 
@@ -639,7 +612,7 @@ Mystery Tales 4: Her Own Eyes / Загадочные истории 4: Её гл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461339.jpg" />
 </div>
 
 
@@ -665,7 +638,7 @@ Legend of Grimrock 2 (2014) [En] (2.2.4) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460777.jpg" />
 </div>
 
 
@@ -676,6 +649,32 @@ Legend of Grimrock 2 — это ролевая игра в стиле dungeon cr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:426DBB533BF05F869D139AFEBC6C2F512A4ACBC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246366   (460756) от 11.09.2018
+
+Flynn & Freckles (2018) [En/Es] (3.0.0.5) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flynn & Freckles — молодой пират по имени Флинн решил отправиться на поиски самого ценного сокровища: меча капитана Фрекла. Но оружие оказалось одержимо духом старого капитана. Теперь вместе им предстоит столкнуться со всеми опасностями, поджидающими их на пути, и отыскать оставшиеся сокровища. Flynn & Freckles — экшен, в котором вам предстоит много исследовать (   Читать дальше...   )Тип издания: LicenseРазработчик: Rookie Hero GamesЖанр: Adventure, Casual, PuzzleЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAEA2A30F76DD76954D37738878F22FFD64EB8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

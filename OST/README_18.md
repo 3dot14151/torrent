@@ -6,7 +6,7 @@ Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376341.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Howard Drossin & RZA - Человек с железными кулаками (20
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375454.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ James Newton Howard - Fantastic Beasts and Where to Find Them / Фантасти
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373682.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer V
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371566.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ VA - Музыка Экрана. Коллекция Ридерз Дайджест
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370985.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ VA - The Elder Scrolls (Collection Original Soundtrack) (1994-2016) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368682.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ L'One - 1985 (2017) Из т/с «Чернобыль 2. Зона отчужден
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364908.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Ennio Morricone - So Sweet,So Sensual Erotica Morricone (2004) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363215.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Geoff Knorr, Roland Rizzo, Phill Boucher - Sid Meier's Civilization VI (Original
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359347.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Orbital - Pusher / Дилер (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357789.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капк�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356732.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Brian Tyler - The Devil We Know / Дьявол, которого мы знаем
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356642.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Johann Johannsson - Mandy / Менди (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356641.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356638.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдал
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356632.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355959.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Lorne Balfe - Geostorm / Геошторм (Original Motion Picture Soundtrack) (
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355940.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Mark Mothersbaugh - Thor: Ragnarok / Тор Рагнарёк (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355501.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352004.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ L'Orchestra Cinematique, British Academy Players - Stranger Things / Очень 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352003.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351715.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Thomas Newman - Spectre (Original Motion Picture Soundtrack) (2015) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349149.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Fernando Velazquez - A Monster Call / Голос монстра (2016) [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348804.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Hans Zimmer, Rupert Gregson-Williams - The Crown / Корона: Season One (Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347394.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ Kyle Dixon & Michael Stein - Stranger Things 2 / Очень странные д�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346575.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345612.jpg" />
 </div>
 
 

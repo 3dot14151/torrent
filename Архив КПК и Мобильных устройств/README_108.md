@@ -6,7 +6,7 @@ PDF Extra: сканер и редактор 10.5.2136 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188504.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ XY VPN - Security Proxy VPN 4.7.124 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188487.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188206.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ WPS Office + PDF 18.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188075.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Gradient v2.9.75 Mod by KirillCXV [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188003.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ WPS Office + PDF 18.2.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187992.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ All-In-One Offline Maps v3.13 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187979.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ SD Maid v5.6.1 Extra Mod + Dark-Venom Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187969.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Listen Audiobook Player v5.1.1 (957) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187397.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ SD Maid v5.6.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187364.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ PowerDirector – Video Editor v12.5.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187136.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Moon+ Reader Pro v8.4 (build 804002) Mod by Balatan, Mixroot,  Lucky Las [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187097.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Plus Messenger (Telegram+) v10.0.9.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186570.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ vpnify - Безлимитный VPN 2.1.4.4 Mod by YouAreFinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186538.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ jetAudio HD Music Player Plus v11.2.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186395.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ InShot - Фото и видеоредактор v1.971.1418 Mod by Mixroot [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186219.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ vpnify - Безлимитный VPN 2.1.4.5 Mod by YouAreFinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186149.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Prison Empire Tycoon v2.0.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186026.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ TranslateZ - Переводчик камеры v1.9.7 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185074.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Photo & Picture Resizer v1.0.278 [Ru/Multi] (обновляемая)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184350.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ jetAudio HD Music Player Plus v11.2.7 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183920.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Plus Messenger (Telegram+) v10.1.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_183145.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Moon+ Reader Pro v8.4 (build 804005) Mod by Balatan, Mixroot,  Lucky Las [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183042.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ jetAudio HD Music Player Plus v12.0.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182953.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Farming Simulator 20 v 0.0.0.63 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_182810.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Niagara Launcher 1.7.10 Mod by Taz [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182260.jpg" />
 </div>
 
 

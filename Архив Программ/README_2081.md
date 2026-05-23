@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.95 (0409) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104732.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.96 (0509) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104727.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Atlantis Word Processor 4.4.1.0 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104726.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Subtitle Edit 4.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104723.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sandboxie 5.69.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104713.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sandboxie plus 1.14.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104707.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Vivaldi 6.9.3447.41 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104706.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Viber 23.5.0.0 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104704.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Advanced Renamer 4.02 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104696.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Jetbrains RustRover 2024.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104683.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ XMedia Recode 3.6.0.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104676.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Process Lasso Pro 15.0.0.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104674.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ USB Device Tree Viewer 4.4.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104669.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ PageEdit 2.3.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104668.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Sigil 2.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104667.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Audacity 3.6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104664.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Telegram Desktop 5.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104663.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ XYplorer 26.40.0000 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104652.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ PdfFactory Std & Pro 9.04 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104595.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Sandboxie 5.69.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104560.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ XYplorer 26.40.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104352.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ GeoGebra 6.0.857.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104314.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ PilotEdit Lite & Pro 19.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104311.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ FinePrint 12.05 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104310.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ KORG - Wavestate Native 1.3.8 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104308.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ KORG - Modwave Native 1.2.8 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104307.jpg" />
 </div>
 
 

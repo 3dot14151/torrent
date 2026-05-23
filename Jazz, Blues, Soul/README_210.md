@@ -6,7 +6,7 @@ Will Downing - A Dream Fulfilled (2008) [FLAC|Lossless]<Jazz,  Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641852.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Snowy White - Highway To The Sun (1994), Reissue/2010, Repertoire Records [MP3|3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641843.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jeff Beck - Loud Hailer (2016) [MP3|256 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641798.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Joe Cocker (Джо Кокер) - Дискография (1969-2013) [MP3|320 Kbp
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641419.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Jazzpospolita - Impulse (2012) [MP3|320 kbps] <Nu jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641401.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - More From The Other Side Of The Trax (2017) [FLAC|Lossless|tracks + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641303.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Jazzpospolita - Impulse (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_641263.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Budapest Ragtime Band - Annyi arc Ismeros  (2007) [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641223.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Bobby Short - Loves Cole Porter & Guess Who's in Town (1971, 1987) 2CD, 2001, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641192.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Joe Wilder - The Pretty Sound & Jazz from 'Peter Gunn' (1959) 2003, Collectables
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641190.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Artie Shaw and His Orchestra - 22 Original Big Band Hits (1938, 1939) 1987, Hind
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641182.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Terence Blanchard - The Comedian (2017) Blue Note [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641180.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Tommy Dorsey And His Orchestra - Big Band Bash (1935 - 1947) 1990, Giants Of Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641177.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Rusty McCarthy - Messin' with the Blues (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641084.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Harry James & His Orchestra - You'll Never Know (1962 - 1969) 1995, Reader's Dig
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641079.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Smooth Jazz Essentials (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641052.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Blues Company - Songs with No Words (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640977.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Steve Lacy - Sortie + Disposability (1965, 1966) 2010, FreeFactory[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640291.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Carles Denia - El Paradis De Les Paraules (2011) Comboi Records[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640289.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Jack Teagarden - Father Of Jazz Trombone 1928-1947 (2004) 3CD, Avid Entertainmen
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640288.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Charlie Mariano & Jerry Dodgion Sextet - Beauties Of 1918 (1957) Remaster, 2011,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640286.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Andre Fisichella - Seduction (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640277.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Royal Southern Brotherhood - The Royal Gospel (2016) [MP3|320 Kbps] <Blues, Gosp
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640202.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Chilled Jazz Vol.2 (2016) [MP3|320 Kbps] <Jazz, Lounge>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640108.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Layla Zoe - Breaking Free (2016) [FLAC|Lossless|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640100.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Andrew Hill - Dance With Death (2012) [FLAC|Lossless]<Jazz, Post-Bop, Modern Cre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639933.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1636060   (197810) от 28.05.2023
-
-Доисторическая планета / Prehistoric Planet (2023) WEB-DLRip (сезон 2, серии 1-5 из 5) Невафильм
-
->>Зарубежные TV-бренды
->>Доисторический мир
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Новая серия документальных фильмов от Джона Фавро и продюсеров сериала «Планета Земля» познакомит вас с прежде невиданными чудесами нашего мира. Вы вернётесь на 66 миллионов лет назад, когда землю, океаны и небо населяли величественные динозавры и множество других необычайных существ.Производство: США, Великобритания / Apple TV, BBC StudiosЖанр: документальный, доисторический мир, реконструкцияРежиссер: Энди Джонс, Адам ВалдезПеревод: Профессиональный многоголосый (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские, английские, украинские | отдельными файламиПродолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB0CCF3E9FADC03762014A6613279E51A749F9F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637520   (197462) от 04.06.2023
 
 Невероятный мир динозавров / Amazing Dinoworld (2019) WEB-DL [H.264/1080p] (сезон 1, серии 1-2 из 2) Невафильм
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197462.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197360.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197323.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ NG: Владычицы морей / Shark Queens (2022) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197310.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197293.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197268.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ NG. Первый император: секреты китайской гроб�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197249.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197212.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197099.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ NG. Титаник: 20 лет спустя с Джеймсом Кэмероно�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196856.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ NG. Акула против тунца / Shark vs Tuna (2018) WEB-DL [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196715.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Discovery. Канализационные водолазы / Sewer Divers / (202
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196625.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ NG. Затонувшая субмарина фашистов / Nazi Sunken Sub (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196531.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ BBC: Тайны Бермудского треугольника / The Bermuda Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196491.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ NG. Арабские Эмираты с высоты птичьего полёт�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196410.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196167.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195856.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195674.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ PBS: Американский опыт: Осуждение Роберта Опп
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195477.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195322.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195142.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ NG. Затонувшие сокровища нубийских фараонов 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195075.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ NG. Линии Наски: Раскрытые тайны / Nasca Lines: Unlockin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195069.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Unch
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195051.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ NG: Самые опасные животные: От пустыни до сав�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195039.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ NG: Самые опасные животные: От пустыни до сав�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E0B855CF8A6CC2A450F04EBB4A336478B743F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498469   (195035) от 28.07.2023
+
+NG. Самая огромная акула-бык / World's Biggest Bull Shark (2021) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Морской эколог доктор Нил Хаммершлаг объединяется с бывшим бойцом королевской морской пехоты Джеймсом Глэнси и эволюционным биологом доктором Тоби Дейли-Энгелем, чтобы выяснить, как Биг Булл, одна из самых крупных когда-либо пойманных тупорылых акул, выросла такой гигантской. А также узнать, не существуют ли другие подобные громадины.Производство: США, Red Rock Films, National GeographicЖанр: Документальный, фаунаРежиссер: Дэвид С. ФальконеПеревод: Одноголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADAA2A4A3B69AEEE8EB488019EACBF4BD009FA26
 ```
 
 https://mybot314.ru/tekegram_catalog/

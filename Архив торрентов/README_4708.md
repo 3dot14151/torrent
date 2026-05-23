@@ -6,7 +6,7 @@ Adguard 7.17.0 (7.17.4705.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59314.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NIUBI Partition Editor 9.9.5 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59305.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ IObit Driver Booster Pro 11.4.0.57 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59304.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Google Chrome 124.0.6367.61 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59294.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.7.9 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59293.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Fitify: Фитнес тренировки дома 1.70.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59290.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Telegram Desktop 4.16.8 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59286.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ MediaInfo 24.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59282.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Process Lasso Pro 14.0.2.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59281.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Google Chrome 124.0.6367.61 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59280.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mullvad Browser 13.0.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59278.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Wise Registry Cleaner Pro 11.1.4.719 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59277.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Macrorit Partition Expert 8.1.6 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59276.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ O&O Defrag Professional 28.0 Build 10014 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59274.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ R-Studio Network 9.4 Build 191303 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59233.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Cent Browser 5.1.1130.82 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59231.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Office Installer & Office Installer+ 1.14 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59217.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ R-Drive Image Technician 7.2 Build 7201 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59216.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59207.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ XviD4PSP 8.1.78 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59205.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Adobe Bridge 2024 14.0.4.222 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59204.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ GPU-Z 2.59.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59203.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Malwarebytes Windows Firewall Control 6.10.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59201.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.6 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59200.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Macrorit Disk Scanner 6.7.3 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59199.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ FanControl V187 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59186.jpg" />
 </div>
 
 

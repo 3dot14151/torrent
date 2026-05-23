@@ -6,7 +6,7 @@ Marmoset Toolbag 5.00 (5007) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40619.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FocusWriter 1.8.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40600.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CrystalDiskInfo 9.5.0 Beta 3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40591.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FastStone Capture 10.8 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40587.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Alfa eBooks Manager 8.6.39.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40586.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TreeSize Professional 9.2.1.1907 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40582.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ OpenNumismat 1.9.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40576.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Chasys Draw IES 5.32.01 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40569.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ GoldWave 7.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40558.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Advanced SystemCare Pro 18.0.1.156 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40553.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ R-Studio Network 9.4 Build 191370 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40550.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Windows Manager 2.0.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40534.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ PDF-XChange PRO 10.4.2.390 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40532.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ PDF-XChange Editor Plus 10.4.2.390 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40517.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Tablacus Explorer 24.10.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40490.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ KMSAuto++ Portable 1.9.9 b03 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40449.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ CorelDRAW Technical Suite 2024 25.2.1.313 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40440.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40439.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ CorelDRAW Graphics Suite 2024 25.2.1.313 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40437.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Inkscape 1.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40426.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ FL Studio Producer Edition 24.1.2.4394 - All Plugins Edition [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40414.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ K-Lite Codec Pack Update 18.6.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40407.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ XnView MP 1.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40404.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ TweakPower 2.062 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40398.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ UltraSearch Professional 4.5.0.1057 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40396.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ CudaText 1.218.0.2 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40376.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VirtualBox 7.1.10 Build 169112 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15589.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Studio Network 9.5 Build 191520 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15586.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AOMEI Backupper Technician Plus 7.5.0 (DC 05.06.2025) RePack by KpoJIuK [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15533.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DxO PhotoLab Elite 8.6.0 build 589 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15505.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ R-Studio Network / Technician 9.5 Build 191520 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15501.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15475.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Acrobat Pro 2025.001.20521 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15431.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 03.06.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15405.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Hard Disk Sentinel PRO 6.30.1 Build 13402 Beta RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15401.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Tor Browser Bundle 14.5.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15399.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15398.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ dBpoweramp Music Converter 2025.06.05 Reference (x64) Portable by FC Portable [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15389.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Display Driver Uninstaller 18.1.1.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15388.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ K-Lite Codec Pack 19.0.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15379.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Microsoft Activation Scripts (MAS) 3.4 portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15330.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ WinToUSB Technician 9.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15289.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ EasyUEFI Technician 6.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15275.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VueScan Pro 9.8.46.06 RePack (& Portable) by elchupacabra (DC 05.06.2025) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15267.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ StartAllBack 3.9.10 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15226.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Activation Program 1.12 b02  Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15194.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ ScreenToGif 2.41.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15184.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ PrivaZer Pro 4.0.106 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15182.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ K-Lite Codec Pack 19.0.1 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15094.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ PotPlayer 250514 (1.7.22542) RePack (& Portable) by elchupacabra (10.06.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15090.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ DISMTools 0.6.2.25052 (Update 1) + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15087.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ The Bat! Professional 11.4.2.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15086.jpg" />
 </div>
 
 

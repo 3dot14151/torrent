@@ -1,29 +1,3 @@
-###  Публикация: 1662304   (187854) от 17.09.2023
-
-Swords and Fairy 7 (2021) [Multi] (2.1.0/dlc) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Sword and Fairy 7 - китайская приключенческая ролевая игра c элементами "уся" (китайское фэнтези с упором на восточные боевые искусства) и "шэньмо" (различные китайские божества, культивация и поиск бессмертия, полеты на мече) от китайской студии Softstar. Разработчики обещают эпичный и драматический сюжет, а центром истории станет конфликт между (   Читать дальше...   )Тип издания: SceneРазработчик: Softstar Technology (Beijing) Co., Ltd.Жанр: RPG, Action, AdventureЯзык озвучки: КитайскийЯзык субтитров: Английский, Китайский (упрощённый, традиционный)Язык интерфейса: Английский, Китайский (упрощённый, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DC93F15843F623FCA05417B3CD87F7289A72AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129395   (187842) от 17.09.2023
 
 Downfall: Redux (2016) [Ru/Multi] (1.1.3) License GOG
@@ -32,7 +6,7 @@ Downfall: Redux (2016) [Ru/Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187842.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Lorelai (2019) [Ru/Multi] (1.1.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187836.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Unsolved Case: Fatal Clue (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187747.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Reflections of Life 11: Spindle of Fate / Отражения жизни 11: Ве
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187731.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Sucker for Love: First Date (2022) [Multi] (2.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187654.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Steelrising (2022) [Ru/Multi] (Build 9770876/dlc) Repack Other s [Bastille Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187624.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Boti: Byteland Overclocked (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187606.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Ugly (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187556.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Twin Mind 4: Nobody's Here (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187475.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (20221004_1217_27401) Repack Other 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187337.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Alder Forge (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187269.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Horizon Chase 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187230.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Strike Force 3 (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187225.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Suicide Guy (2017) [Ru/Multi] (1.70) Scene Plaza
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187051.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Suicide Guy (2021) [Ru/Multi] (1.0) Scene Plaza [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187047.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Suicide Guy: Sleepin' Deeply (2018) [Ru/Multi] (1.30) Scene HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187037.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Suicide Guy: The Lost Dreams (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186969.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Gunbrella (2023) [Ru/Multi] (1.0.3) Scene Tenoke [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186686.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Gunbrella (2023) [Ru/Multi] (1.0.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186664.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Summum Aeterna (2023) [Ru/Multi] (1.0.004) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186660.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Myth or Reality 2: Mystery of the Lake / Мифы или реальность 2:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186545.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Knight Cats: Leaves on the Road / Коты-рыцари: Листья на до�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186537.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (4607) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186525.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Hello Engineer: Scrap Machines Constructor (2023) [Ru/Multi] (1.3.13u802) Scene 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186509.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Knight Cats 2: Waves on the Water (2023) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186390.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Knight Cats 2: Waves on the Water (2023) [En] (1.0) Unofficial [Collector's Edit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94E248E1CB8FD3422BBFAD07AC1AA3248F354D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827448   (186310) от 21.10.2025
+
+Erannorth Renaissance (2024) [En] (1.0.03) Scene Tenoke
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Erannorth Renaissance - это RPG, в которой каждое решение формирует разворачивающееся путешествие. Игроки перемещаются по обширному миру, свободно прокладывая свой собственный путь, участвуют в пошаговых сражениях и взаимодействуют с целым рядом уникальных героев. Игра сочетает в себе настольную механику и экспансивное повествование, предлагая множество возможностей (   Читать дальше...   )Тип издания: SceneРазработчик: Spyridon ThalassinosЖанр: Приключенческие игры, Инди, Ролевые игры, Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA9B73ADB757F5B306037EF3CD6306129CEF3B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

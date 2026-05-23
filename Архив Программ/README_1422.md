@@ -6,7 +6,7 @@ Wavesfactory TrackSpacer 2.5.3 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316414.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kirnu - Cream 1.2.4 VSTi (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316407.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Basilisk 2018.11.04 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316389.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Auslogics Duplicate File Finder 8.2.0.1 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316309.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mp3tag 2.99 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316303.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Auslogics BoostSpeed Pro 11.2.0.1 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316292.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Etcher 1.5.60 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316282.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ LibreOffice 6.3.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316262.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ CCleaner 5.12.5431 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316214.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe Bridge CC 2018 (8.0.0.262) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316193.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ iZotope - Insight 2 2.00.212 VST, VST3, AAX (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316164.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Daum PotPlayer 1.7.14804 Stable RePack (& Portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316126.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316120.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ ID Photos Pro 8.5.3.11 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316048.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ MediaInfo 19.09 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316021.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AusLogics Disk Defrag Ultimate 4.11.0.3 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316019.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Pepakura Designer 4.1.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316015.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Reg Organizer 7.60 Portable by Kopejkin [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315979.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ iZotope - Ozone 8 Advanced 8.02.1012 STANDALONE, VST, VST3, AAX (x86/x64) RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315955.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315873.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5365.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315842.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Adobe Acrobat Pro DC 2022.003.20258 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315829.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ YouTube Video Downloader PRO 5.8.1 (20161111) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315797.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Display Driver Uninstaller 18.0.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315788.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Rainmeter 1.3 Full & 1.4 Beta [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315728.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Blackmagic Design DaVinci Resolve Studio 16.1.0.055 RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315715.jpg" />
 </div>
 
 

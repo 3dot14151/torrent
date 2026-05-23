@@ -6,7 +6,7 @@ ExLibris 10.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734336.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734335.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Allavsoft Video Downloader Converter 3.22.8.7514 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734333.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ OmniFocus Pro 3.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734317.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Morph Age 5.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734316.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ HazeOver 1.8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734312.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ultra Mood - Angry Clown (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734310.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ DxO PhotoLab 3 ELITE Edition 3.3.2 (build 60) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734309.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Vivaldi 3.1.1929.48 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734278.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ MassTube Plus 14.0.0.400 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734271.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Viber 13.5.0.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734269.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ YTD Video Downloader PRO 5.9.18.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734265.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Firefox Browser 79.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734260.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Movavi Video Converter 20 Premium 20.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734237.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Sublime Merge 1.1.1.6 Build 2027 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734233.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Wise Registry Cleaner Pro 10.3.1.690 (DC 22.07.2020) RePack (& portable) by elch
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734232.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Auslogics BoostSpeed Pro 11.5.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734228.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Microsoft Edge 84.0.522.48 (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734224.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734191.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Google Earth Pro 7.3.3.7786 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734186.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Google Earth Pro 7.3.3.7786 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734151.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ AnyDesk 6.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734145.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Ableton - Live Suite 10.1.17 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734144.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ CleanMyMac X 4.6.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734139.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Tenpouibun Ayakashiayashi / Ghost Slayers Ayashi / Странная истори
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734136.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Hard Disk Sentinel PRO 5.61.11463 Final Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734118.jpg" />
 </div>
 
 

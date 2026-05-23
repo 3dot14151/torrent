@@ -6,7 +6,7 @@ Soda Player 1.4.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716361.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SoundMate for SoundCloud 3.3.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714815.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Movavi Video Converter 8.3.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711121.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Elimisoft PDF Creator 1.0.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703473.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ SPlayerX 4.1.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695663.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Audirvana 3.5.39 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694033.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ myTuner Radio Pro 2.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693140.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ iTube Studio 7.4.7 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692391.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Any Video Converter Ultimate 6.1.10 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690048.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Total Video Player Pro 2.9.5 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686792.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Aimersoft Video Suite 12.0.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686704.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ YouTubeHunter Pro 5.6.5 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684190.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ JustBroadcaster YTEd 1.7.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679144.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Kigo Video Converter Ultimate 6.1.5 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678959.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ SPlayerX 1.2.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674146.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ MP4tools 3.6.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_673007.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ MPV 0.18 (git-c57304a) [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671963.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ TryToMP3 4.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666727.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ MP4Tools 3.7.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664408.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Any DVD Ripper Pro v3.7.89 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664198.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Any FLAC Converter v3.8.29 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664134.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Tipard Video Converter Ultimate v9.1.16 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663105.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Replay Converter 3.0.2 U2B [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662400.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Replay Music 3.0.2 U2B 3.0.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662392.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Replay Media Catcher 3.0.2 U2B [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662306.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Replay Video Capture 3.0.2 U2B [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662305.jpg" />
 </div>
 
 

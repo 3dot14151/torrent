@@ -1,29 +1,3 @@
-###  Публикация: 1165319   (430054) от 14.09.2017
-
-Still Life 2 (2009) [Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Кто же скрывается под именем мистера Икс? В игре Still Life 2 вас ждет долгожданный финал оригинальной Still Life и новое расследование агента Виктории МакФерсон. Осенью 2008 года Викторию отправляют в штат Мейн, где было обнаружено тело Эллен Данниган. Характер действий преступника, а также отправленное полиции и прессе видео не оставляют сомнений: Мучитель с Восточного (   Читать дальше...   )Тип издания: LicenseРазработчик: GameCO StudiosЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F28FBE5BBE1D1476A74704021F01A17528EE3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165748   (429969) от 14.09.2017
 
 Grand Ages: Medieval (2015) [Ru/Multi] (1.1.2.21069/dlc) Repack R.G. Catalyst
@@ -32,7 +6,7 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.1.2.21069/dlc) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429969.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Bloody Zombies (2017) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429953.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Realms of Arkania: Blade of Destiny (2013) [En/Ge] (1.36/dlc) License PROPHET [C
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429684.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Mafia II: Definitive Edition (2020) [Ru/Multi] (1.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429285.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Okaeri (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429221.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ WRC 8 FIA World Rally Championship (2019) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429215.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Viking Brothers 6 / Братья викинги 6 (2019) [Ru] (1.0) Unofficial [
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429211.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Planet Zoo (2019) [Ru/Multi] (1.2.5.63260) License EMPRESS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429077.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Automobilista (2016) [Multi] (1.5.24/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429015.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Still Life 1, 2 (2005-2009) [Ru] (1.00) Repack R.G. Механики [Dilogy / �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428732.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Toren (2015) [Ru/Multi] (1.0) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428627.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Desktop Dungeons (2013) [En] (1.56/dlc) Repack R.G. Механики [Enhanced E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428626.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ The Darkness II (2012) [Ru/En] (1.1) Repack R.G. Механики [Limited Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428464.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Damnation (2009) [Ru] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428459.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Mythic Wonders 2: Child of Prophecy / Мифические чудеса 2: Ди�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428341.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Fear for Sale 5: The 13 Keys / Страх на продажу 5: 13 ключей
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428305.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Fear for Sale 7: City of the Past / Страх на продажу 7: Город
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428186.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Dungeons 2 (2015) [Ru/Multi] (1.6.1.31/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427745.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ BAJA: Edge of Control HD (2017) [Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427736.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Dark Canvas 3: A Murder Exposed (2015) [En] Unofficial [Collector's Edition / К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427252.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Mafia: Definitive Edition (2020) [Ru/Multi] (1.0.3) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427198.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0/dlc) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427171.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Redemption Cemetery 7: Clock of Fate (2015) [En] Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427159.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Elly Cooper and the City of Antiquity (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427156.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.12) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427012.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Commandos 2: HD Remaster - это обновлённая версия культ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2831FD59C85E792CE1A92F8AF8950FD4849B389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946375   (426932) от 13.10.2015
+
+Whispered Secrets 4: Golden Silence / Нашептанные Секреты 4: Молчание - золото (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертая часть игры из серии «Whispered Secrets ». Две трагические истории, мистический сюжет которых впитал в себя все худшие и лучшие качества людей. Молодая женщина и жена, отправившегося за заработки горняка, просит о помощи в розыске ее мужа Билла. Следы расследования приводят вас в недружелюбный город, где пропажа людей уже стала частью истории города.Тип издания: Неофициальное изданиеРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4929ECDDF1A3AA241FFAEF8B2871B0A5A5D5CEBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

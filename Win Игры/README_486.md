@@ -1,29 +1,3 @@
-###  Публикация: 1762875   (35876) от 28.11.2024
-
-THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.5.9) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Действие игры происходит в 2032 году. Вы — Гарри Герман, сотрудник научной компании Delta Laboratories, которая занималась изучением путешествий между мирами. Вы участвовали в проекте, который должен был принести пользу всему человечеству, но что-то пошло не так. Все, что вы помните, это слова "Принцип Мюллер-Пауэлла". Вам нужно разгадать значение этих (   Читать дальше...   )Тип издания: RepackРазработчик: Three Dots GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FCA364F7ED091A8C7A343B7C80C85AF130E3F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762901   (35865) от 28.11.2024
 
 KAKU: Ancient Seal (2024) [Ru/Multi] (Build 780639323/dlc) Repack Let'sРlay [The Collector's Edition]
@@ -32,7 +6,7 @@ KAKU: Ancient Seal (2024) [Ru/Multi] (Build 780639323/dlc) Repack Let'sРlay [Th
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35865.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Town of Light (2016) [Multi] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35858.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Shredders (2022) [Ru/Multi] (Glacier/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35851.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ ASKA (2024) [Ru/Multi] (1.4.2711242013) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35816.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Hive Jump 2: Survivors (2024) [Ru/Multi] (1.1.1853) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35796.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Deep Inside (2024) [En] (Build 16288203) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35793.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (0.10.6) Repack Wanterlude [Early A
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35789.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/Multi] (1.02/dlc) Repack Wanterlude 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35779.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Neckbreak (2019) [Ru/Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35772.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.11) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35771.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Luma Island (2024) [Ru/Multi] (1.19219) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35768.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ GigaBash (2024) [Ru/Multi] (1.5.2/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35767.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Marvel’s Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35766.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Satisfactory (2019) [Ru/Multi] (1.0.1.0/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35761.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ MXGP 24: The Official Game (2024) [Ru/Multi] (1.0/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35760.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (2.2.0 696260/dlc) Repack Let'sРlay [De
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35688.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ IL-2 Sturmovik: Cliffs of Dover / Ил-2 Штурмовик: Битва за Б�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35685.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.3-CL364034/dlc) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35673.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4d/dlc) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35672.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Sky Oceans: Wings for Hire (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35671.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ A pet shop after dark (2022) [Ru/Multi] (1.051) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35667.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Wayfinder (2023) [Multi] (1.0/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35662.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Half Billion: Love Choice (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35661.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35656.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35655.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED2AB3B67DB79B37DA1DC0244D951FF386FE6B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763278   (35654) от 30.11.2024
+
+The Long Drive (2019) [Ru/En] (2024.11.26b test) Repack Pioneer [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35654.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Long Drive – приключенческий гоночный симулятор с тематикой апокалипсиса и элементами выживания в жестоких условиях окружающего мира. Из особенностей сразу стоит отметить то, что мир способен изменяться совершенно случайным образом, что не позволит тебе предвидеть или обойти стороной ты или иную опасную ситуацию. Ты всегда должен быть готов к неожиданным поворотам (   Читать дальше...   )Тип издания: RepackРазработчик: GeneszЖанр: Экшены, Приключенческие игры, Казуальные игры, СимуляторыЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF052264A682EBFC0D3F3ED2F4BA9702D663EF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Google Chrome 43.0.2357.81 Enterprise (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664126.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cumulative Update KB4023680 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664103.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Easy Video Logo Remover 1.3.9 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664102.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ RedGate .NET Developer Bundle 1.8.2.539 + SmartAssembly 6.9.0.114 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664086.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Adguard Премиум 5.10.2024.6316 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664069.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Daum PotPlayer 1.7.2233 DC 26.05.2017 Stable RePack + Portable by 7sh3 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664061.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Autodesk AutoCAD Mechanical 2018 SE x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664057.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Cyberfox 52.7.4 for AMD + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664015.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Adguard Премиум 5.10.2025.6326 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663987.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Autodesk AutoCAD Architecture 2018 SE x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663977.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AdminPE10 2.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663960.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ DVDPean Pro 5.8.0 [EN] Installer + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_663917.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Cyberfox 52.7.4 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663908.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Kaspersky Small Office Security 4 Build 15.02.361 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663884.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ ArchiCAD 18 Build 5100 (x64) + ArchiSuite, Cadimage, Goodies [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663881.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Chromium 68.0.3424.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663827.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Flip PDF Professional 2.4.9.17 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663819.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Mozilla Thunderbird 13.0.1 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_663790.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ GoldWave 6.32 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663698.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Tor Browser Bundle 7.5.4 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663632.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Total Commander 7.56a Vi7Pack 1.81 Final [Русский,Английский] +
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_663526.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ vReveal Premium 2.2.1.10160 [Русский+Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_663455.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ BurnAware Professional 8.1 DC 22.05.2015 RePack (& Portable) by Pilot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663420.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Magic Data Recovery Pack(Magic Uneraser v.3.1+Magic Photo Recovery v.2.0) Magic 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_663311.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_663213.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Perfectly Clear WorkBench 4.1.0.2256 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663203.jpg" />
 </div>
 
 

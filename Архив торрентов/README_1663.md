@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_673397.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mozilla Firefox 38.0.5 beta 3 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673364.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GOM Player 2.1.26.5021 Beta [Multi + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_673349.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Global Trance Festival Vol. 3 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673337.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ TextLab 1.3.3 (134) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673334.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Smooze 1.1.47 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673327.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Abyssinians - Satta Massagana (1975) Pre-Abbyssinians [MP3|320 Kbps] <Roots 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673307.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Mark of the Ninja [En] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673299.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Icecream Screen Recorder PRO 5.50 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673291.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Notepad++ 6.7.8.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673275.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ BBEdit 11.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673243.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Markus Schulz - Global DJ Broadcast - (guest Paul Oakenfold) (2017) [MP3|320 Kbp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673235.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673228.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Blend S | Садистская смесь [2017, TV, 12 эп.] WEB-DL 720p raw
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673206.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Rowbyte Plexus 3.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673200.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ TeamViewer 10.0.42650 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673185.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ TeamViewer Corporate 10.0.42650 + PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673184.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Daum PotPlayer 1.6.54133 DC 15.05.2015 Stable + Portable (x86/x64) by SamLab [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673182.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ QTranslate 5.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673175.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Google Chrome 43.0.2357.65 Stable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673174.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Ophiolatry - Transmutation (2008) [MP3|320 кб/с]<Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673168.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ The Ordeal - Descent from Hell (2012) [MP3|256 кб/с]<Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673167.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Fourever - Solitarium (2012) [MP3|320 кб/с]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673164.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Atom Fishing (L) [Ru] 2010 {v1.0.10.144}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_673156.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VA - Paul Oakenfold - Dreamstate Volume One (Mixed by Paul Oakenfold) (2017) [MP
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673139.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Duplicate Photos Fixer Pro 1.9.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673136.jpg" />
 </div>
 
 

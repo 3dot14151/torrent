@@ -1,81 +1,3 @@
-###  Публикация: 802376   (628593) от 05.07.2014
-
-Агата Кристи | Месть Нофрет. Смерть приходит в конце (2014) [MP3, Татьяна Ненарокомова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Описанные в этой книге события происходят за 2000 лет до нашей эры в Египте, а точнее, на западном берегу Нила возле Фив, ныне Луксора. Место и время действия выбраны автором произвольно. С таким же успехом можно было назвать другие место и время, но так уж получилось, что сюжет романа и характеры действующих лиц оказались навеяны содержанием нескольких писем периода (   Читать дальше...   )Жанр: ДетективПродолжительность: 09:23:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D51EF72391AB7609F9CBC31AB4EA584492F47D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521041   (628557) от 10.07.2012
-
-Александр Шакилов | Остроги: Атака зомби [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Москву вот-вот уничтожат. Неведомый враг подчинил своей воле армию зомби и отправил на штурм неприступной Стены. Жизнь тысяч мирных жителей в опасности. Данила Сташев и его боевые товарищи из диверсионного отряда «Варяги» должны узнать, что же произошло на самом деле, кто за всем этим стоит, а затем нейтрализовать угрозу, не считаясь с потерями. Но сумеют ли они справиться с могущественным врагом?..Жанр: Постапокалиптика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1827B0CDDA0C9F11EB477888E231D7B1A7648A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292324   (628491) от 08.04.2019
-
-Григорий Ряжский | Человек из Красной книги (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Казахстанская степь. Побережье Крыма. Московские Котельники - такова география событий в новом романе Григория Ряжского. Гений, создатель и основоположник отечественного ракетостроения. Художник, чьи картины уничтожены теми, кто продолжает слепо ненавидеть людей чуждой им крови. Талантливая молодая женщина, чья жизнь трагически обрывается в самый непредсказуемый (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 14:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D6E2019B7FB692095A76D78F3B3A940B0AA117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293622   (628490) от 08.04.2019
 
 Ясмина Хадра | Это как день посреди ночи (2019) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628490.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628486.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628484.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628483.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628482.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628479.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628478.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ Viki - Сказки на Ночь I-II  [2011-2012] [MP3, WAV, FLAC]
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628448.jpg" />
 </div>
 
 
@@ -308,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628369.jpg" />
 </div>
 
 
@@ -335,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628366.jpg" />
 </div>
 
 
@@ -361,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628365.jpg" />
 </div>
 
 
@@ -387,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628364.jpg" />
 </div>
 
 
@@ -415,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628363.jpg" />
 </div>
 
 
@@ -441,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628358.jpg" />
 </div>
 
 
@@ -470,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628357.jpg" />
 </div>
 
 
@@ -496,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628265.jpg" />
 </div>
 
 
@@ -522,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628263.jpg" />
 </div>
 
 
@@ -549,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628261.jpg" />
 </div>
 
 
@@ -575,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628260.jpg" />
 </div>
 
 
@@ -601,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628259.jpg" />
 </div>
 
 
@@ -628,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628249.jpg" />
 </div>
 
 
@@ -655,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628243.jpg" />
 </div>
 
 
@@ -681,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628239.jpg" />
 </div>
 
 
@@ -692,6 +614,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E517D782A3853162C2176A4FDBA61D1A412B1DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293141   (628237) от 08.04.2019
+
+Богдан Сушинский | Правитель страны Даурия (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман известного писателя, Богдана Сушинского посвящен событиям, связанным с деятельностью генерал-лейтенанта, Верховного Главнокомандующего вооруженными силами Дальнего Востока, «правителя страны Даурия» или «Российской Восточной Окраины», походного атамана Амурского, Уссурийского и Забайкальского казачеств Григория Семёнова. В основу романа положены малоизвестные (   Читать дальше...   )Жанр: Военные приключенияПродолжительность: 15:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AE28ACDD95F824534D6C4EFE59008E1C1C5CEF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292975   (628154) от 08.04.2019
+
+Роберт Брындза | Детектив Эрика Фостер (Книга 5). Холодная кровь (2019) [MP3, Ксения Бржезовская]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628154.jpg" />
+</div>
+
+
+###  Подробнее
+
+На берегу Темзы находят потрепанный чемодан, в котором лежит расчлененный труп мужчины. Жуткое убийство приводит детектива Эрику Фостер в шок. Она расследовала множество кровавых преступлений, но с подобной жестокостью столкнулась в первый раз. Эрика и ее команда берутся за дело и вскоре узнают, что двумя неделями ранее был обнаружен такой же чемодан с трупом молодой (   Читать дальше...   )Жанр: Современный детектив, триллерИздательство: АудиокнигаПродолжительность: 10:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20773E2434429127FD05EC9786DC452AC20EB71F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293455   (628145) от 08.04.2019
+
+Татьяна Устинова | Селфи с судьбой (2017) [MP3, Леонтина Броцкая]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628145.jpg" />
+</div>
+
+
+###  Подробнее
+
+В магазинчике "Народный промысел" в селе Сокольничьем найдена задушенной богатая дама. Она частенько наведывалась в село, щедро жертвовала на восстановление колокольни и пользовалась уважением. Преступник - шатавшийся поблизости пьянчужка - задержан по горячим следам… Профессор Илья Субботин приезжает в село, чтобы установить истину. У преподавателя физики (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 10:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FDA16730A65E936CC48EA4FB6D7755105CE15A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

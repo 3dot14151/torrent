@@ -6,7 +6,7 @@ Windows Update MiniTool 16.01.2016 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965421.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Freemake Video Converter 4.1.9.4 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965376.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Defraggler 2.20.989 Professional | Technician Edition RePack (& Portable) by D!a
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965369.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ashampoo WinOptimizer 12.00.45 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965366.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Transmission-Qt 2.84.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965362.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VirtualBox 5.0.14 r105127 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965361.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Raxco PerfectDisk Professional Business 14.0 Build 890 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965360.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ IObit Driver Booster Pro 3.2.0.696 Final Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965316.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Ashampoo Uninstaller 6.00.14 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965300.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4787.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965254.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ XYplorer 20.80 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965175.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ PTE AV Studio Pro 10.0.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965174.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Ashampoo Burning Studio 2020 1.21.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965127.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ ScreenToGif 2.20.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965121.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ eM Client Pro 7.2.37923.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965068.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Ashampoo Burning Studio FREE 1.21.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965066.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Ummy Video Downloader 1.10.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965059.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Xilinx Vitis™ Unified Software Platform 2019.2 [En](unpacked)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965054.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.1.0.1.2111  Beta (x32/x64) + Por
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965041.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Format Factory 5.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965008.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ YouTube By Click Premium 2.2.124 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964998.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Adobe Flash Player 32.0.0.330 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964994.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ O&O ShutUp10 1.7.1407 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964989.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ BlueStacks App Player 4.170.10.1001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964943.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Internet Download Manager 6.36 Build 7 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964932.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ BlueStacks Tweaker 6.1.11 alpha Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964930.jpg" />
 </div>
 
 

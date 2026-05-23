@@ -6,7 +6,7 @@ Maxon ZBrush 2023.2 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195429.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ventoy 1.0.94 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195421.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195420.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Brave Browser 1.56.11 Portable by Cento8 + ext [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195414.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Screaming Frog SEO Spider 19.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195412.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Blackmagic Design Fusion Studio 18.5 Build 73 (x64) RePack by AlekseyPopovv [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195410.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Magic Recovery Software 2023.07 Portable by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195406.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ AOMEI Backupper Technician Plus 7.3.0 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195400.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ DogLinux Debian 12 Bookworm 2023.07.21 [x86, amd64] 2xDVD 2xCD (ISO)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195384.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Windows 11 (9in1) by Updated Edition (19.07.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195350.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Adobe After Effects 2023 23.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195343.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195333.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ TweakPower 2.041 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195326.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Hetman Partition Recovery 4.8 Home / Office / Commercial / Unlimited Edition ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195294.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Davinci Resolve Studio 18.5 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195269.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ SoftMaker Office Professional 2024 rev. S1202.0723 RePack (& portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195228.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ uTorrent Pro 3.6.0 Build 46846 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195226.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v10 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195221.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Luxion KeyShot Pro 2023.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195219.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Snappy Driver Installer Origin R755 | Драйверпаки 23.07.0 / 23.07.3 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195211.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v10 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195195.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ PhotoRoom v4.6.1 Mod by KirillCXV, Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195179.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Adguard 7.14.0 (7.14.4316.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195177.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ ADB AppControl 1.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195171.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Nik Collection by DxO 6.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195161.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ CrystalDiskInfo 9.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195159.jpg" />
 </div>
 
 

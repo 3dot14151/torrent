@@ -6,7 +6,7 @@ Perfectly Clear WorkBench 4.1.0.2261 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653964.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PDF24 Creator 8.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653943.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Opera 85.0.4341.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653914.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ CrystalDiskInfo 8.16.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653912.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Zoner Photo Studio X 19.2203.2.374 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653908.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Maxthon Browser 5.2.2.3000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653867.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ BurnAware Professional 11.3 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653858.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ FileMenu Tools 7.3.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653844.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ O&O ShutUp10 1.9.1427 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653816.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Movavi Video Editor Plus 22.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653815.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Google Earth Pro 7.3.4.8573 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653811.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Visual Studio Code 1.65.2 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653805.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Adobe Shockwave Player 12.3.3.203 (Full/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653771.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ BluffTitler Ultimate 14.0.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653764.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Isotoxin v 0.4.528 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653758.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ PDFMate PDF Converter Professional 1.87 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653694.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ MetaProducts Offline Explorer Enterprise 7.5.4620 SR1 Portable by punsh [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653686.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ ReviverSoft PC Reviver 2.16.3.8 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653674.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Everything 1.4.1.877 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653666.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Reg Organizer 7.81 Final + Portable  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653665.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ EssentialPIM Pro 7.51 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653658.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ WinSnap 4.0.5 + Portable by Valx [English+Rus(русификатор)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_653655.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Boilsoft Video Joiner 6.57.10 / Video Splitter 6.34.8 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_653644.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Windows 11 21H2 x64 Rus by OneSmiLe [22000.593]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653636.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ AutoDesk - AutoCAD 2023 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653634.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Core Temp 1.12.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653594.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Kagewani: Shou [2016, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677953.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kiznaiver [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677945.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bungou Stray Dogs | Бродячие псы литературы [2016, TV, 12] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677933.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ One Piece Film Z / Ван-Пис: Фильм двенадцатый [2012, MV] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677712.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kuma Miko / Жрица и медведь [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673925.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ High School Fleet / Hai-Furi / Морская школа [2016, TV, 12] HDTV 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673673.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Tanaka-kun wa Itsumo Kedaruge / Всегда вялый Танака-кун [201
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671732.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Muhyo to Roji no Mahouritsu Soudan Jimusho | Muhyo & Roji's Bureau of Supernatur
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670868.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Muhyo to Roji no Mahouritsu Soudan Jimusho 2 | Muhyo & Roji's Bureau of Supernat
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670863.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Mini Toji | Katana Maidens: Mini Toji | Мини-жрицы [2019, TV, 10 + SP] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670135.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Egao no Daika | The Price of Smiles | Цена улыбки [2019, TV, 12 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670128.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Unhappy / Anne-Happy / Невезучие [2016, TV, 12] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669977.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Ragnastrike Angels / Ангелы Рагнастрайк [2016, TV, 12] WEB-DLRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669903.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Ansatsu Kyoushitsu (2016) / Assassination Classroom (2016) / Класс убий
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669872.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Netoge no Yome / And You Thought There Is Never a Girl Online? / А ты дум�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669745.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ RWBY / Red White Black Yellow / Красная, Белая, Чёрная, Жёл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669120.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Kamigami no Asobi / Game gods / Игры богов [2014, TV, 12 из 12] HDTV 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668922.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Eiga Koe no Katachi | A Silent Voice | Форма голоса [2016, Movie] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668816.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Hunter X Hunter OVA 1 / Охотник х Охотник OVA-1 [2002, OVA, 8] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668283.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Garo: Vanishing Line | Гаро: Линия схода [2017, TV, 24] WEBRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666930.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Shinigami no Ballad: Momo the Girl God of Death / Ballad of a Shinigami / Мом
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_665963.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Shuten Douji / Star Demon / Звездный Демон [1989, OAV, 4] DVDrip ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_664771.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Yojouhan Shinwa Taikei / The Tatami Galaxy / Cказ о четырех с пол
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_664756.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Dragon Age: Dawn of the Seeker / Эпоха дракона: Рождение И�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664520.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Re:Creators | Возрождающие [2017, TV, 22 эп.] BDrip 1080p 10bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663764.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Mahou Shoujo Lyrical Nanoha: Reflection | Magical Girl Lyrical Nanoha: Reflectio
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663763.jpg" />
 </div>
 
 

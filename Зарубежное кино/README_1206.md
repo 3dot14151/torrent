@@ -1,59 +1,3 @@
-###  Публикация: 552256   (443601) от 28.09.2012
-
-Приговор / The Statement (2003) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Бывший нацистский палач, сумевший избежать правосудия, скрывается под чужим именем в южной Франции, выдавая себя за католического священника. Когда расследование военных преступлении возобнавляется, за бывшим нацистом начинают охоту и следователи, и неизвестные наёмные убийцы.
-
-Бескомпромиссная служительница закона Анна-Мари Ливи и армейский полковник Ру ведут во Франции поиски неуловимого нацистского преступника. Пьер Броссар много лет скрывается от правосудия в уединенных монастырях, но теперь ему грозит реальная опасность. После дерзкого покушения на свою жизнь Броссар узнает, что неизвестная еврейская группировка вынесла ему смертный приговор, и теперь ее наемники должны казнить Броссара, пришпилив к его телу текст сурового вердикта.
-
-Ливи и Ру знают, что у хладнокровного палача есть влиятельные покровители в католической церкви и правительстве, которые сделают все, чтобы скрыть грязную правду о своих связях с фашистами. Удастся ли им разоблачить этот заговор и схватить Броссара, который намерен бежать из (   Читать дальше...   )Жанр: Политика, Триллер, ДрамаРежиссер: Норман ДжуисонАктеры: Майкл Кейн, Тильда Суинтон, Джереми Нортэм, Алан Бейтс, Шарлотта Рэмплинг, Джон Невилл, Киаран Хиндс, Фрэнк Финлей, Уильям Хатт, Мэтт Крэвен и др.Перевод: Профессиональный (многоголосый, закадровый)Язык субтитров: РусскиеПродолжительность: 01:54:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163834   (443584) от 08.09.2017
-
-Польские легенды: Твардовски 2.0 / Legendy Polskie Twardowsky 2.0 (2016) WEBRip [H.264/1080p-LQ] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Однако дьявол Борута и его посланница так просто не сдаются. Новейшие достижения техники против отчаянного поляка. Победитель может быть только один!Производство: Польша |  Allegro, Platige ImageЖанр: Короткометражный, фантастика, комедияРежиссер: Томек БагиньскиАктеры: Роберт Венцкевич, Александра Каспшик, Томаш Драбек, Пётр МахалицаПеревод: Одноголосый закадровый (NewStation)Субтитры: Русские, английские, польскиеПродолжительность: 00:20:20Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63D56C4F0B24B926650B820CDF635F9F3E95E7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164011   (443580) от 08.09.2017
 
 Польские легенды: Яга / Legendy Polskie Jaga (2016) WEBRip [H.264/1080p-LQ] [VO]
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443580.jpg" />
 </div>
 
 
@@ -88,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443568.jpg" />
 </div>
 
 
@@ -114,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443552.jpg" />
 </div>
 
 
@@ -140,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443539.jpg" />
 </div>
 
 
@@ -166,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443515.jpg" />
 </div>
 
 
@@ -194,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443494.jpg" />
 </div>
 
 
@@ -220,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443490.jpg" />
 </div>
 
 
@@ -246,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443474.jpg" />
 </div>
 
 
@@ -272,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443472.jpg" />
 </div>
 
 
@@ -298,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443470.jpg" />
 </div>
 
 
@@ -324,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443462.jpg" />
 </div>
 
 
@@ -350,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443450.jpg" />
 </div>
 
 
@@ -376,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443436.jpg" />
 </div>
 
 
@@ -402,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443403.jpg" />
 </div>
 
 
@@ -428,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443360.jpg" />
 </div>
 
 
@@ -454,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443356.jpg" />
 </div>
 
 
@@ -480,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443351.jpg" />
 </div>
 
 
@@ -506,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443345.jpg" />
 </div>
 
 
@@ -532,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443324.jpg" />
 </div>
 
 
@@ -558,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443316.jpg" />
 </div>
 
 
@@ -585,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443314.jpg" />
 </div>
 
 
@@ -611,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443312.jpg" />
 </div>
 
 
@@ -637,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443304.jpg" />
 </div>
 
 
@@ -663,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443296.jpg" />
 </div>
 
 
@@ -674,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:587CB439CEAFA41E223EB3C67A51B502C19AFE0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 137620   (443173) от 28.09.2012
+
+Хитмэн / Hitman (2007) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хитмэн был обучен, как высоко профессиональный убийца, чье самое мощное оружие — это хладнокровие и безмерная гордость за свою работу. 47 — это две последние цифры на штрих-коде, вытатуированном на его затылке, а также его единственное имя. Но охотник становится добычей, когда 47-й оказывается втянутым в политические интриги. Интерпол и русские военные начинают охоту (   Читать дальше...   )Жанр: Боевик, Триллер, КриминалРежиссер: Ксавьер Генс / Xavier GensАктеры: Тимоти Олифэнт, Дугрей Скотт, Ольга Куриленко, Роберт Кнеппер, Ульрих Томсен, Михаэль Оффей, Генри Йен Кусик, Кристиан Эриксон, Эрик Эбони, Джо ШериданПеревод: ДублированныйЯзык субтитров: АнглийскиеПродолжительность: 01:34:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553336   (443166) от 28.09.2012
+
+Прометей / Prometheus (2012) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443166.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках сакрального знания группа ученых отправляется в самые темные и неизведанные чертоги вселенной. Именно там, в отдаленных мирах, находясь на пределе своих умственных и физических возможностей, им предстоит вступить в безжалостную схватку за будущее всего человечества…Жанр: Фантастика, Триллер, ПриключенияРежиссер: Ридли СкоттПродюсер: Тони Скотт, Дэвид Гайлер, Уолтер ХиллАктеры: Нуми Рапас, Майкл Фассбендер, Шарлиз Терон, Идрис Эльба, Гай Пирс, Логан Маршалл-Грин, Шон Харрис, Рейф Сполл, Иман Эллиотт, Бенедикт Вонг ...Перевод: ДублированныйПродолжительность: 02:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CF54BBD2A6FBDDA8554227E8BA29FFEBD68166
 ```
 
 https://mybot314.ru/tekegram_catalog/

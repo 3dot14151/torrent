@@ -6,7 +6,7 @@ Bulk Crap Uninstaller 3.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917378.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917360.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opium - Chaos Theory Laboratories (2011) [FLAC|Lossless|tracks + .cue] <Ambient,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917353.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mozilla Firefox 45.0 beta 8 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917342.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Purl & Sinius - Oceans Of Sound (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917332.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ XYplorer 20.80.0500 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917319.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Be Focused Pro - Focus Timer 1.7.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917310.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Soft4Boost Document Converter 6.2.3.423 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917304.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Opera 67.0.3575.79 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917303.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Aiseesoft Data Recovery 1.2.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917300.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Uninstall Tool 3.5.2 Build 5554 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917297.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ TechSmith Snagit 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917294.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ GoldWave 6.24 Portable by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917291.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Driving Trance Volume 09 (2011) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917285.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Trance Travel Vol.10 (New York City) (2011) [MP3|320 kbps]<Vocal Trance, Up
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917282.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917280.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917278.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Reactant - Initial State (2011) [MP3|320 kbps] <Techtrance, Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917277.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Akot - It's Time For a Change (EP) (2011) [MP3|320 kbps] <Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917275.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Armada Top 15 - February 2011 (2011) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917265.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Barbara Carroll - Sentimental Moon (2007) [FLAC|Lossless]<Piano, Jazz, Jazz Stan
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917252.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ The Ramsey Lewis Trio - Another Voyage (2004) [FLAC|Lossless]<Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917250.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Armin Van Buuren Pres ArmindBest Of 2010 (2011) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917244.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917241.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ BestReminder v2020.03.14.20 IMPROVED [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917240.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Wonderfox HD Video Converter Factory Pro 18.7 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917236.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Presence (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024112.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Empires in Ruins / На развалинах империй (2021) [Ru/Multi] (1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024100.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.311.66949/dlc) Repack SpaceX [Bear 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023963.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mech Mechanic Simulator (2021) [Ru/Multi] (1.0) Repack SpaceX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023920.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.0.1.1) Repack SpaceX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023915.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Spacebase Startopia Extended Edition (2021) [Ru/Multi] (1.1.1) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023898.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kingdom Hearts Melody of Memory (2021) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023379.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Kingdom Hearts HD 1.5+2.5 ReMIX (2021) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023368.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Kingdom Hearts HD 2.8 Final Chapter Prologue (2021) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023363.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ From The Darkness (2021) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023355.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ An Evil Existence (2020) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023232.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Adeptus Titanicus: Dominus (2021) [Multi] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023188.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (1.2) Repack SpaceX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023046.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Vampyr (2018) [Ru/Multi] (1.1.7/dlc) Repack SpaceX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022869.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Crash Bandicoot 4: It’s About Time (2021) [Ru/Multi] (1.0) Repack SpaceX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022861.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Raji: An Ancient Epic (2020) [Ru/Multi] (1.4.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022685.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mech Mechanic Simulator (2021) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022676.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ They Are Billions (2019) [Ru/Multi] (1.1.4.10) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022666.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Uncertain: Light At The End (2020) [Ru/Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022658.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Fear for Sale 9: The Dusk Wanderer / Страх на продажу 9: Блуж�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022568.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Mystery Tales 14: Master of Puppets / Загадочные истории 14: М
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022413.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ ENCODYA (2021) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022353.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Crash Bandicoot 4: It’s About Time (2021) [Ru/Multi] (1.0.03202023) Repack Oth
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022320.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Lost Words: Beyond the Page (2021) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022169.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Loop Hero (2021) [Ru/Multi] (1.0.12) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022030.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Remothered: Broken Porcelain (2020) [Ru/Multi] (2.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021978.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676055.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Baywatch / Спасатели Малибу (Music From The Motion Picture) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672537.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - The Witcher (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671839.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Kitchen - Кухня (2008) [MP3|256 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_670316.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ John Williams - The BFG / Большой и добрый великан (Origina
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668594.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - Furi Original Soundtrack (2016) [MP3|320 Kbps] <Electronic>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666593.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666501.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660499.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660006.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Hotline Miami 2 - OST (2015) LP & EP [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659611.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - Treme: Music From the Original HBO Series Season 2 (2012) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659283.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Joe Hisaishi - И солнце снова взойдёт / The Sun Also Rises (2
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659214.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Daniel Licht - Silent Hill: Downpour / Сайлент-Хилл: Ливень (20
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656621.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Marcin Przybylowicz & Mikolai Stroinski – The Witcher 3: Wild Hunt (2015) Unof
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655102.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Atom Music Audio - Mechanize, Vol. 1: Industrial Hybrid Rock Tracks (2018) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654770.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Atom Music Audio - Collision (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Ep
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654712.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Alexandre Desplat - The Secret Life of Pets / Тайная жизнь домаш
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651480.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Cliff Martinez - The Neon Demon / Неоновый демон (Original Motion P
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651479.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярос�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649057.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Jack Menhorn & Ashton Morris - Lemma Original Soundtrack (2015) [MP3|128 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647694.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - Radio Rebel / Бунтарка (2012) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647614.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647264.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - 599 фраз из нашего кино и мультфильмов (2009) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646868.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Henry Mancini - Trail Of The Pink Panther / След Розовой Пантер
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645454.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645428.jpg" />
 </div>
 
 
@@ -767,7 +767,7 @@ VA - Золотые Хиты Советского Кино - 2 Альбома (2
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642881.jpg" />
 </div>
 
 

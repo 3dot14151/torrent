@@ -6,7 +6,7 @@ ACCA 13-ku Kansatsu-ka: Regards | АККА: Инспекция по 13 окру�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030017.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Tsuki wa Higashi ni Hi wa Nishi ni: Operation Sanctuary | Hani Hani ~Operation S
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029990.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Goblin Slayer | Убийца гоблинов [ТВ-1] [2018, TV, 12] BDRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029924.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Asobi Asobase | Asobi Asobase: Workshop of Fun | Давайте сыграем [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029732.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Asobi Asobase | Давайте сыграем [2018, TV, 12 + 2SP + OVA] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029648.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Shoujo Kageki Revue Starlight | Revue Starlight | Девичья опера: С�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029534.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Free! Dive to the Future | Вольный стиль! [ТВ-3] [2018, TV, 12 + S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029037.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Kingdom 2 | Царство 2 [2013, TV, 39 из 39] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028701.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Kingdom | Царство [2012, TV, 38 из 38] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028684.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Heya Camp | Room Camp | Комнатный поход [2020, TV, 12 + SP] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028683.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Jitsu wa Watashi wa | Actually, I Am... | По правде говоря, я... 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028350.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Garasu no Kantai / Glass Fleet / Стеклянный флот [2006, TV, 26] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027847.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Amaama to Inazuma | Sweetness and Lightning | Сласти и молния [2016
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027671.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Shichinin no Nana | Seven of Seven | Семь из семи [2002, TV, 25 + SP] 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027556.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Tono to Issho OVA-1 | Вместе с господином OVA-1 [2010, OVA] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027400.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Rou Kyuu Bu! Tomoka no Ichigo Sunday | Баскетбольный клуб! OVA 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027398.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Karakuri Kiden Hiwou Senki | Hiwou War Chronicles | Заводные бойцы:
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027385.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Yotsunoha | Четыре листочка [2008, OVA, 2 из 2] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027380.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Hajime no Ippo: Champion Road | Первый шаг: Путь чемпиона [
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027372.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Wangan Midnight | Ванганская полночь [2007, TV, 26] DVDRip 480 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027369.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Hajime no Ippo: The Fighting - New Challenger | Первый шаг [ТВ-2] [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027361.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ The Spirit of Wonder | Spirit of Wonder | Дух чудес OVA-1+2 [1992 и 200
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027358.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Monster Musume no Oisha-san | Monster Girl Doctor | Доктор для деву
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027319.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Bobby ni Kubittake / Bobby's Girl / Девушка Бобби [1985, MV] DVDrip 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027317.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Sky Girls / Небесные девочки OVA [2006] DVDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027316.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Tenkuu Shinpan | High-Rise Invasion | Небесное вторжение [2021,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027315.jpg" />
 </div>
 
 

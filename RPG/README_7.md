@@ -6,7 +6,7 @@ The Ascent (2021) [Ru/Multi] (Build 7106737) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004779.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ys IX: Monstrum Nox (2021) [Multi] (1.0.5/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004660.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Signs of the Sojourner (2020) [En] (4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004471.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Lichdom: Battlemage (2014) [En] (1.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004416.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Guild of Darksteel (2021) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004249.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Jade Empire (2005) [Ru] (1.00) Repack xatab [Special Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003650.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Forgotten City (2021) [Ru/Multi] (1.1) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003466.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Jupiter Hell (2021) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003216.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Heroes of Hammerwatch (2018) [En] (101/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002864.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Octopath Traveler (2019) [Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002452.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Witcher / Ведьмак (2008) [Ru/Multi] (1.5/dlc) Repack Other s [Enhance
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002101.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Witcher / Ведьмак (2007) [Ru/Multi] (1.5a) License GOG [Enhanced Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002094.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Library of Ruina (2021) [Multi] (1.1.0.5b1) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001663.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Girls' civilization (2020) [Multi] (4552555) Repack Nikita1358
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001488.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Bound by Flame (2014) [Ru/Multi] (2195b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001326.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Surge 2 (2019) [Ru/Multi] (1.09u5/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000732.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Torchlight 2/II [Ru/En/Multi4] (Steam-Rip/1.21.5.1) 2012
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996615.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Torchlight II [Ru/En/Pl] (Repack/1.21.5.1) 2012 | THETA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996596.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Torchlight 2/II [Ru/Multi4] (RePack/1.21.5.1) 2012 | R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996590.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Pirates of Black Cove [En/Multi4] (L/1.0.6.8095) 2011 | PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990765.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Dungeon Siege 3 (2011) [Ru/En] (1.0/upd1/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986495.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ R.A.W. Realms Of Ancient War [Ru] (Repack/1.0.1) 2012 | Fenixx
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983558.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Vampire: The Masquerade - Bloodlines (2004) [Multi] (1.2/10.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981893.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ R.A.W.: Realms of Ancient War [En/Ru] (Lossless Repack/1.0.u1) 2012 | R.G. Origa
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977122.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Vampire's Fall: Origins (2020) [Ru/Multi] (1.5.45) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976185.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Darkwood (2017) [Ru/Multi] (1.3a) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976169.jpg" />
 </div>
 
 

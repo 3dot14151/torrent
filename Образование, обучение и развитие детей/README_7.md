@@ -1,59 +1,3 @@
-###  Публикация: 656510   (1027992) от 04.03.2021
-
-О.В. Узорова, Е.А. Нефедова | Таблицы по математике для начальной школы (2006) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Таблицы по математике представляют собой материал, обобщающий знания, полученные детьми в начальной школе. В таблицы включены правила устного счета при сложении, вычитании, умножении и делении; основные формулы и геометрические понятия, меры массы, времени, длины и др.; в сжатой форме предлагаются решения различных типов задач.
-
-Материал, изложенный в таблицах, отличается (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36183864A888762E48712474699F38344301EF6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668166   (1027974) от 04.03.2021
-
-Мария Монтессори | Мой метод. Руководство по воспитанию детей от 3 до 6 лет (2010) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Автор - прогрессивный итальянский педагог, разработавший инновационную систему воспитания детей вплоть до подросткового возраста. В своей книге она доказывает право ребенка на активную деятельность, направленную на познание окружающего мира и развитие внутренних ресурсов за счет исследования и творческих усилий.
-
-Также содержится описание педагогических приемов при (   Читать дальше...   )Жанр: Воспитание, развитие, обучениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B17876DAC5465F707D58DEBB965865129E985E09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452254   (1027923) от 05.03.2021
 
 А.В. Клеванская | Японский для детей в картинках. Интерактивный тренажер с суперзакладкой (2018) [PDF]
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027923.jpg" />
 </div>
 
 
@@ -90,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027878.jpg" />
 </div>
 
 
@@ -116,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027844.jpg" />
 </div>
 
 
@@ -144,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027843.jpg" />
 </div>
 
 
@@ -170,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027832.jpg" />
 </div>
 
 
@@ -196,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027831.jpg" />
 </div>
 
 
@@ -222,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027788.jpg" />
 </div>
 
 
@@ -248,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027690.jpg" />
 </div>
 
 
@@ -274,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027682.jpg" />
 </div>
 
 
@@ -300,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027650.jpg" />
 </div>
 
 
@@ -328,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027647.jpg" />
 </div>
 
 
@@ -354,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027632.jpg" />
 </div>
 
 
@@ -380,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027532.jpg" />
 </div>
 
 
@@ -406,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027491.jpg" />
 </div>
 
 
@@ -435,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027479.jpg" />
 </div>
 
 
@@ -461,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027458.jpg" />
 </div>
 
 
@@ -487,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027452.jpg" />
 </div>
 
 
@@ -513,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027310.jpg" />
 </div>
 
 
@@ -539,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027308.jpg" />
 </div>
 
 
@@ -566,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027160.jpg" />
 </div>
 
 
@@ -594,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027137.jpg" />
 </div>
 
 
@@ -620,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027034.jpg" />
 </div>
 
 
@@ -646,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027022.jpg" />
 </div>
 
 
@@ -675,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027021.jpg" />
 </div>
 
 
@@ -689,6 +633,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDF8EFD8D2A8816261FFDCB04F6EFD64553523C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382582   (1026853) от 11.03.2021
+
+Мария Монтессори | Помоги мне это сделать самому (2004) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный итальянский педагог-гуманист Мария Монтессори снискала мировую известность своим уникальным и действенным методом обучения и воспитания детей-дошкольников. Главное в этом методе - предоставление ребенку полной свободы самовыражения и действий. В книге представлены статьи М.Монтессори, а также работы современных педагогов - ее учеников и последователей, (   Читать дальше...   )Жанр: Обучение, развитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:480191151E82C4EE01B85702D79B5D9A5CA313A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569922   (1026849) от 11.03.2021
+
+Е.И. Игнатьев | Математическая смекалка (1994) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026849.jpg" />
+</div>
+
+
+###  Подробнее
+
+В комнате четыре угла. В каждом углу сидит кошка. Напротив каждой кошки по три кошки. На хвосте каждой кошки по кошке. Сколько же всего кошек в комнате?
+Книга содержит классические математические задачи разной степени трудности, для решения которых требуются сообразительность и умение логически мыслить. При этом, как правило, достаточно минимального знания арифметики (   Читать дальше...   )Жанр: Математические задачиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9EB022FC6307652ED88337B71C9BB37425F5BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

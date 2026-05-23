@@ -1,55 +1,3 @@
-###  Публикация: 1334003   (298660) от 27.10.2019
-
-Блэйз / Blaze (2018) BDRemux [MPEG-2/1080p] [MVO] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Горькая блюзовая меланхолия Итана Хоука или, как он сам говорит, «гонзо-инди-кантри-вестерн» о периферийной легенде техасской барной музыки 80-х. Портрет маргинального певца и поэта-песенника Блейза Фоли, обогатившего репертуар многих легенд кантри-музыки: Мерла Хаггарда, Вилли Нельсона, Лайла Ловетта, Джона Прайна. Его жизнь, любовь и творчество выходили за рамки (   Читать дальше...   )Производство: США, Ansgar Media, Cinetic Media, Under the Influence ProductionsЖанр: Драма, биография, музыкаРежиссер: Итан ХоукАктеры: Бен Дики, Алиа Шокат, Чарли Секстон, Джош Хэмилтон, Крис Кристофферсон, Ричард Линклейтер, Сэм Рокуэлл, Стив Зан, Gurf Morlix, Итан ХоукПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (Jacksubs /Антон Коляго, ненормативная лексика), английские, финские, шведские, датские, норвежские (.pgs)Продолжительность: 02:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1607CE6CC4DCEED64FBCA610789CAF72EEF148F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334065   (298648) от 27.10.2019
-
-Идеальная кожа / Perfect Skin (2018) BDRip [H.265/1080p] [10-bit] [MVO] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-События разворачиваются вокруг девушки по имени Катя, которая испытывает серьезные финансовые проблемы, и поэтому просит свою хорошую подругу Люси приютить её у себя дома на несколько дней. После бурного вечера в клубе девушки отправляются к Бобу — экстравагантному татуировщику, который оказывается восхищен красотой кожи Кати и предлагает ей сделать тату. А через (   Читать дальше...   )Производство: ВеликобританияЖанр: Ужасы, триллерРежиссер: Kevin ChickenАктеры: Ричард Брэйк, Наталья Кострцева, Джо Вудкок, Том Эшли, Jemima Bennett, Oscar Bennett, Дэвид Кристофер-Тернер, Сартаж Гаревал, Emma-Jane Hinds, Камерон ДжекПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (форсированные), английскиеПродолжительность: 01:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:803C998D57D078B4B3EE76D44BC36712E2D7615D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961345   (298644) от 02.12.2015
 
 Женщина-кошка / Cat Girl (1957) DVDRemux [EN]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298644.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298638.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298636.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298634.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298632.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298621.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298611.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298575.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298568.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298559.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298558.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298547.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298536.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298453.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298438.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298434.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298412.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298410.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298405.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298401.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ SOS: Спасите наши шкуры / SOS: Save Our Skins (2014) DVDRip [VO]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298378.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298375.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298373.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298368.jpg" />
 </div>
 
 
@@ -671,6 +619,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1D37436ABC493A58FB91287186AFC38CCB9ADCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961532   (298367) от 02.12.2015
+
+Виктория / Victoria (2015) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктория — испанская девушка, которая живет в Берлине. Однажды на выходе из клуба она знакомится с четырьмя парнями — Зонне, Боксером, Блинкером и Фусом. Ребята обещают ей показать «настоящий Берлин».
+
+Но прогулкой по ночному городу дело не ограничивается. Оказывается, парням нужно разобраться со старым долгом, а поскольку один из них слишком пьян, они просят Викторию (   Читать дальше...   )Производство: Германия / arte, Deutschfilm, MonkeyboyЖанр: триллер, драма, криминалРежиссер: Себастьян ШипперАктеры: Лайа Коста, Фредерик Лау, Франц Роговский, Бурак Йийит, Макс Мауфф, Андре Хеннике, Анна-Лена Кленке, Ганс-Ульрих Локс, Айке Фредерик Шульц, Адольфо Ассор, Ян Брюштедт, Амбар де ла ХорраПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: английскийПродолжительность: 02:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B38D1B67438E6045DB8555001E81A53EC9FA6A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334041   (298365) от 27.10.2019
+
+Большой Лебовски / The Big Lebowski (1998) UHD BDRip [H.265/2160p-LQ] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лос-Анджелес, 1991 год, война в Персидском заливе. Главный герой по прозвищу Чувак считает себя совершенно счастливым человеком. Его жизнь составляют игра в боулинг и выпивка. Но внезапно его счастье нарушается, гангстеры по ошибке принимают его за миллионера-однофамильца, требуют деньги, о которых он ничего не подозревает, и, ко всему прочему, похищают жену миллионера, (   Читать дальше...   )Производство: США, Великобритания / Polygram Filmed Entertainment, Working Title FilmsЖанр: комедия, криминал, спортРежиссер: Джоэл Коэн, Итан КоэнАктеры: Джефф Бриджес, Джон Гудман, Джулианна Мур, Стив Бушеми, Дэвид Хаддлстон, Филип Сеймур Хоффман, Тара Рид, Бен Газзара, Сэм Эллиотт, Петер СтормареПеревод: Дублированный, Многоголосый закадровый x2, Двуголосый закадровый, Одноголосый закадровый x8Субтитры: русские, английскиеПродолжительность: 01:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DEB6012A9BF095DF2091DEDBDDE6F49A9CED9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

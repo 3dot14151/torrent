@@ -1,29 +1,3 @@
-###  Публикация: 1506440   (799871) от 31.10.2021
-
-Grotto (2021) [En] (1.1.2) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Grotto - это игра с таинственной атмосферой и фокусом на сюжете. Вы Прорицатель. Вы способны читать по звёздам и расшифровывать их послания. Настали неспокойные времена. Племя долины обращается к Вашим силам предсказывать будущее и просит совета. Судьба племени зависит от Ваших пророчеств. Поразмыслите над каждым созвездием или позвольте звёздам войти в Ваше сознание. (   Читать дальше...   )Тип издания: LicenseРазработчик: Brainwash GangЖанр: Приключение, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF17FEAC78E500F35FCA5A78A019DCE82D01AB98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506509   (799825) от 31.10.2021
 
 The Radio Station (2021) [Multi] (1.01) License PLAZA
@@ -32,7 +6,7 @@ The Radio Station (2021) [Multi] (1.01) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799825.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ I Am Fish (2021) [Ru/Multi] (1.1.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799811.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Memoranda (2017) [En] (1.1.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798980.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Infernium (2018) [Ru/Multi] (1.0upd1) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798947.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Rugrats Go Wild (2003) [Ru/En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798616.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Growbot (2021) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798599.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Conway: Disappearance at Dahlia View (2021) [Multi] (7639057) License FAiRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798549.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ FATAL FRAME / PROJECT ZERO: Maiden of Black Water (2021) [Multi] (1.0.0.1.761591
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798513.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Happy Game (2021) [Ru/Multi] (1.0.3) License GOG [Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798508.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ In Silence (2021) [Ru/Multi] (1.01) License DARKSiDERS [Winterland Update]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798226.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Gazmatera 2 America's Least Wanted (2021) [Ru/En] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798212.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Escape Simulator (2021) [Multi] (1.0.18250r) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798208.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Escape from the Village (2021) [Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798064.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Bloodshore (2021) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798034.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ InnerSpace (2018) [Ru/Multi] (1.0.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797853.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Tormentum: Dark Sorrow (2015) [Ru/Multi] (1.4.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797108.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Dead Synchronicity: Tomorrow Comes Today (2015) [Ru/Multi] (1.0.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797088.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Midnight: Submersion - Nightmare Horror Story (2021) [En] (2020.3.16.302446) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796737.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Wailing Heights (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796611.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795816.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Neverending Nightmares (2014) [Ru/Multi] (3.3.22469) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795372.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Among Trees (2021) [En] (0.5.27) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795305.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Detail: Episode 1-3 (2015-2016) [En] (3.0.1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795178.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Grizzly Valley (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795155.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794680.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99646500B4FC231F9A3DDA109F855B42F25E543C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200842   (794656) от 22.01.2018
+
+The Fall of Lazarus (2017) [En/Es] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794656.jpg" />
+</div>
+
+
+###  Подробнее
+
+В The Fall of Lazarus Вы окажитесь на дрейфующем грузовом космическом корабле USSC Lazarus. Вы вышли из крио-сна без памяти и даже имени, кроме Вас на борту есть только один Hybris - искусственный интеллект, управляющий кораблем...Тип издания: LicenseРазработчик: No Wand StudiosЖанр: Adventure, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652315754A91104AB03B0EEE285B6C82CD879F20
 ```
 
 https://mybot314.ru/tekegram_catalog/

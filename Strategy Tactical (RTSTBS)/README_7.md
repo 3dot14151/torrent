@@ -6,7 +6,7 @@ Steel Division: Normandy 44 (2017) [Ru/Multi] (300080502/dlc) SteamRip Let'sPlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670419.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tanks vs Aliens (2017) [Ru/En/Ch] (5.6.1.24) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667569.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (2.2.2.f) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663588.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BATTLETECH (2018) [En] (1.0.3-280R/dlc) Repack Other s [Digital Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657445.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ancestors Legacy (2018) [Ru/Multi] (47903) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649893.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Halo Wars (2017) [Ru/En] (20170605) Repack R.G. Механики [Definitive Edi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646066.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TASTEE: Lethal Tactics (2016) [Ru/Multi] (1.0/dlc) License CODEX [Ultimate Colle
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640717.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Infinium Strike (2016) [Ru/Multi] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629810.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BANNERMEN (2019) [Ru/Multi] (1.1) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629319.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Satellite Reign (2015) [Ru/Multi] (1.13.02) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625916.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Panzer Tactics HD (2014) [Ru/Multi] (1.0.2) Repack xGhost
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622310.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Infinium Strike (2016) [Ru/Multi] (1.0.5) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616790.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Skulls of the Shogun (2013) [Ru/Multi] License FANiSO
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615902.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Driftland: The Magic Revival (2019) [Ru/Multi] (1.0) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609792.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ BANNERMEN (2019) [Ru/Multi] (1.1) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606158.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Steam Squad (2016) [Ru/En] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605925.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Steam Squad (2016) [Ru/En] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605917.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Halo Wars 2 (2017) [Ru/Multi] (1.0.1130815) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603118.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Driftland: The Magic Revival (2019) [Ru/Multi] (2.0.112) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600716.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ FTL: Faster Than Light (2012) [Ru/Multi] (1.6.12) License GOG [Advanced Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597368.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Partisans 1941 / Партизаны 1941 (2020) [Ru/Multi] (1.1.02.5/dlc) Licens
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595879.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Hegemony III: Clash of the Ancients (2015) [En] (3.3.6.4/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595699.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ The Banner Saga Dilogy (2014-2016) [Ru/Multi] (2.42.50/2.39.03/dlc) Repack R.G. 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594815.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Ultimate General: Civil War (2017) [Ru/Multi] (1.0.20111) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593722.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23166/dlc) Repack =nemos= [Master Coll
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586884.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Fell Seal: Arbiter's Mark (2019) [Ru/Multi] (1.0.3) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583936.jpg" />
 </div>
 
 

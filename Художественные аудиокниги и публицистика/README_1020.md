@@ -1,85 +1,3 @@
-###  Публикация: 443284   (49762) от 17.07.2024
-
-Артур Конан Дойль | Собака Баскервилей (Радиоспектакль) (2008) [MP3, Ростислав Плятт и др.]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Гостелерадиофонда».
-Артур Конан Дойль (1859–1930) – знаменитый английский писатель, один из основателей детективного жанра, автор всеми любимых произведений о высокоинтеллектуальном и ироничном аристократе Шерлоке Холмсе и его друге докторе Ватсоне, блестяще раскрывающих любые самые запутанные преступления.
-«Собака Баскервилей» – самый знаменитый (   Читать дальше...   )Жанр: Зарубежная литература, классика, детективВ ролях: Ростислав Плятт, Евгений Велихов, Всеволод Ларионов и др.Продолжительность: 01:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B081224A181144B6A09A1CC00A30E2D5CE911B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735761   (49758) от 17.07.2024
-
-Максим Петров | Модификант (Книга 3). Антимаг его величества. Том III (2024) [MP3, Александр Башков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Не успел я толком избавиться от турнира, как пришла другая напасть. Шведы сначала похитили принцессу, а после решили развязать войну. И вот теперь я попал в лагерь прославленного полководца, где и начинается мой путь в имперской армии. И что-то мне подсказывает, меня ждет незабываемое времяпрепровождение.Жанр: Бояръ-Аниме, Боевое фэнтези, ПопаданцыИздательство: Author TodayПродолжительность: 08:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDAF60353EBAE3EFE4B6264F42A9CBFC140F1189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461884   (49748) от 17.07.2024
-
-Артур Конан Дойль | Жёлтое лицо (2009) [MP3, Пётр Василевский]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Записки Шерлока Холмса.
-Артур Конан Дойль (1859–1930) – всемирно известный английский писатель, один из создателей детективного жанра, автор знаменитых повестей и рассказов о Шерлоке Холмсе.
-Холмс – многогранная личность. Одновременно талантливый скрипач, хороший боксер, искусный актёр, химик, он посвятил свою жизнь карьере частного детектива. С его именем (   Читать дальше...   )Жанр: Зарубежная литература, классика, детектив, рассказИздательство: Стольный градъПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D821EB51AD5F9327A32C804CE55450362E40755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 461889   (49744) от 17.07.2024
 
 Артур Конан Дойль | Нога дьявола (2009) [MP3, Пётр Василевский]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49744.jpg" />
 </div>
 
 
@@ -115,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49740.jpg" />
 </div>
 
 
@@ -141,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49735.jpg" />
 </div>
 
 
@@ -167,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49651.jpg" />
 </div>
 
 
@@ -195,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49640.jpg" />
 </div>
 
 
@@ -221,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49639.jpg" />
 </div>
 
 
@@ -247,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49623.jpg" />
 </div>
 
 
@@ -273,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49600.jpg" />
 </div>
 
 
@@ -301,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49598.jpg" />
 </div>
 
 
@@ -328,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49597.jpg" />
 </div>
 
 
@@ -356,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49595.jpg" />
 </div>
 
 
@@ -383,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49563.jpg" />
 </div>
 
 
@@ -409,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49512.jpg" />
 </div>
 
 
@@ -435,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49502.jpg" />
 </div>
 
 
@@ -463,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49501.jpg" />
 </div>
 
 
@@ -491,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49500.jpg" />
 </div>
 
 
@@ -519,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49422.jpg" />
 </div>
 
 
@@ -545,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49403.jpg" />
 </div>
 
 
@@ -571,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49398.jpg" />
 </div>
 
 
@@ -597,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49289.jpg" />
 </div>
 
 
@@ -624,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49256.jpg" />
 </div>
 
 
@@ -651,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49215.jpg" />
 </div>
 
 
@@ -678,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49198.jpg" />
 </div>
 
 
@@ -690,6 +608,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCEC60B9DE71C98714E506FE8B655D5C6AA64AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738415   (49187) от 22.07.2024
+
+Артур Конан Дойль | Изгнанники (2014) [MP3, Аркадий Бухмин]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артур Конан Дойль (1859–1930) – знаменитый английский писатель, один из основателей детективного жанра, автор всеми любимых произведений о высокоинтеллектуальном и ироничном аристократе Шерлоке Холмсе и его друге докторе Ватсоне, блестяще раскрывающих любые самые запутанные преступления.
+«Изгнанники» – один из немногих приключенческо-исторических романов величайшего (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторические приключенияИздательство: МедиаКнигаПродолжительность: 10:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F42D2D71EE0C76F9EEE5538E99BB530C07D8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738418   (49182) от 22.07.2024
+
+Артур Конан Дойль | Приключение в пустом доме (2023) [MP3, Сергей Чонишвили]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артур Конан Дойль (1859–1930) – знаменитый английский писатель, один из основателей детективного жанра, автор всеми любимых произведений о высокоинтеллектуальном и ироничном аристократе Шерлоке Холмсе и его друге докторе Ватсоне, блестяще раскрывающих любые самые запутанные преступления.
+Рассказ «Приключение в пустом доме» входит в цикл «Возвращение Шерлока Холмса»: (   Читать дальше...   )Жанр: Зарубежная литература, классика, детектив, рассказИздательство: ООО «Эвербук»Продолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:727CDE86E33B37DA3F8455CE78206BAC42004ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738568   (49097) от 23.07.2024
+
+Андрей Ливадный | Экспансия. История Вселенных (Книга 7). Репликант прорыва (2023) [MP3, Роман Волков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развитые цивилизации никогда не исчезают бесследно. После них остается наследие, способное созидать либо разрушать, – смотря в чьи руки оно попадет. Именно так произошло на Земле. Игнат и Ида – искусственные люди. Они любят и мечтают, как любой из нас, но судьба упорно пытается вернуть бывшей «Одиночке» и репликанту прорыва их боевое предназначение, ведь вокруг лишь (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ИДДКПродолжительность: 09:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B526910499FFBCCCFD486F6EC19FDEC991C4A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

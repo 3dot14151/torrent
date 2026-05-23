@@ -1,29 +1,3 @@
-###  Публикация: 1125699   (767700) от 15.04.2017
-
-White Noise 2 (2017) [Ru/Multi] (1.0/upd1) License SKIDROW
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Быть частью команды исследователя, или взять контроль над существом и поедать их! White Noise 2 предлагает 4vs1 асимметричный опыт ужаса, который никого не оставит равнодушным. White Noise 2 - это приключенческий хоррор, в котором четверо игроков пытаются выжить, столкнувшись с монстром, которого контролирует еще один человек. Действие игры проходит ночью в жуткой (   Читать дальше...   )Тип издания: LicenseРазработчик: Milkstone StudiosЖанр: Adventure (Horror), 1st PersonЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0788B36D4AB050D0D225E976D76B6FB041C428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279069   (767675) от 27.01.2019
 
 Secret City 2: The Sunken Kingdom (2019) [En] (1.0) Unofficial [Collector's Edition]
@@ -32,7 +6,7 @@ Secret City 2: The Sunken Kingdom (2019) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767675.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Crazy Buggy Racing (2017) [En] (1.0) License TiNYiSO
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767645.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Snow Moto Racing Freedom (2017) [Ru/Multi] (1.0) License HI2U
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767643.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Ms. Holmes: The Monster of the Baskervilles (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767617.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767565.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Motorbike Garage Mechanic Simulator (2018) [Multi] (1.0.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767224.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Bound by Flame (2014) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767162.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Haunted Manor 5: Halloween's Uninvited Guest (2018) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766924.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Dark City 2: Munich (2018) [En] (1.0) Unofficial [Collector's Edition / Колл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766920.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ La-Mulana (2012) [Ru/Multi] (1.6.6.1b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766879.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Need For Drink (2017) [Ru/Multi] (0.017) Repack R.G. Механики
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766761.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Galactic Civilizations II (2011) [En] (2.1.0.3/dlc) License GOG [Ultimate Editio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766729.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Die Young: Prologue (2019) [Ru/Multi] (1.1.0.58.20) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766717.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ DiRT Rally (2015) [Ru/Multi] (1.23/dlc) SteamRip Let'sPLay
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766710.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ This Is the Police (2016) [Ru/Multi] (1.1.3.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766708.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Queen's Quest: Tower of Darkness / Королевский квест: Тёмна
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766683.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.03/upd5/dlc) License PLAZA [Gold
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766623.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Vermillion Watch 4: In Blood / Алый дозор 4: Ценою крови (201
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766552.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Where the Water Tastes Like Wine (2018) [Ru/Multi] (1.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766519.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Hellmut: The Badass from Hell (2018) [Ru/Multi] (1.0.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766488.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Coma: Recut (2017) [Ru/Multi] (2.53) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766480.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Shadowhand (2017) [En] (1.06) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766478.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Mirror's Edge Catalyst (2016) [Ru/Multi] (1.0.3.47248/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766475.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Thimbleweed Park (2017) [Ru/Multi] (1.0.958/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766474.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ DillyBall (2017) [En] (0.10) License
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766092.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ DillyBall почти классический марбл платформер. �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66A4DB3E9AC1B8E52E82630B2B20992A0F7F59EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279326   (766042) от 29.01.2019
+
+Chimeras 9: Wailing Waters (2019) [En] (Beta) Unofficial
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение красочной мистической серии игр Chimeras преподнесет вам череду загадочных убийств и необъяснимых эпидемий. Вас будет бросать то в прошлое, то в хитросплетенные авантюры, где каждый шаг может оказаться для вас последним. Будьте внимательны! Кто-то хочет помешать вашим расследованиям.Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55092E25B4F1F1BF7A7E53224E9F456E03E0F87C
 ```
 
 https://mybot314.ru/tekegram_catalog/

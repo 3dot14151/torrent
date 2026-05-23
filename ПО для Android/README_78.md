@@ -1,55 +1,3 @@
-###  Публикация: 1643827   (209940) от 03.07.2023
-
-Dynamic Island (iOS 16 Notch) 8.9 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Island (iOS 16 Notch) - ещё один проект предлагающий пользователям мобильных гаджетов на Android-е, обзавестись "динамическим островом" на рабочем столе. Приложение понравится не только качественно переданной структурой оригинала, но и возможностью детальной настройки различных аспектов работы. Благодаря чему пользователи смогут отлично провести (   Читать дальше...   )Тип издания: ProРелиз состоялся: 30.06.2023Разработчик: RoshaniAppsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD3AB9D295CB197F78613BD71F48CC808D8A7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643703   (209825) от 03.07.2023
-
-Retouch - удаление объектов 2.1.6.3 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Retouch - весьма и весьма впечатляющая своими особенностями программа, что понравится всем фотографам, поклонникам селфи и так далее. Все прекрасно знают, как портят итоговый результат посторонние люди попавшие в кадр, массивные объекты и всё прочее. Что можно удалить с помощью или профессионального приложения или же без каких-либо трудностей применяя возможности (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 16.06.2023Разработчик: VIDEOSHOW Video Editor & Maker & AI Chat GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4290400D722A82C85BB0477C0E79AAC34D79AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644342   (209766) от 05.07.2023
 
 7Fon - Обои 4K 5.7.0 Mod by AppModz, PieMods [Ru/Multi]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209766.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Clipboard Pro / Буфер обмена Pro 3.0.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209724.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Energy Ring: Universal Edition ER_UNI_FREE_4.5 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209709.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ AOA: Always on Display 5.7.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209654.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209491.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ PlayerPro Music Player 5.34 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209437.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ Bazaart: Photo Editor & Graphic Design v1.20.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209431.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ Beelinguapp 2.936 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209379.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209251.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ DjVu Reader & Viewer (читалка) 1.0.81 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209211.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209194.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ Human Anatomy Atlas 2023 v2023.0.09 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209040.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ Daylio - Mood Tracker / Дневник - Трекер Настроения v1.53
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208943.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208835.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208809.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ VPN service - VPN Beaver Proxy 2.31 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208725.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ VPN RedCat 1.0.16 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208692.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208665.jpg" />
 </div>
 
 
@@ -533,7 +481,7 @@ Videoleap by Lightricks 1.6.4 Mod by ImanAlien, 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208342.jpg" />
 </div>
 
 
@@ -559,7 +507,7 @@ Alight Motion 5.0.94.103891 Mod by t1n0r, Alexey070315 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208315.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208306.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ Idea Share / Передача файлов WiFi v1.3.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208224.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ Projectivy Launcher 4.34 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208210.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ SmartDriver: АнтиРадар ГИБДД v1.14.6.36587 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208161.jpg" />
 </div>
 
 
@@ -677,6 +625,60 @@ Smart Driver – удобный радар камер и ДПС, а так же 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99F79A54D32BBA0684F6A1EF8B78A03628F091D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576163   (208145) от 13.09.2022
+
+exFAT/NTFS for USB by Paragon 3.6.0.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш Android не распознаёт подключенный к нему USB-носитель? Вероятно, файловая система внешнего накопителя не поддерживается устройством.
+Установите приложение Microsoft exFAT/NTFS for USB by Paragon Software, чтобы монтировать систему внешнего USB-накопителя и управлять файлами прямо с вашего Android-устройства.
+Приложение интегрировано с поставщиком документов (   Читать дальше...   )Тип издания: ProРелиз состоялся: 26 авг. 2022 г.Разработчик: Paragon Technologie GmbHПоддерживаемая ОС: Android: 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18D855847B4998A69629E213DD54D37C8F843663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648723   (208143) от 24.07.2023
+
+XFolder File Manager / XFolder - Файловый менеджер 1.4.5.1 Mod by Mixroot, maxi123444 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208143.jpg" />
+</div>
+
+
+###  Подробнее
+
+XFolder File Manager - отличный представитель категории файловых менеджеров. С его помощью пользователи могут действовать в универсальном ключе, как на мобильном гаджете, так и на ПК или облачном хранилище, перемещая файлы как им нужно. Удобный интерфейс помогает быстро понимать то, что и в каком объёме находится в папках, перемещать выбранное, создавать файлы, просматривать (   Читать дальше...   )Тип издания: ProРелиз состоялся: 15.07.2023Разработчик: InShot Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DF12073102B5703F8D51357A1AAB556991D954
 ```
 
 https://mybot314.ru/tekegram_catalog/

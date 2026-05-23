@@ -6,7 +6,7 @@ Autodesk AutoCAD 2023 Portable by conservator [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041509.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Zuken CADSTAR 16.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036387.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Proteus Professional 8.15 SP1 Build 34318 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035520.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Apowersoft CAD Viewer 1.0.3.1 Portable by Spirit Summer [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034593.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ OpenSCAD 2021.01 + Portable [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032443.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Synopsys Synplify 2019.03 SP1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032043.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Golden Software Surfer 20.1.195 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026864.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Nemetschek Vectorworks 2020 SP1 build 512839 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026701.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ ESRI ArcGIS Pro 2.5 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026646.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Pitney Bowes MapInfo Pro 17.0.3 r19 x64 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026486.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ ESRI ArcGIS Pro + Addons 2.5 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025528.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Apowersoft CAD Viewer 1.0.4.1 RePack (& Portable) by TryRooM [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011604.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ CorelCAD 2021.5 Build 21.1.1.2097 RePack by KpoJIuK [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007355.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Autodesk AutoCAD 2022 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005356.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Blue Marble Global Mapper 17.0.5.123015 (x64) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988212.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Altera Quartus II 7.2 Build 175 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968252.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ ProgeCAD Professional 2016 7.2 (16.0.10.23) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943345.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ PowerSim Professional 9.0.3.464 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910403.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Abacom Electronics Software 31.01.2017 RePack (& Portable) by Robby [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897129.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Autodesk AutoCAD Map 3D 2021 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878066.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Autodesk AutoCAD MEP 2021 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878061.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Autodesk AutoCAD Plant 3D 2021 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877969.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Autodesk AutoCAD Electrical 2021 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877942.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Sprint-Layout 6.0 Portable [Русский]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868774.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Autodesk Inventor Professional 2017 Build 142 (x64) [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848108.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ MapInfo Pro 15.2.1 Build 224 (x64) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844461.jpg" />
 </div>
 
 

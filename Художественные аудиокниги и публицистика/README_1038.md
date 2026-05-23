@@ -1,84 +1,3 @@
-###  Публикация: 1756159   (39922) от 19.10.2024
-
-Джеймс Хоган | Гиганты (Книга 1). Звёзды в наследство (2024) [MP3, Амир Рашидов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Человек, которого нашли на Луне, был мертв. Его окрестили Чарли. Мужчина отличался крупными глазами, обильной растительностью на теле и сравнительно длинными ноздрями. На момент обнаружения его скелетированные останки, облаченные в ярко-красный скафандр, были скрыты внутри каменной гробницы. Кем он был, как туда попал и от чего погиб, оставалось тайной. Известно (   Читать дальше...   )Жанр: Научная фантастикаИздательство: Эксплорер БуксПродолжительность: 09:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83AE3E2E75CCD101C031D219A830AD0503734329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 350419   (39914) от 19.10.2024
-
-Юрий Никулин | Почти серьёзно… (2012) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Юрий Владимирович Никулин (1921–1997) – советский киноактёр, артист цирка, режиссёр, телеведущий, Народный Артист СССР.
-Книга «Почти серьёзно...», в которой Юрий Никулин рассказывает о своей жизни, работе в цирке и кино, встречах с выдающимися деятелями отечественного и зарубежного искусства. «В действительности все выглядит иначе, чем на самом деле». С этой фразы (   Читать дальше...   )Жанр: Русская литература, воспоминания, биография, мемуарыИздательство: Нигде не купишьПродолжительность: 20:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2CA3AC5903965943978820ECA9AF3A4D9A965AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 368496   (39903) от 19.10.2024
-
-Гайто Газданов | Призрак Александра Вольфа (2004) [MP3, Владимир Сушков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Гайто (Георгий) Иванович Газданов (1903–1971) – писатель, литературный критик, один из самых ярких и значительных прозаиков русского зарубежья.
-Роман «Призрак Александра Вольфа» пронзителен и парадоксален, как сама жизнь. «Призрак Александра Вольфа» – роман, сочетающий неповторимый «газдановский» психологизм и философичность с традицией (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: МедиаКнигаПродолжительность: 06:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BB17DEE27E2192C9F7CC053A67AD296D144C62D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 368488   (39900) от 19.10.2024
 
 Гайто Газданов | Возвращение Будды (2004) [MP3, Владимир Сушков]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39900.jpg" />
 </div>
 
 
@@ -115,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39899.jpg" />
 </div>
 
 
@@ -142,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39890.jpg" />
 </div>
 
 
@@ -169,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39884.jpg" />
 </div>
 
 
@@ -197,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39877.jpg" />
 </div>
 
 
@@ -225,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39873.jpg" />
 </div>
 
 
@@ -251,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39872.jpg" />
 </div>
 
 
@@ -278,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39865.jpg" />
 </div>
 
 
@@ -306,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39857.jpg" />
 </div>
 
 
@@ -332,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39852.jpg" />
 </div>
 
 
@@ -360,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39843.jpg" />
 </div>
 
 
@@ -387,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39816.jpg" />
 </div>
 
 
@@ -414,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39767.jpg" />
 </div>
 
 
@@ -442,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39713.jpg" />
 </div>
 
 
@@ -468,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39680.jpg" />
 </div>
 
 
@@ -496,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39673.jpg" />
 </div>
 
 
@@ -522,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39659.jpg" />
 </div>
 
 
@@ -548,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39618.jpg" />
 </div>
 
 
@@ -576,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39616.jpg" />
 </div>
 
 
@@ -604,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39612.jpg" />
 </div>
 
 
@@ -632,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39588.jpg" />
 </div>
 
 
@@ -658,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39587.jpg" />
 </div>
 
 
@@ -684,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39585.jpg" />
 </div>
 
 
@@ -695,6 +614,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A72F40BCDA2B74B21122D42AC513F27C218F14C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756617   (39582) от 22.10.2024
+
+Кнут Гамсун | Плоды земли (2023) [MP3, Сергей Дидок]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кнут Гамсун (1859–1952) – норвежский прозаик, драматург, поэт, публицист.
+«Плоды земли» – роман, за который он получил Нобелевскую премию по литературе в 1920 году. Роман начинается с того, что в лес приходит человек по имени Исаак, который начинает обустраивать в нём своё новое жильё. Вскоре к нему присоединяется девушка Ингер. Вместе с Исааком они занимаются хозяйством, (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Ксения ЖихареваИздательство: ИДДКПродолжительность: 15:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597F9474F8D95537A8834EE130E076A84A768A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756626   (39580) от 22.10.2024
+
+Кнут Гамсун | Соки земли (2023) [MP3, Андрей Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: XX век. Зарубежная проза.
+Кнут Гамсун (1859–1952) – норвежский прозаик, драматург, поэт, публицист. Лауреат Нобелевской премии по литературе за 1920 год.
+Аудиостудия «Ардис» предлагает вашему вниманию роман норвежского писателя Кнута Гамсуна «Соки земли» (переводившийся также под названием «Плоды земли»), принесший в 1920 году автору Нобелевскую премию (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Ксения ЖихареваИздательство: Студия «АРДИС»Продолжительность: 14:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F063FE4FEB2A85BF5BA4CEA019026829D012D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756584   (39575) от 22.10.2024
+
+Мэлори Блэкмен | Крестики и нолики (Книга 1) (2024) [MP3, Алина Гольденберг]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сеффи и Каллум влюблены почти с самого детства, но их союз под запретом, потому что общество, в котором они живут, поделено на два класса. Сеффи принадлежит высшему классу темнокожих Крестов, а Каллум – белый парень из низшей касты нулей. Поддерживать отношения становится еще сложнее, когда вскрывается связь Каллума с Освободительным Ополчением, пытающимся свергнуть (   Читать дальше...   )Жанр: ФантастикаИздательство: Popcorn BooksПродолжительность: 11:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFD539D056DDD522B2F2FABEDEE4C07D97AC61E
 ```
 
 https://mybot314.ru/tekegram_catalog/

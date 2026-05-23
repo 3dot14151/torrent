@@ -6,7 +6,7 @@ Kim (2016) [En] (1.4.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785175.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785034.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FINAL FANTASY X/X-2 HD Remaster (2016) [Ru/En] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784526.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Trials of Mana (2020) [Multi] (1.0/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783829.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Star Ocean: The Last Hope 4K & Full HD Remaster (2017) [Multi] (1.0.0.0) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783094.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Of Orcs and Men (2012) [Ru/Multi] (1.0.0.2) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781593.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Legend of Heroes: Trails of Cold Steel II / The Legend of Heroes: Trails of 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781552.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ DYNASTY WARRIORS 9 (2018) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781113.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Final Fantasy XII: The Zodiac Age / Final Fantasy 12: The Zodiac Age (2018) [Mul
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780320.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Final Fantasy XII: The Zodiac Age / Final Fantasy 12: The Zodiac Age (2018) [Mul
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780008.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Zombasite (2016) [En] (1.021/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780005.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Final Fantasy XII: The Zodiac Age / Final Fantasy 12: The Zodiac Age (2018) [Mul
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779857.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Usurper (2018) [En] (1.000/hf3) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779843.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.0.8.1/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779552.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The Elder Scrolls Anthology (1994-2016) [Ru/Multi] Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779166.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Technomancer (2016) [Ru/Multi] (1.0.3638) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778026.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Aurion: Legacy of the Kori-Odan (2016) [En/Fr] (1.02 update 1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777415.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Pyre (2017) [Ru/Multi] (1.50257) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776663.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776615.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Skyshine's BEDLAM Redux! (2015) [En] (3.10) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776603.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Avernum 3: Ruined World (2018) [En] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776298.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Transistor (2014) [Ru/Multi] (1.49815) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775930.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775919.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Diluvion: Resubmerged (2017) [Ru/Multi] (1.2.33/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775564.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Bombshell (2016) [En] (1.2) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775402.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Ember (2016) [En] (1.046) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774969.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ender Lilies: Quietus of the Knights (2021) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009606.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Minute of Islands (2021) [Multi] (1.0) License GOG [Digital Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009369.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fairy Godmother Stories 2: Dark Deal / Истории Крестной Феи 2:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008691.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Enchanted Kingdom 8: Master of Riddles / Зачарованное королев
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007736.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Overboard! (2021) [En] (1.3.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007662.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Paranormal Files 7: Ghost Chapter (2021) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007377.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Viking Heroes 2 / Герои викинги 2 (2021) [Ru] (1.0) Unofficial [Coll
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007350.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Police Stories (2019) [Ru/Multi] (1.3.2) License GOG (обновляемая)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007208.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Moonlighter (2018) [Ru/Multi] (1.14.37/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007202.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Roads of Rome: Portals / Дороги Рима: Порталы (2021) [Ru] (1.0)
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006578.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Wonhon: A Vengeful Spirit (2021) [Ru/Multi] (1.0.4r) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006566.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Bastion (2011) [Ru/Multi] (1.50436) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006556.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Firelight Fantasy: Resistance (2021) [Ru/Multi] (4.25) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006452.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Lona: Realm of Colors (2021) [En] (0.1.23) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006448.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Outer Colony (2017) [En] (0.5.53) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006444.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Siege Survival: Gloria Victis (2021) [Ru/Multi] (6998499) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006305.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Paper Beast (2020) [Ru/Multi] (1.0) License GOG [Folded Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006238.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ The Architect: Paris (2021) [Ru/Multi] (0.8.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006216.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Shattered - Tale of the Forgotten King (2021) [Ru/Multi] (1.3.00) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006213.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Death's Door (2021) [Ru/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005875.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Coastline Flight Simulator (2021) [Ru/Multi] (1.0) Unofficial PLAZA
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005863.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ City Legends: The Curse of the Crimson Shadow (2021) [En] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005709.jpg" />
 </div>
 
 
@@ -571,32 +571,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485006   (1005650) от 23.07.2021
-
-Last Stop (2021) [Ru/Multi] (7027314) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Last Stop – приключенческая игра от третьего лица, действие которой происходит в наши дни в Лондоне. Написанная и разработанная студией Variable State, создателями удостоенной наград игры Virginia, игра Last Stop рассказывает три взаимосвязанные истории трёх главных героев, которыми управляет игрок.Тип издания: LicenseРазработчик: Variable StateЖанр: Adventure, Sci-Fi, Mystery, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB580B8B163BD48733EDC3BFEF95B595915ECBEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485052   (1005639) от 23.07.2021
 
 Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.0.0.15624) Repack Other s
@@ -605,7 +579,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.0.0.15624) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005639.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Urban Trial Tricky (2021) [Ru/Multi] (1.0.1) License DOGE [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005570.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Gods Will Fall (2021) [Ru/Multi] (35/dlc) License GOG [Valiant Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005547.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Gods Will Fall (2021) [Ru/Multi] (35/dlc) License GOG [Valiant Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B3E96A6BA91FA05F444EA37A2651D779840B995
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485168   (1005539) от 24.07.2021
+
+Summer of '58 (2021) [Ru/En] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Summer of '58 — это психологический триллер от первого лица. Действие игры разворачивается в заброшенном здании советского лагеря. Пионерский лагерь «Юность» обычное место, где родители оставляли детей на лето из года в год. Пока в один день 1958 года не случился кошмар, который оказался намного страшнее рассказов у костра. На этом месте были убиты проживающие и (   Читать дальше...   )Тип издания: RepackРазработчик: EMIKA_GAMESЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BDC640CCA76B8FC3CC2FCAC33DE0F2DEE5E25A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

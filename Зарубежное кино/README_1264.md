@@ -1,55 +1,3 @@
-###  Публикация: 560038   (407078) от 14.10.2012
-
-Что могло быть хуже? / What's the Worst That Could Happen? (2001) [H.264] DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-И Кевина и Макса кормит воровство. Кевин (Мартин Лоуренс) - профессиональный вор, обожающий дорогие вещи, а миллиардер Макс Фербэнкс (Дэнни Де Вито) - беспринципный бизнесмен, не привыкший себе ни в чем отказывать. Кевин намеревается обчистить прибрежную виллу Макса, рассчитывая на отсутствие хозяина, но застает Макса в ванне с роскошной красоткой. Подоспевшая полиция арестовывает незадачливого грабителя, но Максу этого мало. Он снимает с руки закованного в наручники Кевина кольцо, уверяя полицейских, что это его собственность. Вор обкрадывает вора. На самом деле кольцо было подарено Кевину его подружкой, и он готов на все, чтобы его вернуть. Между двумя мошенниками развязывается настоящая война, в ходе которой возникают ситуации гораздо хуже и... смешнее, чем они могли себе представить...Жанр: Комедия, КриминалРежиссер: Сэм УайзманАктеры: Мартин Лоуренс, Дэнни ДеВито, Джон Легуизамо, Гленн Хедли, Кармен Эджого, Берни Мак, Ларри Миллер, Нора Данн, Ричард Шифф, Уильям Фихтнер, Ана Гастейер, Саша Нопф, Шиван Фэллон, ДжиКью, Ленни Кларк, Кевин Чэпмен, Майкл Малхерен, Райан Халл, Кэм Нили, Джордж Блюменталь, Стефани Клейман, Расселл Керри, Ричард Сэкстон, Керри Килбрайд, Тайлер Дж. Олсон, Ребека Арамини, Билл Моотос, Эрик Бруно Боргман, Джон ДиТомас, Кимбетт Фенол, Брайан Фрейтс, Трэйси Голд, Кенн Медеройс, Эдди Мейя, Тодд Подрье, Джон СэфирПеревод: Дублированный / Профессиональный многоголосый / Авторский одноголосый (Боровой (Карповский) Антон)Язык субтитров: Русские, английскиеПродолжительность: 01:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6003DDA7A1A7CA255ACD100AB4659B887CC0A19F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407931   (407063) от 05.10.2020
-
-Ронин / Ronin (1998) WEB-DLRip [H.264] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-У того, кто не смог уберечь своего хозяина от гибели, есть только один путь — стать наемником. Четверо бывших агентов спецслужб получают задание: они должны завладеть тщательно охраняемым кейсом с секретным содержимым. Но среди них есть предатель, разыгрывающий свою карту. Двум ронинам, чтобы выполнить заказ, придется вступить в смертельную схватку со всеми, кто (   Читать дальше...   )Производство: Великобритания, США, Франция / FGM Entertainment, United ArtistsЖанр: Боевик, Триллер, КриминалРежиссер: Джон ФранкенхаймерАктеры: Роберт Де Ниро, Жан Рено, Наташа МакЭлхоун, Стеллан Скарсгард, Шон Бин, Скипп Саддат, Микаэль Лонсдаль, Ян Тршиска, Джонатан Прайс, Рон ПеркинсПеревод: ДублированныйСубтитры: Русские (full), Английские (full)Продолжительность: 02:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9CF36D53782B84829843C17373D759EB3E48316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413625   (407062) от 05.10.2020
 
 Вторжение в личную жизнь / Invasion of Privacy (1992) DVDRip [AVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407062.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407060.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407057.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407056.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407052.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407050.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407048.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407047.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407037.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407026.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407023.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407021.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407013.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407008.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406991.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406983.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406971.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406966.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406931.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406882.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406867.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406856.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406802.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406797.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37C8D3320C3D86BC7C7F449D617B9BD27F9030E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413948   (406783) от 06.10.2020
+
+Затмение / Eclipse: Keo-teo / Eclipse (2016) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Робкий и нерешительный Юн-джэ переводится в новую школу и заводит дружбу с Сэ-джуном, жестоким и безжалостным парнем. Вскоре эти двое впутываются в дело, связанное с наркотиками и продажей девушек. Кроме того, между приятелями встаёт ученица из их школы.Производство: Южная Корея, Storm Pictures KoreaЖанр: Драма, триллер, криминалРежиссер: Чон Хи-сонАктеры: Чхве Тхэ-джун, Ким Щи-ху, Мун Га-ён, Пак Чин-су, Ви Ха-джун, Чан Со-гёнПеревод: Двуголосый любительский (Храм дорам)Субтитры: отсутствуютПродолжительность: 01:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB9DD7EED7E3A52CC9E8281A45DE41DC5BCFA12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413765   (406773) от 06.10.2020
+
+Падение Олимпа / Olympus Has Fallen (2013) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда на Белый Дом нападают террористы, а президента берут в заложники, дискредитированный бывший охранник главы государства Майк Бэннинг оказывается внутри захваченного здания. И теперь он единственный, кто сможет спасти президента…Производство: США / Millennium Films, Nu-Image Films, West Coast Film PartnersЖанр: Боевик, триллерРежиссер: Антуан ФукуаАктеры: Джерард Батлер, Аарон Экхарт, Морган Фриман, Рик Юн, Финли Якобсен, Анджела Бассетт, Рада Митчелл, Роберт Форстер, Дилан МакДермотт, Эшли ДжаддПеревод: Дублированный, АвторскийСубтитры: Русские (Full), Английские (Full)Продолжительность: 01:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C292F5FDB4CB178E6252EDF384902A7CC8735C00
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Vivaldi 2.3.1440.57 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721073.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pale Moon 28.12.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721067.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VueScan Pro 9.7.30 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721061.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe XD 31.2.12.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721057.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Serif Affinity Photo 1.8.4.693 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721056.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ OCCT 6.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721055.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kaspersky Lab Products Remover 1.0.1309 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721048.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Raxco PerfectDisk Professional Business / Server 14.0 Build 892 RePack by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721042.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Futuremark 3DMark 1.5.893 Professional Edition [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720997.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ WinUtilities Pro 15.48 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720952.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ GoodSync Enterprise 10.9.25.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720950.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Autorun Organizer 3.08 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720942.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Skype 8.63.0.76 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720935.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Reg Organizer 8.50 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720933.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Skype 8.40.0.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720860.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720857.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Opera 58.0.3135.79 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720856.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Light Image Resizer 5.1.4.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720851.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Movavi Video Suite 20.4.1 RePack (& Portable) by  Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720736.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Stellarium 0.90.0.9320 TEST [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720701.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Process Lasso Pro 9.0.0.318 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720695.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Skype 8.40.0.070 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720692.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ uTorrent Stable 3.5.5 (build 45095) Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720666.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ uTorrent 3.5.5 Build 45095 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720661.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ uTorrent Pro 3.5.5 Build 45095 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720654.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Kazrog - AmpCraft - 1992 1.0.1 STANDALONE, VST, VST3, AAX (x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720643.jpg" />
 </div>
 
 

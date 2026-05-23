@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_676800.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dr.Web CureIt! Downloader 1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676767.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Total Commander 9.12 VIM 31 Portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676752.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ FastStone Image Viewer 6.5 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676749.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ MediaHuman YouTube Downloader 3.9.8.13 (1805) Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676736.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VMware Workstation 12 Pro 12.5.6 Build 5528349 Lite RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676729.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ MKVToolNix 12.0.0 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676726.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Process Lasso Pro 9.0.0.348 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676722.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ jv16 PowerTools 2017 4.1.0.1703 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676718.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ LibreOffice 5.3.3 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676717.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ SSD Mini Tweaker 1.3 | 2.5 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676633.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ SoftOrbits Photo Editor Pro 3.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676607.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Maxthon Browser 5.0.4.2000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676604.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ TeraCopy Pro 3.12 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676602.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ PDF-XChange Editor Plus 6.0.322.4 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676599.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Sumatra PDF 3.4.14298 Pre-release + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676565.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Panda Free Antivirus 2016 16.1.3 DC 28.06.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676531.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676520.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ R-Studio 6.0 Build 151281 Network Edition RePack (& portable) by KpoJIuK [MULTi 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_676504.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Opera 58.0.3135.117 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676464.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Opera 58.0.3135.117 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676455.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Opera GX 84.0.4316.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676445.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ PassMark RAMMon 2.0 Build 1000 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676444.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ DesktopOK 4.36 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676410.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Light Alloy 4.10.2 Build 3317 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676350.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ VMware Workstation 12 Pro 12.5.6 Build 5528349 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676340.jpg" />
 </div>
 
 

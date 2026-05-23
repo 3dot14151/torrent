@@ -6,7 +6,7 @@ Noizio 1.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811336.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sony Catalyst Production Suite 2016.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809351.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Video Editor MovieMator – Movie & Film Maker! 1.7.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805128.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Turnover 1.62 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802757.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ musicMath Touch 5.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799529.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Videoloupe for Mac 1.1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799202.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Newton (Plugin for After Effects) 2.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798996.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ MKVtools 3.7.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798117.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Ableton Live Suite 11 v11.0.12 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796692.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Neural Mix Pro 1.1.1 fix [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795498.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ AnyMP4 MTS Converter 8.2.18 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793554.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Amazing Slow Downer 4.1.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792150.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Logic Pro X 10.4.4 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790258.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ MP3 Cutter Joiner 6.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787842.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ TunesKit Audio Capture 2.0.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787624.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ TunesKit Video Cutter 2.0.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787623.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Silverstack Lab 6.4.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787240.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Silverstack XT 6.4.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787005.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ SmartSound SonicFire Pro 5.8.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785567.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Movavi Screen Capture Studio 5 v5.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780074.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Movavi Video Editor 5 Plus 5.3.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779068.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Logic Pro X 10.4.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778763.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Movavi Screen Capture Pro 5.3 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777483.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ DaVinci Resolve Studio 16.2.3 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771258.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Apple iMovie 10.1.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768594.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Arturia SYNCLAVIER V v2.0.2 macOSX-DDP [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766867.jpg" />
 </div>
 
 

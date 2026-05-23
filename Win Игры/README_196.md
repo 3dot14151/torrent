@@ -1,29 +1,3 @@
-###  Публикация: 1277845   (613013) от 16.04.2019
-
-The Hong Kong Massacre (2019) [En] (1.04) License CODEX
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Проложите путь по улицам Гонконга в динамичном боевике с видом сверху. The Hong Kong Massacre, вдохновленная классическими боевиками, позволит вам оказаться в центре лихой истории о мести, наполненной жестокими кинематографическими перестрелками и яркими образами преступного мира.Тип издания: LicenseРазработчик: VRESKIЖанр: Action (Top-Down), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A24689D8484416B4183DB1C3B05D8CEE42E944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296349   (613002) от 16.04.2019
 
 Anno 1404 (2010) [Ru/En] (1.3.3645/2.1.5010/dlc) Repack xatab [Gold Edition]
@@ -32,7 +6,7 @@ Anno 1404 (2010) [Ru/En] (1.3.3645/2.1.5010/dlc) Repack xatab [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613002.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Toki Tori (ENG) [L] (2010)
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612873.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ Blueberry Garden v.1.1 (Eng) [P] (2009)
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612871.jpg" />
 </div>
 
 
@@ -116,7 +90,7 @@ Dark Parables 12: The Thief And The Tinderbox / Темные Притчи 12: В
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612738.jpg" />
 </div>
 
 
@@ -142,7 +116,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (1.0.0.1) SteamRip Let'sPla
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612537.jpg" />
 </div>
 
 
@@ -168,7 +142,7 @@ The Way (2016) [Ru/Multi] (1.07b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612071.jpg" />
 </div>
 
 
@@ -194,7 +168,7 @@ Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0/upd1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611930.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ Enigmatis 3: The Shadow Of Karkhala (2016) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611785.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ McDROID (2014) [En] (1.0 Build 237) Repack Mizantrop1337
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611668.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ Dropship Down (2016) [En] (0.2.0.23) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611529.jpg" />
 </div>
 
 
@@ -299,7 +273,7 @@ Rogue Stormers (2016) [Ru/En] (1.0 build 34) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611525.jpg" />
 </div>
 
 
@@ -325,7 +299,7 @@ Envoy 2 (2016) [Ru/En] (Experimental version) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611522.jpg" />
 </div>
 
 
@@ -351,7 +325,7 @@ The Shadowland (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611519.jpg" />
 </div>
 
 
@@ -377,7 +351,7 @@ The Occupation (2019) [Ru/Multi] (1.3) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611368.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ The Hong Kong Massacre (2019) [En] (1.04) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611356.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ Enter the Gungeon (2016) [Ru/Multi] (2.1.6/dlc) License GOG [Collector`s Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611353.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ Spirit of Revenge 5: A Test of Fire / Месть духа 5: Испытание 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611097.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ Sea of Lies 6: Leviathan Reef / Море лжи 6: Риф Левиафана (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611089.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ Persian Nights: Sands of Wonders / Персидские Ночи: Чудо в п
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611001.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ Mystery Case Files 14: Broken Hour / За семью печатями 14: Бой
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610998.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ Dark Heritage: Guardians of Hope Collector's Edition / Темное прошло
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610933.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ World of One (2017) [Ru/Multi] (1.2.2 B9) SteamRip Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610898.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ Please (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610708.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ Adelantado. Trilogy. Book one / Трилогия Аделантадо. Книг�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610650.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ FRAMED Collection (2018) [Multi] (1.0.16#456) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610353.jpg" />
 </div>
 
 
@@ -674,6 +648,32 @@ FRAMED Collection (2018) [Multi] (1.0.16#456) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BACDF9D90DD448BD3C3DF821CBEC4FB02A207675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230287   (610255) от 15.06.2018
+
+Nine Parchments (2017) [Ru/Multi] (1.1.2) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nine Parchments - это полная магического ералаша игра для совместного прохождения от Frozenbyte, создателей серии игр «Trine»! Сбежавшие волшебники-недоучки находят возможность пополнить свои книги заклинаний, отправившись в поход за девятью утраченными пергаментами. И вот уже наши горе-волшебники быстро набирают себе новых заклинаний, не особо заморачиваясь по поводу (   Читать дальше...   )Тип издания: LicenseРазработчик: FrozenbyteЖанр: Экшн, Аркада, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2EB3EB4F70B23B25F522383904D95523F94B268
 ```
 
 https://mybot314.ru/tekegram_catalog/

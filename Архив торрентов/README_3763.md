@@ -6,7 +6,7 @@ Emurasoft EmEditor Professional 22.4.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230776.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ RAR Extractor Max-Unzip File 11.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230763.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ iBarcoder 3.14.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230759.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ CloudMounter 4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230751.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ DP Animation Maker 3.5.11 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230744.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Wallpaper Engine 2.1.15 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230740.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Live Wallpaper & Themes 4K Pro 17.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230739.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ VueScan Pro 9.8.13 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230720.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ W10Privacy 4.0.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230716.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Reality's Despair - Perfidious Depopulation (2021) [FLAC|Lossless|image + .cue] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230714.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230713.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Photomath Plus 8.27.0 (b70000924) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230706.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ KeePass Password Safe 2.54 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230698.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Duolingo: изучай языки 5.111.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230697.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ K-Lite Codec Pack Update 17.6.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230691.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Money Pro - Personal Finance 2.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230690.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ MacDroid Pro 1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230684.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ StaxRip 2.23.0/2.23.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230680.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v7.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230678.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Wallpaper Engine 2.2.6 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230674.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Revo Uninstaller Pro 5.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230671.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ MyMovie - Видеоредактор 12.4.0 Mod by AppModz [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230670.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Wise Disk Cleaner 11.0.2.816 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230667.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ InShot - Фото и видеоредактор 1.950.1411 Mod by Alexey070315, 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230663.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Revo Uninstaller Pro 5.1.5 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230661.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ EarthView 7.7.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230655.jpg" />
 </div>
 
 

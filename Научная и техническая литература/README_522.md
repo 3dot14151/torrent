@@ -1,134 +1,3 @@
-###  Публикация: 1586720   (211330) от 27.10.2022
-
-Марина Королёва | Чисто по-русски. Говорим и пишем без ошибок (2022) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Книга Марины Королёвой «Чисто по-русски» выросла из знаменитых программ «Говорим по-русски» и «Как правильно», которые можно было в свое время услышать в эфире легендарной радиостанции «Эхо Москвы». Многие тексты публиковались и в еженедельных колонках автора в «Российской газете». Они рассказывают о самых интересных, трудных и спорных аспектах современного русского (   Читать дальше...   )Жанр: ЯзыкознаниеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320D77CE6F3DCB10E2126AB2C95C4A1B6A6B0901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640274   (211317) от 17.06.2023
-
-Б.Б. Буховцев и др. | Сборник задач по элементарной физике (3 издание) (1968) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник задач по физике составлен в соответствии с материалом, изложенным в "Элементарном учебнике физики" под редакцией академика Г.С. Ландсберга. Большинство задач значительно превосходит по трудности задачи, предлагаемые обычно учащимся средних школ. Все они снабжены подробными решениями. Часть задач сборника составляют переработанные задачи (   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:225D48486128C390201358022315C12F21270FBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640135   (211266) от 16.06.2023
-
-А.Э. Кузьмичёв | Программирование для Windows Phone для начинающих (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Быстрое развитие мобильных технологий заставляет задуматься об изменении содержания школьного курса информатики, ведь современной системе образования необходимо шагать в ногу со временем. Мобильные устройства с каждым годом все быстрее и упорнее вытесняют привычные для нас персональные компьютеры, предлагая те же вычислительные способности, но с гораздо более широким (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0CEBC7BE5E82F65B1141C4C5D4E57654F6CA8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640379   (211249) от 17.06.2023
-
-О.В. Спиридонов | Современные офисные приложения (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-В лекциях рассматриваются вопросы работы с основными компонентами пакета офисных приложений Microsoft Office 2003: Microsoft Word, Microsoft Excel, Microsoft Outlook, Microsoft PowerPoint.
-Подробно рассмотрено создание текстовых документов в Microsoft Word. Показаны основные возможности оформления документов с использованием параметров шрифта, абзацев, нумерованных (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6B63060981D7C31E2DAA8B67FC83ACAA9CC63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586494   (211237) от 28.10.2022
-
-С.М.Тагиров | Конструкция и технология сборки механических часов (1960) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В книге описывается конструкция механических часов и излагается технология их сборки в объеме программы, утвержденной Главным управлением трудовых резервов при Совете Министров СССР для подготовки в технических училищах часовщиков-сборщиков.Жанр: учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8970A7D07135C536A374FAC350538E8E4675FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601724   (211160) от 01.01.2023
 
 М.Е. Тульчинский | Качественные задачи по физике [Изд. 4-е] (1972) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211160.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211134.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211131.jpg" />
 </div>
 
 
@@ -216,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211120.jpg" />
 </div>
 
 
@@ -243,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211099.jpg" />
 </div>
 
 
@@ -270,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211063.jpg" />
 </div>
 
 
@@ -297,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211060.jpg" />
 </div>
 
 
@@ -324,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211037.jpg" />
 </div>
 
 
@@ -352,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211023.jpg" />
 </div>
 
 
@@ -378,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210989.jpg" />
 </div>
 
 
@@ -404,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210969.jpg" />
 </div>
 
 
@@ -430,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210952.jpg" />
 </div>
 
 
@@ -456,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210928.jpg" />
 </div>
 
 
@@ -482,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210850.jpg" />
 </div>
 
 
@@ -508,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210803.jpg" />
 </div>
 
 
@@ -534,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210776.jpg" />
 </div>
 
 
@@ -561,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210768.jpg" />
 </div>
 
 
@@ -587,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210753.jpg" />
 </div>
 
 
@@ -614,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210682.jpg" />
 </div>
 
 
@@ -640,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210630.jpg" />
 </div>
 
 
@@ -666,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210603.jpg" />
 </div>
 
 
@@ -677,6 +546,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0B5A69A7B5D89191C5B70DA2B7E09BB7F562A6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572710   (210579) от 13.08.2022
+
+А.Д. Мышкис | Математика для технических вузов. Специальные курсы [2009] [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие посвящено специальным разделам математики для технических вузов, таким как теория поля, теория аналитических функций, операционное исчисление, линейная алгебра, тензоры, вариационное исчисление, интегральные уравнения и обыкновенные дифференциальные уравнения. Изложение проводится с позиций современной прикладной математики, особое внимание уделяется (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D702A3DD7B79AAEC45B044AE5C68AA94F9A60596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602945   (210539) от 08.01.2023
+
+А.П. Киселёв | Элементарная геометрия (1928) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для многих математиков, это лучший учебник Киселева. Он выдержал 26 изданий до революции и 16 изданий после революции. В 1937 году учебник был утвержден как стабильный. В этом учебнике Киселев изложил свой собственный, сложившийся со временем опыт преподавания математики, начиная с репетиторских занятий в юные годы и заканчивая многолетней практикой преподавания (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B011E349726104AF1F9E26BC3CCC6587C34697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569471   (210532) от 13.08.2022
+
+Бен Гринфилд | Биохакинг без границ. Обновите мозг, создайте тело мечты, остановите старение и станьте счастливым за 1 месяц (2022) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что, если способность выглядеть и чувствовать себя отлично, а также работать с максимальной эффективностью – в двух шагах от вас? В идеальном мире вы могли бы иметь все это: полную оптимизацию ума, тела и духа. И этот идеальный мир достижим. Известнейший биохакер Бен Гринфилд предлагает пройти полное обновление всех функций с помощью простых и доступных средств. (   Читать дальше...   )Жанр: Красота и здоровье и др.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:331AF5843ECB53F46F7A8AA81E97D392FB27C67C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602697   (210493) от 08.01.2023
+
+Н. Стариков | Адмирал Колчак Протоколы допроса (2023) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210493.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Протоколы допроса Колчака – важнейшее свидетельство истории.В ночь с 6 на 7 февраля 1920 года А. В. Колчак был расстрелян, а его тело сброшено в прорубь реки Ангары. Это конец жизни адмирала, Верховного правителя России, полярного исследователя, моряка, отца, мужа, возлюбленного…Преданный союзниками, арестованный революционерами, Колчак прекрасно понимал, что (   Читать дальше...   )Жанр: История, документФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D191E988CBD6C123370666527C18D5E33834459A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642255   (210439) от 26.06.2023
+
+В.И. Карлащук | Электронная лаборатория на IBM PC 6-е изд. перер. и доп. [2 тома] (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Т.1. Моделирование элементов аналоговых систем
+Книга посвящена применению программы Electronics Workbench фирмы Interactive Image Technologies (Канада) для схемотехнического моделирования аналоговых и цифровых радиоэлектронных устройств различного назначения, представленных большим количеством практических схем, что делает книгу своеобразным «живым» справочным пособием. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8C70EFAB24E6F35864888638A52A7E57504917
 ```
 
 https://mybot314.ru/tekegram_catalog/

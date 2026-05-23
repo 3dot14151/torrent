@@ -6,7 +6,7 @@ Tor Browser Bundle 10.0.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369128.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ O&O Defrag Professional 24.0 Build 6023 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369122.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TechSmith Camtasia Studio 9.1.0 Build 2356 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369095.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369088.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369011.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ F-Secure Freedome VPN 2.36.6555 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369001.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368973.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ KMSAuto Net 2016 1.5.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368963.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368960.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Gilrs Wallpaper Collection (13.11.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368954.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Sexy Girls Pack Wallpapers (13.11.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368952.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Sexy Girls Pack Wallpapers (14.11.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368950.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wallpapers Sexy Girls Pack (13.11.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368942.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Gilrs Wallpaper Collection (14.11.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368935.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Purgatory - Necromantaeon (2011) [FLAC|Lossless]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_368927.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ HQ Wallpapers Perfect Women (13.11.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368925.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ VA - Good Enuff 002: Konpachi (2016) [MP3|320 Kbps] <Dirty Dubstep, Trap, Grime>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368885.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Vocal Trance Hits - Best Of (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368882.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Armin van Buuren - A State of Trance 788+.CUE (2016) [MP3|320 Kbps] <progressive
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368881.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - This Is Dubstep: Weekend Weapons #98 (2016) [MP3|320 Kbps] <Dirty Dubstep, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368879.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Instagram 9.7.5 (Beta) [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368876.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Tiesto - Live @ Club Life 500 (Live at the Ziggo Dome) 10-21-2016 [MP3|~225 Kbps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368875.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ VA - Дискотека года! Только звезды! (2012) [MP3|256 к�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368874.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Wallpapers Sexy Girls Pack (14.11.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368873.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Aly & Fila - Future Sound Of Egypt 262 (2012) [MP3|256 кб/с]<Trance, Upliftin
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368872.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ VA - 202 Хита (2012) [MP3|128 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368868.jpg" />
 </div>
 
 

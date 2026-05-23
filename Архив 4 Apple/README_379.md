@@ -6,7 +6,7 @@ MyBrushes - Sketch, Paint, Design 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439604.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Coda 2.5.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439599.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ iShowU Studio 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439502.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ VueScan Pro 9.5.85 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439350.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Sidify Apple Music Converter 1.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439313.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Xojo IDE RAD 17.2.0.37811 (2017r2) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439198.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ DaisyDisk 4.6.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439175.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Alien Skin Exposure X4 Bundle 4.0.1.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439170.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ AppDelete 4.3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438968.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ PullTube 1.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438643.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ SyncTime 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438631.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ PhoneRescue for iOS 4.0.0.20200919 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438548.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Affinity Publisher Beta 1.9.0.742 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438516.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ AnyTrans for iOS 8.8.0.20200918 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438514.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Transmit 5.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438509.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Chain Timer 9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438476.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Screegle - Clean Screen Sharing 2.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438473.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ NetShred X 5.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438470.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VideoDuke 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438469.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Chronicle Pro 14.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438468.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Music Tag Editor Pro 7.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438466.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438463.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Affinity Photo Beta 1.9.0.196 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438426.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ My Metronome 1.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438377.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ KCNcrew Pack 08-15-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438374.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Millumin 4 v 4.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438372.jpg" />
 </div>
 
 

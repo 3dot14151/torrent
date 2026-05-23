@@ -1,29 +1,3 @@
-###  Публикация: 1028664   (688085) от 23.06.2016
-
-Asemblance (2016) [En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Asemblance — это приключенческая игра от первого лица, действие которой разворачивается внутри машины, воссоздающей воспоминания.Тип издания: RepackРазработчик: Nilo StudiosЖанр: Adventure, 1st Person, 3D, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C9457D1B0822B6BE8EA5E139A65D2B1811BB38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481227   (688061) от 05.03.2022
 
 Night Watcher / Ночной смотрящий (2008) [Ru] (1.0) License
@@ -32,7 +6,7 @@ Night Watcher / Ночной смотрящий (2008) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688061.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ MTB Downhill Simulator (2016) [Ru/Multi] (1.04) License HI2U
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687957.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BATTLETECH (2018) [Ru/Multi] (1.4.0-449R/dlc) Repack R.G. Механики [Digi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687838.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Chimeras 5 Mark of Death / Химеры: Метка смерти (2017) [Ru] (1.
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686961.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ STRAFE (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686777.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Queens Quest 4 Sacred Truce Collector's Edition/Королевский Квес�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686733.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Death Rally (2012) [En] (1.00.20.141) Repack R.G. Origami
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686678.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Broforce (2015) [En] (5399) Repack R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686671.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Reframed (2018) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686615.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Might and Magic - Clash of Heroes (2011) [Ru/Multi] (1.0.1.1) Repack R.G. Origam
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686517.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686515.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Wanderlust 2: The City of Mists (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686243.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Mystery Case Files 20: Black Crown / За семью печатями 20: Чёр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686179.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Hidden Expedition 19: The Price of Paradise / Секретная экспеди�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686176.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Re;Lord 2 ~The witch of Cologne and black cat~ (2021) [En] (1.00/dlc) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686021.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Room 404 (2016) [En/Pt] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685780.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Breached (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685775.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Steel Rats (2018) [Ru/Multi] (1.0/upd2/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685564.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ DESOLATE (2019) [Ru/Multi] (1.2.8) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685554.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Mortimer Beckett And The Secrets Of Spooky Manor / Мортимер Бэккет
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685275.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ DeathMan / Кощей Бессмертный (L) [Русский] (2012)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685265.jpg" />
 </div>
 
 
@@ -588,7 +562,7 @@ Lost Orbit (2015) [Ru/Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684840.jpg" />
 </div>
 
 
@@ -614,7 +588,7 @@ Virtual Pool 4 (2015) [En] (4.1.4.1) License PLAZA
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684832.jpg" />
 </div>
 
 
@@ -640,7 +614,7 @@ Radical Dungeon Sweeper (2018) [Multi] (1.06) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684689.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ Basingstoke (2018) [En] (82.1.4252018.84250) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684687.jpg" />
 </div>
 
 
@@ -677,6 +651,32 @@ Basingstoke представляет собой суровый рогалик с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:482051F86FEA1E610D2A78526085F42697075A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222536   (684561) от 29.04.2018
+
+Monster Prom (2018) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осталось всего 3 недели до выпускного вечера, и у вас еще нет пары ... и вы монстр. Но это нормально, потому что в вашей средней школе все остальные тоже! Monster Prom - симулятор свиданий в средней школе для монстров.Тип издания: RepackРазработчик: Beautiful GlitchЖанр: Simulator, Visual novel, 2DЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013DD021E37CD194952FE520E2560628A090EC1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

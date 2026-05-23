@@ -6,7 +6,7 @@ Tribler 6.0.2 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_372481.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ CyberLink YouCam Deluxe 5.0.2219 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_372477.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Far Manager 3.0 build 4444 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372458.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Sumatra PDF 3.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372456.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Audiority - PlexiTape 1.1.0 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372431.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ SolveigMM Video Splitter 6.1.1810.12 Beta Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372421.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ DVDFab 10.2.1.7 RePack by arina-23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372410.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ StartIsBack++ 1.1.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372318.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Adobe Acrobat Pro DC 2022.002.20212 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372308.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Adobe Premiere Pro 2022 22.6.2.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372304.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ BELOFF 2022.09 (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372303.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ MediaHuman YouTube to MP3 Converter 3.9.8.17 (2110) RePack by вовава [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372281.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Q-Dir 7.84 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372276.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Mirillis Action! 3.10.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372272.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Adguard Premium 6.4.1739.4753 RC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372256.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Auslogics Driver Updater 1.7.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372184.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Soft4Boost Document Converter 5.0.9.659 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372158.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ EssentialPIM Pro Business Edition 8.56 RePack (& portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372156.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ PIDKey Lite 1.63.8 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372141.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Foxit PhantomPDF Business 9.3.0.10826 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372128.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ SolveigMM Video Splitter 5.0.1510.23 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372070.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Auslogics Driver Updater 1.7.0.0 Final Portable by punsh [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372062.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372035.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Download Master 6.14.2.1577 RePack (&Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372021.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ NetLimiter 4.0.52.0 Pro RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371995.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Happy Digital - Autograss 1.50 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371986.jpg" />
 </div>
 
 

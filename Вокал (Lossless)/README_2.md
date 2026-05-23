@@ -6,7 +6,7 @@ Henry Purcell – Songs of Welcome and Farewell: Suzie Leblanc, Barbara Borden e
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616896.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Wolfgang Amadeus Mozart - Le Nozze di Figaro - (Безумный день, ил�
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604203.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Mario Carrara - Un Amore Cosi Grande (1997) [FLAC|Lossless|image + .cue] <Classi
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604043.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ New London Chamber Choir, James Wood - Secular Choral Music, Francis Poulenc -(2
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602475.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Rabassa - Requiem (Harmonia del Parnàs) (2007) [FLAC|Lossless|image + .cue] <Cl
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599605.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Gossec - Aux Armes, Citoyens! (2010) [FLAC|Lossless|tracks + .cue] <Music for Wi
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574577.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Andrew Lloyd Webber - Classic: Orlando Pops Orchestra (2004) 2CD[FLAC|Lossless]<
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552704.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ John Clerk of Penicuik - Cantatas - Catherine Bott, Concerto Caledonia (1998) [F
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532568.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ VA - Diva - 30 Great Prima Donnas (2001) [FLAC|Lossless]<Classic, Vocal>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511406.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498606.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ VA - One Night at the Opera (5CDs) (2000) [FLAC|tracks + .cue]<Classical, Romant
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494158.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Weber, Mahler - Die drei Pintos (Paolo Arrivabeni & National Philharmonic Orches
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483944.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Andrew Lloyd Webber - The Phantom of the Opera (1987) [FLAC|(image+.cue)]<Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481722.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Biber - Missa Bruxellensis (Jordi Savall) (1999) [FLAC|Lossless|image + .cue] <C
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475074.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Brahms - Ein deutsches Requiem (John Eliot Gardiner & Orchestre Revolutionnaire 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464764.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Johann Ernst Eberlin - Missa in C major, Requiem in C major (Jurgen Rettenmaier 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449573.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Charles Gounod - Faust (Plácido Domingo,Mirella Freni,Nicolai Ghiaurov,Georges 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448314.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Renata Tebaldi - The Great Renata Tebaldi (2002)(2CD) [APE|Lossless|image + .cue
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442035.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Arianna Savall - Peiwoh (2009) [FLAC|Lossless|tracks + .cue] <Classical, Vocal M
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434675.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Rossini - Guillaume Tell (Lamberto Gardelli & Royal Philharmonic Orchestra) (201
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420265.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Giuseppe Verdi - Don Carlos (Sir Georg Solti & The Orchestra of the Royal Opera 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407831.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Montserrat Caballe - Recital Espagnol (2003)(2CD)(RCA RED SEAL) [FLAC|Lossless]<
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407692.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Giuseppe Verdi - Otello: Tullio Serafin & Rome Opera Orchestra and Chorus (1998)
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406570.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Giuseppe Verdi - Aida: Riccardo Muti & Montserrat Caballe, Placido Domingo (1986
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406515.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Giuseppe Verdi - Rigoletto (Tullio Serafin, Orchestra & Chorus Of La Scala)  2C
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406085.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ Anna Netrebko - 3 альбома (2006-2009) [FLAC|Lossless]<Classical, Vocal>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406070.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1071754   (344367) от 16.11.2016
-
-Yesterday Origins (2016) [Ru/Multi] (1.0/u4) License SKIDROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя новейшее приключение от Pendulo Studios, создателей серии Runaway! 1481. Юного Джона унижают и публично тащат по улице. Он обвинен в колдовстве испанской инквизицией и брошен в тюрьму, где его подвергнут пыткам. Позже с ним произойдет алхимическая трансмутация, благодаря которой он обретет бессмертие.Тип издания: LicenseРазработчик: Pendulo StudiosЖанр: Violent, AdventureЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D2941DD3E030FF9F6D477D3FC2AE92EE1BB4B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 837579   (344021) от 08.11.2014
 
 Penumbra 4: Necrologue / Пенумбра 4: Некролог (2014) [Ru] (1.0) Repack R.G. Механики
@@ -32,7 +6,7 @@ Penumbra 4: Necrologue / Пенумбра 4: Некролог (2014) [Ru] (1.0) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344021.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Attentat 1942 (2017) [En/Cz] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344005.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ The Book of Unwritten Tales (2012) [Multi] (2.0.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343837.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.7998) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343059.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ TheNightfall (2018) [Ru/Multi] (1.5) Repack Other s [Halloween Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342472.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ The Dark Eye. Chains Of Satinav [Ru/En] (Repack/1.1) 2012 | Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342025.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ Among the Sleep (2014) [Ru/Multi] (3.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341957.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Turnip Boy Commits Tax Evasion (2021) [Ru/Multi] (1.1.3f1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340649.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ The Lost Chronicles of Zerzura [En] (L) 2012 | SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339500.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ Black Mirror Anthology | Антология. Чёрное зеркало [Ru/En]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339483.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.0 Upd2) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339290.jpg" />
 </div>
 
 
@@ -325,7 +299,7 @@ Transient (2020) [Ru/Multi] (0.119) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336924.jpg" />
 </div>
 
 
@@ -351,7 +325,7 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335887.jpg" />
 </div>
 
 
@@ -377,7 +351,7 @@ Among the Sleep (2014) [Ru/Multi] (2.0.1/dlc) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335257.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ Alwa's Legacy (2020) [Multi] (1.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334722.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ Kena: Bridge of Spirits (2021) [Ru/Multi] (2.02/dlc) Repack Other s [Digital Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332752.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ Game of Thrones: A Telltale Games Series (2014-2015) [En] (1.0.0.1) License CODE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326303.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ Leisure Suit Larry - Wet Dreams Dry Twice (2020) [Ru/Multi] (1.0.1.54) License G
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323686.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ Leisure Suit Larry: Love for Sail! / Ларри в выходном костюм
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322440.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ Memoria (2013) [Ru/En] (1.2.3.0341) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320896.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License RELOADED [Epi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320616.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.3) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320214.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ Morels The Hunt (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320186.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320042.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ Sherlock Holmes: Crimes and Punishments (2014) [Ru] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319870.jpg" />
 </div>
 
 
@@ -674,6 +648,32 @@ Crimes and Punishments — это детективный квест, посвя�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFE6C9512F617CE7CE9DF4B8A4DE45A10F68C140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421058   (319182) от 04.11.2020
+
+Asterix & Obelix XXL: Romastered (2020) [Multi] (1.0.29) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Asterix и Obelix с помпой возвращаются в новой версии, полной римлян. На дворе 50-й год до н.э. Вся Галлия оккупирована римлянами... Вся? Нет! Одна деревушка, населенная непокорными галлами, до сих пор сопротивляется захватчику. И гарнизонам римских легионеров в укрепленных лагерях Babaorum, Aquarium, Laudanum и Petitbonum живется очень несладко.Тип издания: LicenseРазработчик: OSome StudioЖанр: Экшн, ПриключениеЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC23138CDEE9E92BC280E88D069986CA7AD71216
 ```
 
 https://mybot314.ru/tekegram_catalog/

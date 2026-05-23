@@ -1,29 +1,3 @@
-###  Публикация: 1121360   (302328) от 11.11.2018
-
-Dark Souls III / Dark Souls 3 (2016) [Ru/Multi] (1.15/reg1.35/dlc) Repack Seraph1 [Game of the Year Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Огонь гаснет, мир обращается в руины, и вам предстоят сражения с еще более колоссальными врагами. Вас ждет традиционная мрачная и притягательная атмосфера, напряженные битвы и еще более динамичный геймплей. Неважно, начинаете ли вы знакомство с серией или давно являетесь ее преданным поклонникомТип издания: RepackРазработчик: From SoftwareЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A73B212287FAC91B6E7FED32B8DD56C39F930E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 585301   (302311) от 06.12.2012
 
 Darksiders: Wrath of War [Ru/En/Multi9) (Steam-Rip/1.1) 2010 | R.G. Origins
@@ -32,7 +6,7 @@ Darksiders: Wrath of War [Ru/En/Multi9) (Steam-Rip/1.1) 2010 | R.G. Origins
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302311.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Darksiders Dilogy / Дилогия Darksiders [Ru] (RePack/1.1/1.5) 2010-2012 | 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302301.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Homefront [Ru/En] (Rip/1.0.384501) 2011 | R.G. Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302151.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ Blade & Bones (2016) [Ru/Multi] (1.0) License RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301885.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.13.0) License PROPER-PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301795.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ Breach & Clear: Deadline Rebirth (2015) [Ru/Multi] (1.23) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301758.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.1.2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301657.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ Genesis Alpha One (2020) [Ru/Multi] (147.8763/dlc) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301517.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ GUTS (2017) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300984.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ Endless Fables 2: Frozen Path / Сказки без конца 2: Ледяная
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300858.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0.0.1/2017.6.29.321) Rep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300828.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ Hollow (2017) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300659.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ Norman's Night In (2019) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300611.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ TSIOQUE (2018) [En/De/Pl] (1.0.5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300375.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Tyranny (2016) [Ru/Multi] (1.2.1.0160/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300369.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Steel Rats (2018) [Ru/Multi] (1.01/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300356.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Galaxy of Pen and Paper (2017) [En/Br] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300349.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Far Cry 3: Трейнер (Trainer/+18) 2012 | FLiNG
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300050.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Darksiders 2: Death Lives - Limited Edition [Ru/En/Multi9] (Steam-Rip/1.5/18 DLC
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_299890.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Whispered Secrets 6: Song of Sorrow / Нашептанные секреты 6: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299697.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Hidden Expedition 10: The Fountain of Youth / Секретная экспеди�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299574.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Rogue Wizards (2016) [En] (1.0.311) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299446.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ WRC: FIA World Rally Championship [Ru] (L) 2010 | R.G. Игроманы
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299042.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299005.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.05/2dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298993.jpg" />
 </div>
 
 
@@ -676,6 +650,32 @@ Call of Juarez The Gunslinger перенесет вас на просторы л
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61017256AE79ACADD8EF78842E58B45AA9BA549C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184716   (298778) от 18.11.2017
+
+Fright Chasers: Dark Exposure / Ловцы страхов: Темная сущность (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298778.jpg" />
+</div>
+
+
+###  Подробнее
+
+По заданию редакции блога Ловцов Страхов Вы отправляетесь с подругой Лизой расследовать случай паранормальной активности в заброшенном особняке четы известных астрономов Килборнов... Блог Ловцов Страхов был создан с четко сформулированной целью: документировать всевозможные жуткие и пугающие события и места. Изучая дома с привидениями и исследуя странные и необъяснимые (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED7A47DA7E2AE74EF2B684C90348F6EB68ECDCB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

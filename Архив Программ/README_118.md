@@ -6,7 +6,7 @@ Windows 10 (v21h1) x64 HSL/PRO by KulHunter v1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014883.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Calibre 5.18.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014823.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Bootstrap Studio 5.6.4 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014796.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Format Factory 5.7.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014782.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ StartIsBack++ 2.9.13 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014739.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Adobe Photoshop 2021 22.4.1.211 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014727.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ StartIsBack++ 2.9.13 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014721.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Windows Firewall Control 6.5.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014719.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Windows 7 SP1 52in1 (x86/x64) +/- Office 2019 by Eagle123 (05.2021) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014577.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ UltraISO Premium Edition 9.7.6.3812 (DC 23.05.2021) RePack (& Portable) by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014576.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Spotify 1.1.59.714 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014508.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ant Download Manager Pro 2.2.5 акция (Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014467.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Realtek Ethernet Driver 10.049 /8.086 /7.140 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014455.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ AIMP 4.70 Build 2251 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014451.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ AIMP 4.70 build 2251 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014423.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ PDF Shaper Professional 11.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014364.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Aiseesoft Video Converter Ultimate 10.2.16 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014363.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ RAM Saver Professional 21.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014338.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Movavi Video Suite 21.3.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014286.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Revo Uninstaller Pro 4.4.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014271.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ FBackup 9.0.290 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014226.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Skype 8.72.0.94 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014213.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Opera GX 75.0.3969.279 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014206.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Complete Internet Repair 8.1.3.5260 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014193.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Opera 76.0.4017.154 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014180.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ PassMark PerformanceTest 10.1 Build 1002 RePack (& Portable) by elchupacabra [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014171.jpg" />
 </div>
 
 

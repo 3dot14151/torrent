@@ -1,55 +1,3 @@
-###  Публикация: 1350647   (1003155) от 06.01.2020
-
-Эбигейл (2019) BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Молодая девушка Эбигейл живет в городе, границы которого закрыли много лет назад из-за эпидемии загадочной болезни. Отец Эбби был одним из заболевших — и его забрали, когда ей было шесть лет. Пойдя наперекор властям, чтобы разыскать отца, Эбби узнает о том, что ее город на самом деле полон магии. И в ней самой пробуждаются необыкновенные магические способности…Производство: Россия / KD StudiosЖанр: Приключения, фэнтези, семейныйРежиссер: Александр БогуславскийАктеры: Тинатин Далакишвили, Эдди Марсан, Артём Ткаченко, Равшана Куркова, Риналь Мухаметов, Глеб Бочков, Марта Тимофеева, Никита Тарасов, Ксения Кутепова, Петар ЗекавицаПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B93F797AFF343F066A83AED4858F065CCA31A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350603   (1003148) от 06.01.2020
-
-Эбигейл (2019) BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Молодая девушка Эбигейл живет в городе, границы которого закрыли много лет назад из-за эпидемии загадочной болезни. Отец Эбби был одним из заболевших — и его забрали, когда ей было шесть лет. Пойдя наперекор властям, чтобы разыскать отца, Эбби узнает о том, что ее город на самом деле полон магии. И в ней самой пробуждаются необыкновенные магические способности…Производство: Россия / KD StudiosЖанр: Приключения, фэнтези, семейныйРежиссер: Александр БогуславскийАктеры: Тинатин Далакишвили, Эдди Марсан, Артём Ткаченко, Равшана Куркова, Риналь Мухаметов, Глеб Бочков, Марта Тимофеева, Никита Тарасов, Ксения Кутепова, Петар ЗекавицаПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90D6219977D26633F0A02C688691A912DF4DB27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487720   (1002957) от 07.08.2021
 
 Бег / Run (2020) WEB-DLRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002957.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002897.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002873.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002671.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002666.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002632.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002617.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002400.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002382.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002362.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002350.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002346.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002205.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002095.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001822.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001820.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001818.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001533.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001504.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001328.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000791.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000180.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000151.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000103.jpg" />
 </div>
 
 
@@ -671,6 +619,62 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30B2FC465269EA36980BFB72ACBE2C19AED48750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598300   (999868) от 04.01.2013
+
+Фото моей девушки (2008) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает романтическую историю фотографа Ивана, влюбленного в девушку Машу. Иван живет в приморском городе. Каждый год в один из соседних с ним домиков приезжает из Москвы Маша, работница столичного издания. Девушка пишет про психологию отношений между мужчиной и женщиной, а именно — увлекательные статьи "20 способов привлечь его внимание", "10 способов сказать ему, что вы беременны" и тому подобные шедевры. Однажды старый фотограф рассказывает Ивану про волшебный фотоаппарат. Если им сфотографируешь человека и будешь хранить у себя фотографию, что человек этот в тебя непременно влюбится. Разумеется, обогатившись этим знанием, Иван первым делом фотографирует Машу. Однако фото вскоре у него исчезает, а Маша таинственным образом начинает вздыхать по всем своим соседям мужского пола...Жанр: КомедияРежиссер: Алексей КолмогоровАктеры: Станислав Беляев, Наталья Швец, Юозас Будрайтис, Нина Гребешкова, Полина Лунегова, Лия Ахеджакова, Александр Робак, Сергей Афанасьев, Константин Чепурин, Ирина Сидорова, Нелли Пшенная, Елена Пирогова-Филиппова, Юлия Тельпухова.Перевод: Не требуется (Русский)Продолжительность: 01:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868C654156E7B49E7259487A8C05B3001C509C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598261   (999819) от 04.01.2013
+
+День Додо (2012) SATRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весь год сотрудники музея трудились не покладая рук: составляли картотеки, протирали чучела, собирали по кусочкам историческое наследие. В канун Нового года им, конечно, хотелось настоящего праздника, но научные работники вниманием не избалованы и в средствах стеснены.
+
+Когда надежда на яркое торжество почти умерла, в музейную дверь постучали. Нежданные гости внезапно предложили устроить сотрудникам корпоратив с угощением, выпивкой и светомузыкой. Обалдевшие от радости музейщики даже предположить не могли, что меценаты — гангстеры, нанятые заокеанским коллекционером, а цель их — единственное сохранившееся чучело птицы додо.
+
+План бандитов был идеален, но они не учли одного: помимо хилых ботаников в музее работал охранник Гена. Он давно мечтал стать героем и произвести впечатление на экскурсовода Машу, а это значит, что у злодеев — ни единого шанса!Жанр: Мелодрама, комедияРежиссер: Ирина ГедровичАктеры: Владимир Стержаков, Дарья Сагалова, Александр Бобров, Андрей Федорцов, Валерий Гаркалин, Семён Стругачев, Вилле Хаапасало, Альберт Филозов, Александр Леньков, Ольга Волкова, Даниил Спиваковский, Максим ЛитовченкоПродолжительность: 01:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3223A1DEF7F5FD91802A33FC883A7E41E427F15
 ```
 
 https://mybot314.ru/tekegram_catalog/

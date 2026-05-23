@@ -1,31 +1,3 @@
-###  Публикация: 1022256   (729235) от 01.06.2016
-
-Republique Remastered Ep. 1-5 (2015-2016) [Ru/Multi] (1.0) R.G. Catalyst [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-С вами связывается Хоуп, девушка из странной тоталитарной страны. Взломав комплексную систему наблюдения, вы помогаете Хоуп пробраться сквозь паутину опасности и обмана, используя камеры слежения и самые современные гаджеты.
-
-Republique разработана ветеранами игровой индустрии (в свое время ее авторы работали над Metal Gear Solid 4, Halo 4, F.E.A.R., SOCOM) на современном (   Читать дальше...   )Тип издания: RepackРазработчик: CamouflajЖанр: Adventure, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADFDEF7FC9EAE446F7CE7CE7EEDF711625E2883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022252   (728014) от 02.06.2016
 
 Nancy Drew: Sea of Darkness / Нэнси Дрю: Песнь темных вод (2015) [Ru] (1.0) Unofficial
@@ -34,7 +6,7 @@ Nancy Drew: Sea of Darkness / Нэнси Дрю: Песнь темных вод 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728014.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ Don't Starve Together (2016) [En] (214437) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725742.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ What Remains of Edith Finch (2017) [Ru] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725740.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ Investigator (2016) [Ru/En] (1.14/dlc) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724903.jpg" />
 </div>
 
 
@@ -138,7 +110,7 @@ Life Is Strange 2 (2018) [Ru/Multi] (1.0) License CPY [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724062.jpg" />
 </div>
 
 
@@ -164,7 +136,7 @@ The Alien Cube (2021) [Ru/Multi] (Build 8187558) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723975.jpg" />
 </div>
 
 
@@ -190,7 +162,7 @@ INFERNIUM (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722836.jpg" />
 </div>
 
 
@@ -216,7 +188,7 @@ Life is Strange 2 (2018) [Ru/Multi] (1.0) Repack Other s [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722318.jpg" />
 </div>
 
 
@@ -242,7 +214,7 @@ Pacify (2019) [Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720518.jpg" />
 </div>
 
 
@@ -268,7 +240,7 @@ Devotion (2019) [Multi] (1.0.5) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720389.jpg" />
 </div>
 
 
@@ -294,7 +266,7 @@ Lust from Beyond (2022) [Ru/Multi] (01.02.2022) License GOG [M Edition] [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720145.jpg" />
 </div>
 
 
@@ -320,7 +292,7 @@ What Remains of Edith Finch (2017) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719976.jpg" />
 </div>
 
 
@@ -346,7 +318,7 @@ Candleman: The Complete Journey (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718981.jpg" />
 </div>
 
 
@@ -372,7 +344,7 @@ Returner 77 (2018) [Ru/Multi] (4102018) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718974.jpg" />
 </div>
 
 
@@ -398,7 +370,7 @@ The Long Dark (2017) [Ru/Multi] (1.29) License RELOADED [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718966.jpg" />
 </div>
 
 
@@ -424,7 +396,7 @@ Nancy Drew: Midnight in Salem / Нэнси Дрю: Полночь в Сейле�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718534.jpg" />
 </div>
 
 
@@ -450,7 +422,7 @@ Life Is Strange 2 (2018) [Ru/Multi] (1.0) Repack xatab [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718371.jpg" />
 </div>
 
 
@@ -476,7 +448,7 @@ KAPIA (2022) [Ru/Multi] (1.266) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718176.jpg" />
 </div>
 
 
@@ -502,7 +474,7 @@ Scarf (2021) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718172.jpg" />
 </div>
 
 
@@ -528,7 +500,7 @@ Day of the Tentacle Remastered (2016) [En/Multi] (1.3.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717242.jpg" />
 </div>
 
 
@@ -554,7 +526,7 @@ The Road to Hades (2018) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716916.jpg" />
 </div>
 
 
@@ -580,7 +552,7 @@ Skully (2020) [Ru/Multi] (1.0.161.6416) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716584.jpg" />
 </div>
 
 
@@ -606,7 +578,7 @@ Subnautica (2018) [Ru/Multi] (65786) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716446.jpg" />
 </div>
 
 
@@ -632,7 +604,7 @@ Minecraft: Story Mode (2015) [Ru/Multi] (1.0.0.1) Repack Other s [Episodes 1-6]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715286.jpg" />
 </div>
 
 
@@ -659,7 +631,7 @@ Solas and the White Winter (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715056.jpg" />
 </div>
 
 
@@ -670,6 +642,32 @@ Solas and the White Winter (2018) [Ru/Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FB3F9172CD9441D7DC384DF8D702BCD065AA599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219266   (715053) от 13.04.2018
+
+Amberskull (2018) [Ru/Multi] (1.1.2) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715053.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пыльном, темном углу старой потрепанной комнаты потрескивает включенный телевизор, и к вам обращается коллекция кассет VHS. Приготовьтесь отправиться в путешествие по темному лесу, замерзшей пустыне, загадочному океану и заброшенному объекту. Каждое место, которое вы посещаете, скрыто в секретах, скрыто из виду... но имейте в виду, не все так, как кажется...Тип издания: LicenseРазработчик: Charlie BehanЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059B2F819E4DCC33D0BCD8D23E37DF17DD7A31B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Papetura (2021) [Graphic] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016340.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Iselin Saga (2021) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016262.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Realpolitiks II (2021) [Ru/Multi] (1.00) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016185.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Spirit Legends 5: The Aeon Heart (2021) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016111.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mystery Tales 14: Master of Puppets / Загадочные истории 14: К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015938.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Don't Escape: 4 Days to Survive (2019) [Multi] (1.2.1) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014934.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ LEFT ALIVE (2019) [Multi] (1.0) License EMPRESS
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014734.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ LEFT ALIVE (2019) [Multi] (1.03/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014578.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Nox Archaist (2021) [En] (1.1.4e) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014417.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Tohu (2021) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014305.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Essays on Empathy (2021) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014285.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Ark of Artemis (2021) [Multi] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014276.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Wild Case / Дикий случай (2021) [Ru/Multi] (1.0.5) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014111.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ BIOMUTANT (2021) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014100.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Legendary Tales 2: Cataclysm (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013973.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Rainswept (2019) [En] (1.1.5a/1.1.4a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013948.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Narita Boy (2021) [Ru/Multi] (1.0.1.61) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013787.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Jump King (2019) [En] (g1.06) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013772.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Larger Than Light (2021) [En] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013655.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Company Man (2021) [En] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013612.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Fatal Evidence 4: In A Lamb's Skin / Роковые улики 4: В шкуре 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013481.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Little Misfortune (2019) [Ru/Multi] (1.0) License GOG [Fancy Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013453.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Chrono Trigger (2018) [En] (1.0) License TiNYiSO [Limited Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013447.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Mistover (2019) [Multi] (1.0.9a/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013445.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Creepy Tale (2020) [Ru/Multi] (1.0.2b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013444.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Mayhem in Single Valley (2021) [Ru/Multi] (4.0.00) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013443.jpg" />
 </div>
 
 

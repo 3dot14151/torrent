@@ -6,7 +6,7 @@ Sugar Bytes - DrumComputer 1.2.4 STANDALONE, VSTi (X64) RePack [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819382.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ save2pc Ultimate 5.45 Build 1541 Portable by PortableAppC [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819318.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Internet Download Manager 6.25 Build 15 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819315.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SyMenu 6.16.7962 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819257.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 6.50.5800 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819249.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AIMP 5.00 build 2335 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819244.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PDF-XChange PRO 9.2.357.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819239.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Nox App Player 7.0.1.7007 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819235.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 6.50.5800 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819232.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Internet Download Manager 6.25 Build 15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819155.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Torch Browser 69.2.0.1705 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819136.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ RegCool 1.120 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819126.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ MediaInfo 0.7.93 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819103.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ TechSmith Camtasia 2021.0.12 (Build 33438) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819088.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ CyberLink PowerDirector Ultimate 20.0.2204.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819085.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ IObit Uninstaller Pro 11.1.0.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819075.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Wise Program Uninstaller 2.1.5.114 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819047.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ PT Photo Editor Pro Edition 3.2 RePack (& Portable) by 78Sergey-Dinis124 [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819009.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819007.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ ORPALIS PaperScan Professional 3.0.108 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818988.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NirLauncher Package 1.23.21 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818974.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Epic Privacy Browser 80.0.3987.87 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818973.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ IObit Uninstaller Pro 9.5.0.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818971.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ ESET NOD32 Internet Security 15.0.16.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818920.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ AIDA64 Extreme /Engineer / Business / Network Audit 6.50.5800 RePack (& Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818915.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Windows 11 21Н2 (build 22000.258) (3in1) by ivandubskoj 16.10.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818904.jpg" />
 </div>
 
 

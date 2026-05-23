@@ -1,254 +1,3 @@
-###  Публикация: 1577244   (207849) от 17.09.2022
-
-Slurm (Слёрм), Всеволод Севостьянов | Ansible: Infrastructure as Code (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Практический видеокурс на котором научим применять Ansible для управления конфигурациями. Вы точно будете знать, какие преимущества дает подход IaC, когда можно использовать роли из Galaxy и как работать с Ansible быстрее, чем при дефолтных настройках.
-
-После курса ты:
-Можешь конфигурировать рутинные задачи и никакие правки конфигураций тебя не остановят.(   Читать дальше...   )Производство: Slurm (Слёрм)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ABE78AA2B5887B05A10F4C849B468E2B9954FE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578425   (207543) от 23.09.2022
-
-Udemy, Denis Panjuta | The Complete Android 12 & Kotlin Development Masterclass (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Итак, вы хотите стать разработчиком Android и работать из любой точки мира, или, может быть, даже в том же месте, где вы сейчас находитесь, но с гораздо более интересной и хорошо оплачиваемой работой? Изучение разработки приложений для Android - это правильный путь.
-
-У вас есть отличная идея для приложения, и вам просто нужно научиться воплощать ее в жизнь? Или ваши (   Читать дальше...   )Производство: UdemyЖанр: Программирование, Android, KotlinЯзык озвучки: АнглийскийПродолжительность: 41:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D40BEC0FCEB15E2C97C0A27D3FF4361A967EE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578614   (207471) от 23.09.2022
-
-Profit | Современные фреймворки на PHP (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Курс посвящен сравнительному обзору двух ведущих в настоящий момент фреймворков: Symfony и Laravel. Понятия, базовые для любого современного MVC-фреймворка, такие как: роутинг и маршрутизация, построение контроллеров, шаблонизация, работа с базой данных, консольные приложения; рассматриваются на примере обоих фреймворков, что позволяет вам в конце изучения курса (   Читать дальше...   )Производство: ProfitЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:26:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750633171D2DFBAC44100C5937185F295560C824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579126   (207320) от 25.09.2022
-
-WebCademy | Интенсив по JavaScript. Калькулятор рассчета ипотеки (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Хочешь научиться делать онлайн-калькуляторы на JavaScript любой сложности? Мы записали интенсив из 21 урока, где поэтапно реализуем калькулятор для расчета ипотеки. С кодом к каждому уроку.
-
-Подробнее о калькуляторе:автоформатирование вводимых данных
-range слайдеры для выбора стоимости(   Читать дальше...   )Производство: WebCademyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BFA95FFE51A246BE154087AA5DF1846720B7968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579588   (207156) от 27.09.2022
-
-Udemy, Bogdan Stashchuk | The Complete Apache Kafka Practical Guide (2022) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Это полное практическое руководство по Apache Kafka, которое включает в себя массу практических действий. Вы узнаете, как работает Apache Kafka, вы сможете намного проще использовать его функции и исправлять ошибки в будущем после того, как закончите этот курс. У вас могут быть нулевые знания об Apache Kafka, Java, Node.js или Python. Все будет преподаваться с нуля, (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 08:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED6BABB0032931A3E1D3965738BA61C49D9ACBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579823   (207095) от 28.09.2022
-
-Udemy, Awesome Tuts | The Most Comprehensive Guide To Unity Game Development Vol 1 (2022) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Это наиболее полный онлайн-курс, который проведет вас от полного новичка до создания собственных игр на игровом движке Unity. Этот курс научит вас полному процессу создания игры шаг за шагом от пустого проекта до играбельной игры. Чтобы достичь этого, курс полностью основан на проектах, а не только на простых проектах hello world или move the cube, я на самом деле (   Читать дальше...   )Производство: Udemy, Awesome TutsЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 28:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:110EFAAD9C7CBDDB003D3077C6A08BCDACD4BFAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484617   (207039) от 28.09.2022
-
-Profbuh8.ru, Елена Грянина | ЗУП 3.1 кадровый и зарплатный учет от А до Я (2021) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Курс "ЗУП 3.1 кадровый и зарплатный учет от А до Я" содержит:
-23 модуля, 137 учебных тем
-457 видеоуроков
-191 практическое задание(   Читать дальше...   )Производство: Profbuh8.ruЖанр: 1С, ЗУПЯзык озвучки: РусскийПродолжительность: 48:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392DF23B1099B36FF04D4B301CC4B4E1CB4753BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580493   (206863) от 01.10.2022
-
-Udemy, Maximilian Schwarzmüller, Manuel Lorenz | 100 Days Of Code - 2021 Web Development Bootcamp (2021) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к самому полному учебному лагерю веб-разработки на Udemy!
-Этот курс научит вас веб-разработке и превратит вас в веб-разработчика за 100 дней - или позволит вам освежить ключевые основы и расширить ваши существующие знания!
-
-Стать веб-разработчиком - отличный выбор, потому что веб-разработка открывает множество карьерных путей, а навыки веб-разработки (   Читать дальше...   )Производство: UdemyЖанр: Programming, Web Developement, BootcampЯзык озвучки: АнглийскийПродолжительность: 79:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702B27BE10580A0ABFBCED9D845055BDC0E1169D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651788   (206766) от 09.08.2023
-
-Stephane Maarek | Ultimate AWS Certified Cloud Practitioner - 2023 (2023) WEBRip [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Beginners welcome: no need to know anything about AWS!
-
-The AWS Certified Cloud Practitioner certification is a great entry-level certification for AWS. It's great at assessing how well you understand AWS, its services, and its ecosystem.
-(   Читать дальше...   )Жанр: AWS, Cloud, AmazonЯзык озвучки: АнглийскийПродолжительность: 14:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7922665083A9EE667AA8EC06946D366365ACF696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580783   (206659) от 03.10.2022
 
 Udemy, Maximilian Schwarzmüller | Angular - The Complete Guide (2022 Edition) (2022) WEB-DL [EN / EN Sub]
@@ -257,7 +6,7 @@ Udemy, Maximilian Schwarzmüller | Angular - The Complete Guide (2022 Edition) (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206659.jpg" />
 </div>
 
 
@@ -285,7 +34,7 @@ Infostart, Николай Бондаренко | Базовый курс по р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206618.jpg" />
 </div>
 
 
@@ -314,7 +63,7 @@ Scott Duffy | AZ-104 Microsoft Azure Administrator Exam Prep (2021) WEBRip [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206608.jpg" />
 </div>
 
 
@@ -342,7 +91,7 @@ Thinknetica Pro, Максим Данилов | Возможности Django Adm
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206552.jpg" />
 </div>
 
 
@@ -371,7 +120,7 @@ Udemy, Eric Roby | FastAPI - The Complete Course (Beginner + Advanced) (2022) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206537.jpg" />
 </div>
 
 
@@ -397,7 +146,7 @@ Udemy, Catalin Stefan | Complete FastAPI masterclass from scratch (2022) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206533.jpg" />
 </div>
 
 
@@ -423,7 +172,7 @@ Udemy, Ashutosh Pawar | Django 4 Masterclass 2022: From Development To Deploymen
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206437.jpg" />
 </div>
 
 
@@ -451,7 +200,7 @@ Udemy, Imran Teli | DevOps Beginners to Advanced | Decoding DevOps with Projects
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206410.jpg" />
 </div>
 
 
@@ -477,7 +226,7 @@ Udemy, StudyEasy Organisation, Chaand Sheikh | Full Stack Java-разработ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206385.jpg" />
 </div>
 
 
@@ -503,7 +252,7 @@ Udemy, Bo Andersen | Complete Guide to Elasticsearch (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205985.jpg" />
 </div>
 
 
@@ -529,7 +278,7 @@ CodeWithMosh, Mosh Hamedani | The Ultimate C++ Series (2022) WEB-DL [Part 1-3] [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205826.jpg" />
 </div>
 
 
@@ -558,7 +307,7 @@ Global Digital Space, Алексей Лукацкий | Как обеспечи�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205540.jpg" />
 </div>
 
 
@@ -587,7 +336,7 @@ Udemy, Ben Tristem, Sam Pattuzzi | Unreal Engine Blueprint Game Developer: Learn
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205443.jpg" />
 </div>
 
 
@@ -615,7 +364,7 @@ Udemy, Grim Future Studio | Unreal Engine - базовый курс №2. От �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205306.jpg" />
 </div>
 
 
@@ -644,7 +393,7 @@ Zero To Mastery Academy (ZTM), Daniel Bourke | PyTorch for Deep Learning (2022) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205109.jpg" />
 </div>
 
 
@@ -671,7 +420,7 @@ O’Reilly, Valaxy Technologies | DevOps Complete Course (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204927.jpg" />
 </div>
 
 
@@ -699,7 +448,7 @@ Adrian Cantrill | AWS Certified Solutions Architect - Professional (2022) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204764.jpg" />
 </div>
 
 
@@ -712,6 +461,246 @@ Enhance your skills - become a professional level Solutions Architect and pass t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7CA89025EC1FA045C8C382AC621CB430A91C09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586994   (204654) от 28.10.2022
+
+Udemy, GameDev.tv Team, Ben Tristem и др. | RPG Core Combat Creator: Learn Intermediate Unity C# Coding (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Role Playing Games can be complex to create, with many interacting gameplay systems. We make it easy for you! Learn, step-by-step, how to make the foundations of any good RPG combat system - from scratch.
+In this course we're focusing on the core of any great RPG, giving your players a fun combat moment in a well crafted level, based upon a solid game design, built (   Читать дальше...   )Производство: Udemy, GameDev.tv TeamЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 27:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC902ECD449B3DFBBE4D6C009AEE94735F5B6EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601741   (204594) от 02.01.2023
+
+Udemy, Kevin Nguyen | JavaScript & LeetCode | The Interview Bootcamp (2019) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите * все * лучшие практические приемы / техники для решения этих надоедливых проблем с собеседованием, чтобы вы могли получить работу своей мечты!
+Вы готовитесь к следующему собеседованию по программированию, но не знаете с чего начать? Или вы ищете краткое, простое для понимания учебное пособие со всем, что вам нужно знать? Или вы ищете мощное преимущество (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 04:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FB767921E81525773C87307F2958364E7A7CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601684   (204567) от 02.01.2023
+
+Udemy, Piotr Jura | Master NestJS - The JavaScript Node.js Framework (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204567.jpg" />
+</div>
+
+
+###  Подробнее
+
+NestJS — один из самых современных фреймворков Node.js. Этот курс научит вас всему, что вам нужно знать, чтобы начать работать как можно скорее! Не дайте себя обмануть другими более длинными курсами, которые в основном содержат больше пуха и болтовни, чем любые содержательные уроки. Я больше всего ценю ваше время, и слежу за тем, чтобы каждая минута курса была наполнена (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 07:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B3994C30B4A7DF88766AB3876BD8A1C334BB1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602085   (204528) от 03.01.2023
+
+Frontendmasters, Steve Kinney | React Performance (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204528.jpg" />
+</div>
+
+
+###  Подробнее
+
+React это быстро! Да. Но любое приложение, которое растет, начинает разрабатывать свои собственные пограничные случаи, которые требуют от нас выполнения детективной работы для достижения максимальной производительности. Мы рассмотрим некоторые распространенные ловушки приложений React, как их диагностировать и как измерить эффективность ваших решений. Вы узнаете, (   Читать дальше...   )Производство: FrontendmastersЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB753EF5AC50FAE99C99F2A250DDB5B61965FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602069   (204521) от 03.01.2023
+
+ardanlabs.com, Miki Tebeka | Practical Go Foundations (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204521.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом вводном курсе рассматриваются такие темы, как строки, REST API, обработка ошибок, тестирование, сортировка и многое другое! Идеально подходит для инженеров, которые только начинают свой путь в Go. Этот курс поможет вам ознакомиться с основными понятиями языка программирования Go. Благодаря лекциям и упражнениям вы узнаете об основных концепциях, необходимых (   Читать дальше...   )Производство: ardanlabs.comЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 13:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91DB653AEAE59000FE0E053FE8534DF31AF33BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602189   (204513) от 04.01.2023
+
+Udemy, iwayQ Technology | Project in DevOps: Jenkins CI/CD for Kubernetes Deployments (2020) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ищете современную архитектуру микросервисов для комплексного решения Jenkins CI/CD для автоматизации развертывания приложений? Тогда вы в правильном месте!! Я пользуюсь этой возможностью, чтобы предоставить вам современную интеграцию инструментов DevOps  с полной презентацией архитектуры.
+Инструменты DevOps, используемые для демонстрации практического занятия в рамках (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 04:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B8854AB06A28E983DF0483921601BF9AB6C896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602105   (204497) от 04.01.2023
+
+Udemy, Laith Harb | Docker and Kubernetes - The Complete Developers Guide (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204497.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе мы проведем вас от новичка в Docker и Kubernetes до готового к работе инженера. Этот курс наполнен диаграммами и практическими примерами, чтобы вы могли по-настоящему глубоко понять и использовать Docker и Kubernetes. Мы будем контейнеризовать пять проектов, каждый из которых будет становиться все более и более сложным. Нам нужно закончить этот курс, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 12:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA9E8FF1403C3B7392C1D07189F6D20A3FE963C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602192   (204492) от 04.01.2023
+
+amigoscode, Mama Samba Braima | Docker for DevOps Engineers (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Docker — это инструмент для упаковки и развертывания программного обеспечения с использованием контейнеров. В отличие от виртуальных машин, Docker легковесен и не требует много ресурсов для запуска. Docker стал инструментом, который все используют для выпуска программного обеспечения, и он используется в CD/CI.
+В этом курсе вы узнаете и получите полное представление (   Читать дальше...   )Производство: amigoscodeЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 04:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C572BD3795D777B9A99AAC3DC3ACC19BE52F27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602187   (204476) от 04.01.2023
+
+Udemy, AR Shankar | Valaxy Technologies | DevOps Project - 2022: CI/CD with Jenkins Ansible Kubernetes (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы знакомы с различными инструментами DevOps, такими как git, Jenkins, Maven, Ansible, Docker и Kubernetes, и не понимаете, как они вместе работают? Или вы хотите настроить полный конвейер ci/cd с помощью различных инструментов DevOps? Может вы тот, кто хочет знать, каков логический рабочий процесс проекта DevOps? Тогда этот курс для вас! Добро пожаловать!
+
+В этом (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9AC0FD05CF20C64106D5526BE2F626B0C104DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

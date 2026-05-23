@@ -1,29 +1,3 @@
-###  Публикация: 1205533   (783444) от 10.02.2018
-
-PuppetShow 13: The Curse of Ophelia / Шоу марионеток 13: Проклятие Офелии (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей кукольной серии PuppetShow. Муж Вашей кузины Анжелы отправляет Вам печальное письмо с просьбой приехать как можно скорее. Карьера Анджелы пошла в гору, но после того как она получила ведущую роль в последнем спектакле своего театра, стали происходит странные вещи. Анджела была проклята куклой и теперь находится в коме. Сможете ли Вы найти (   Читать дальше...   )Тип издания: UnofficialРазработчик: AMAX InteractiveЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236DDA04063D59BF24D15A856ACC338360E3ED21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205491   (783416) от 10.02.2018
 
 Pid (2012) [Multi] (18421) License GOG
@@ -32,7 +6,7 @@ Pid (2012) [Multi] (18421) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783416.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ World of Diving (2014) [En] (0.16.2) Repack CoD - MW2
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783412.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783366.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Pro Cycling Manager 2020 (2020) [Multi] (1.0.0.2) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783281.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ SKYHILL: Black Mist (2020) [Ru/Multi] (1.0.002) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783279.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Star Ocean: The Last Hope 4K & Full HD Remaster (2017) [Multi] (1.0.0.0) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783094.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Sable Maze 7: Nightmare Shadows / Темный лабиринт 7: Тени ко
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782888.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Rock of Ages (2011) [Ru/Multi] (1.11) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782836.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Aegis Defenders (2018) [En/Jp] (1.0/upd1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782818.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Sid Meiers: Civilization VI /  Sid Meiers: Civilization 6 (2016) [Ru/Multi] (1.0
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782813.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Rock of Ages 2: Bigger & Boulder (2017) [Ru/Multi] (1.07/dlc) Repack R.G. Cataly
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782812.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Barn Finders (2020) [Ru/Multi] (16128) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782585.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Redeemer (2017) [Ru/Multi] (1.5) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782366.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Desperados III (3) (2020) [Ru/Multi] (1.1.18) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782207.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782198.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Barn Finders (2020) [Ru/Multi] (1.0.0.16128) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782185.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Amaranthine Voyage 8: The Burning Sky / Вечное путешествие 8: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782059.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Carrier Command: Gaea Mission (2012) [Ru/Multi] (1.6.0011) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781980.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Algo Bot (2018) [Ru/Multi] (1.0.0) License RELOADED
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781974.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ State of Decay: Year-One (2015) [Ru/Multi] (1.0 от 12.02.2018/dlc) Repack R.G.
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781967.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Colin McRae: DiRT [Ru] (L) 2007
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781852.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Haunted Hotel 19: Lost Time (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781834.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Of Orcs and Men (2012) [Ru/Multi] (1.0.0.2) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781593.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Styx: Shards of Darkness (2017) [Ru/Multi] (1.05/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781585.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Ben and Ed - Blood Party (2018) [En] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781579.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Ben and Ed - Blood Party (2018) [En] (1.0) License HI2U
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDC2583C11F8C114BAB2FA0D22083D886DB027E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206755   (781553) от 15.02.2018
+
+Burnin Rubber 5 HD (2018) [En] (1.0.1) License SKIDROW
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Burnin 'Rubber 5 HD - полностью обновленное издание гонок на выживание. Разблокируйте новые автомобили, купите новое оружие, взрывные устройства и другие обновления. Более тридцати новых противников бросают вам вызов.Тип издания: LicenseРазработчик: XformЖанр: Action, Racing (Cars), Arcade, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B8FA05E90EC63276D8D859E69601F088199DB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Sketch 78 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831894.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Infuse PRO 7 v7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831893.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NeoOffice 2017.29 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831891.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831874.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Shlohmo - Dark Red (2015) [FLAC|Lossless]<IDM, Bass, Downtempo, Experimental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831866.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Heidevolk - Velua (2015) Limited Edition [MP3|320 кб/с]<Folk/Viking Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831852.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Audirvana Plus 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831848.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Maxthon Browser MX5 5.0.3.900 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831844.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Display Driver Uninstaller 17.0.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831843.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Coolmuster Data Recovery 2.1.10 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831837.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ KLS Backup 2015 Professional 8.4.4.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831832.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ MP3 Cutter Joiner 6.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831828.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ BurnAware Professional 14.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831822.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ JRiver Media Center 28.0.73 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831819.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Winclone Pro 10 v10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831814.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831810.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Vivaldi 1.7.735.48 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831766.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Cyberfox 52.0.1 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831756.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Chillhop Essentials - Spring (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831755.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ SIV (System Information Viewer) 5.17 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831754.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Pixellu SmartAlbums 2 v2.0.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831753.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ DevID Agent 4.38 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831751.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Movavi Video Editor Plus 2022 v22.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831748.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ PC Cleaner Pro 8.1.0.15 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831742.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Microsoft .NET 5.0.11 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831738.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ ByClick Downloader Premium 2.3.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831737.jpg" />
 </div>
 
 

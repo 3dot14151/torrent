@@ -1,56 +1,3 @@
-###  Публикация: 1819353   (1677) от 21.09.2025
-
-Sense V2 Flip Clock & Weather v8.45.2 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Полнофункциональное погодное приложение с набором виджетов погоды и перекидных часов.
-Приложение предоставляет прогнозы погоды для вашего текущего местоположения или любого другого места по всему миру. Вы можете добавить до 10 мест и проверить погоду и время для любого места в мире.Тип издания: PremiumРелиз состоялся: 21.09.2025Разработчик: MACHAPP Software LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05826C83EE9B7A5054AD2C5A324E7016D7C462C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819297   (1671) от 21.09.2025
-
-IPTV Pro v9.1.8 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Смотрите IP-телевидение вашего интернет-провайдера или ТВ из любого другого интернет-источника на телефоне или планшете! Саму трансляцию осуществляет провайдер, поэтому если вдруг что-то перестало показывать, то скорее всего дело именно в провайдере, обращайтесь к нему. Чтобы убедиться в этом наверняка, просто откройте плейлист на компьютере при помощи VLC или IP-TV (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 21.09.2025Разработчик: Alexander SofronovПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0FACB6726E5925C7135404DE877B6DEBCB9D55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819351   (1670) от 21.09.2025
 
 Sense Flip Clock & Weather v8.44.2 Mod by youarefinished [Ru/Multi]
@@ -59,7 +6,7 @@ Sense Flip Clock & Weather v8.44.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1670.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ ES File Explorer File Manager v4.4.3.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1669.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1660.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ Device Info / Информация об устройстве v3.4.0.2 Mod by Bal
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1654.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ Jigsawscapes® - Пазлы v4.2.1 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1638.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ Flud v1.11.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1628.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ Remini / Улучшение Фото v3.7.1126.202516929 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1481.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ SnapEdit - AI photo editor v7.4.6 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1472.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ HiPER Calc Pro v11.2.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1446.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ Relax Rain: sleeping sounds v9.0.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1321.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ Xiaomi Home (Ранее. MiHome) v10.9.708 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1318.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ Purvpn 9.5 [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1187.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ My TTS: Text-to-Speech v1.5.4 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1173.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ Material Pods: батарея AirPods v6.68 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1158.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ RUTUBE - видео, шоу, трансляции 30.10.3 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1037.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ Rosetta Stone: Изучение языков 8.34.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1004.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ ByeByeDPI v1.6.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_907.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ FullReader - читалка книг v4.3.6 b365 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_638.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ Purvpn 9.6 [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_604.jpg" />
 </div>
 
 
@@ -560,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_595.jpg" />
 </div>
 
 
@@ -586,7 +533,7 @@ MobiOffice: Word, Sheets, PDF Premium v15.9.57961 Extra Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_583.jpg" />
 </div>
 
 
@@ -612,7 +559,7 @@ AIDA64 v2.12 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_577.jpg" />
 </div>
 
 
@@ -638,7 +585,7 @@ WPS Office + PDF v18.21 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_570.jpg" />
 </div>
 
 
@@ -664,7 +611,7 @@ Flud v1.11.8.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_559.jpg" />
 </div>
 
 
@@ -675,6 +622,58 @@ Flud - простой и элегантный BitTorrent клиент для о�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8C1B6B7A1E80376887C16F0344A36B9089FDD8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820332   (554) от 27.09.2025
+
+Electrical Calculations Pro / Электрические расчеты v11.0.1 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электрические расчеты являются лучшим приложением в секторе электроэнергии, он имеет много вычислений, которые могут помочь вам в вашей работе. Он не может пропустить в вашем смартфоне!Тип издания: ProРелиз состоялся: 27.09.2025Разработчик: Ettore GallinaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5E76F85FF2AF27DABC8A0D6F3BF720B5F3662C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820357   (549) от 27.09.2025
+
+PictureThis - Plant Identification v5.13.0 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 26.09.2025Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A2C5B1F80965BE3EA3E0FB0A64E5F0551B400B
 ```
 
 https://mybot314.ru/tekegram_catalog/

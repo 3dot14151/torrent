@@ -1,57 +1,3 @@
-###  Публикация: 1870344   (1069208) от 
-
-Журнал | BOUDOIR Inspiration (BOUDOIR) (апрель 2026) [PDF] [EN]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
-
-Номер: BOUDOIR IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBF54E36080747FEADA30A9619C0C4B3A1000600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870345   (1069207) от 
-
-optimizerDuck 2.12.0 Portable [Multi]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-optimizerDuck — это бесплатный инструмент для оптимизации Windows, ориентированный на повышение производительности, улучшение конфиденциальности и удаление лишних системных компонентов. Программа объединяет десятки полезных настроек в одном интерфейсе, позволяя отключать телеметрию, удалять предустановленные приложения, оптимизировать службы, настраивать питание (   Читать дальше...   )Язык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F46615CA64E9EC281EAE30E8B28CFFBAB661DC28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870348   (1069206) от 
 
 Футбол. Чемпионат Испании 2025-2026. El Clasico. 35-й тур. Барселона - Реал (Мадрид) (10.05.2026) WEB-DL [H.264/720p-LQ]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069206.jpg" />
 </div>
 
 
@@ -88,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069205.jpg" />
 </div>
 
 
@@ -114,7 +60,7 @@ reaConverter Pro 8.0.220 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069202.jpg" />
 </div>
 
 
@@ -141,7 +87,7 @@ Wondershare UniConverter 17.3.5.562 RePack by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069201.jpg" />
 </div>
 
 
@@ -167,7 +113,7 @@ Boris FX Sequoia 2026 18.0.2.26013 Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069200.jpg" />
 </div>
 
 
@@ -193,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069199.jpg" />
 </div>
 
 
@@ -219,7 +165,7 @@ Kdenlive 26.04.1 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069198.jpg" />
 </div>
 
 
@@ -245,7 +191,7 @@ KiCad 10.0.2 Portable by 7997 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069197.jpg" />
 </div>
 
 
@@ -271,7 +217,7 @@ Display Driver Uninstaller 18.1.5.3 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069196.jpg" />
 </div>
 
 
@@ -297,7 +243,7 @@ Mafia: Definitive Edition (2020) [Ru/Multi] (1.0.3) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069195.jpg" />
 </div>
 
 
@@ -323,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069194.jpg" />
 </div>
 
 
@@ -349,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069193.jpg" />
 </div>
 
 
@@ -376,7 +322,7 @@ Vdigger GetFLV 32.2605.08 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069192.jpg" />
 </div>
 
 
@@ -402,7 +348,7 @@ FreeCommander XE 2026 Build 948 RePack by AMPED [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069190.jpg" />
 </div>
 
 
@@ -428,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069189.jpg" />
 </div>
 
 
@@ -454,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069188.jpg" />
 </div>
 
 
@@ -480,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069187.jpg" />
 </div>
 
 
@@ -509,7 +455,7 @@ Josh Groban - CINEMATIC (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Classic
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069186.jpg" />
 </div>
 
 
@@ -538,7 +484,7 @@ Mafia II (2): Definitive Edition (2020) [Ru/Multi] (1.0/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069185.jpg" />
 </div>
 
 
@@ -564,7 +510,7 @@ Mafia III (3): Definitive Edition (2020) [Ru/Multi] (1.0.1/dlc) Repack Wanterlud
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069184.jpg" />
 </div>
 
 
@@ -590,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069183.jpg" />
 </div>
 
 
@@ -616,7 +562,7 @@ Restore Your Island (2026) [Ru/Multi] (Build 22753376) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069182.jpg" />
 </div>
 
 
@@ -642,7 +588,7 @@ Don't Play This (2026) [Ru/Multi] (1.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069181.jpg" />
 </div>
 
 
@@ -668,7 +614,7 @@ MotoGP. Этап 05 из 22. Гран-при Франции. Спринт (09.05
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069180.jpg" />
 </div>
 
 
@@ -679,6 +625,58 @@ MotoGP. Этап 05 из 22. Гран-при Франции. Спринт (09.05
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BB574095DF75B4514879CFC245BD92B627DB522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870283   (1069179) от 
+
+WinPE 11-10 Sergei Strelec (x64) 2026.05.11 [Ru]
+
+>>След.
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 11, 10 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88CD6764AB237A6B4F9441555D58332C5BE0696C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870397   (1069178) от 
+
+Ворон / The Raven (2012) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в 1849 году. Это беллетризованная история о последних днях жизни Эдгара Аллана По, в которой писатель помогает полиции в поисках серийного убийцы, чьи преступления напоминают сюжеты его рассказов. Несмотря на то, что сюжет фильма вымышленный, сценаристы взяли за основу некоторые реальные обстоятельства загадочной смерти Эдгара Аллана По...Производство: США, Испания, Венгрия, Сербия / FilmNation Entertainment, Galavis Film, Intrepid PicturesЖанр: криминал, детектив, триллерРежиссер: Джеймс МакТигАктеры: Джон Кьюсак, Люк Эванс, Элис Ив, Брендан Глисон, Кевин МакНэлли, Оливер Джексон-Коэн, Джимми Юилл, Сэм Хэзелдайн, Пэм Феррис, Брендан КойлПеревод: дублированный, профессиональный двухголосый (SDI Media), авторский (Немахов; Сербин)Язык озвучки: русский, английскийСубтитры: русские (Евгений Воронин), английскиеПродолжительность: 01:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:301176D39B6BE7FA95E8431A67391D95BA08011A
 ```
 
 https://mybot314.ru/tekegram_catalog/

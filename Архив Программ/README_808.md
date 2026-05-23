@@ -6,7 +6,7 @@ Rufus 3.0 Build 1304 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638881.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kaspersky Virus Removal Tool 2011 Version 11 (11.0.0.1245) от 05.07.2012 [ру
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_638859.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Opera 85.0.4341.60 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638849.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Ashampoo Burning Studio 23.0.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638847.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ WinToUSB Professional, Technician, Enterprise 6.6 Release 1 RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638837.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ BELOFF [dp] 2022.03.5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638836.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The KMPlayer 4.2.2.24 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638832.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Luminant Music Ultimate 2.0.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638831.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Movavi Video Editor Plus 15.3.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638830.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Advanced Onion Router 0.3.1.4 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638805.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Adobe Flash Player 26.0.0.131 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638798.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ WinRAR 5.50 Beta 4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638796.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638794.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Freemake Video Converter 4.1.13.126 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638761.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Kaspersky Internet Security 2020 20.0.14.1085 RC [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638715.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ BELOFF 2019.4 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638711.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ MetaProducts Offline Explorer Enterprise 7.4.4594 SR3  RePack (& Portable) by Tr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638704.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Autodesk Inventor (Pro) 2018.0.2 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638702.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Total Commander 9.0a VIM 23 portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638686.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638685.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ CleanMyPC 1.5.6 Portable by Valx | NNM [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_638637.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Dr.WEB CureIt! 6.0 от 05.07.2012 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_638634.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Redeemer Boot DVD 12.0701 Build 42 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_638629.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Themes Windows7  Prey 2 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_638628.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Adobe Dreamweaver CC 2017 17.5.0.9878 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638601.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Autodesk AutoCAD Civil 3D 2018 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638594.jpg" />
 </div>
 
 

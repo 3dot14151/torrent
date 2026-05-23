@@ -1,84 +1,3 @@
-###  Публикация: 365829   (123580) от 10.01.2024
-
-Зиновий Высоковский | Мой Высоцкий (2006) [MP3, Зиновий Высоковский]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Неутомимый, любознательный и простодушный Пан Зюзя из популярнейшего телевизионного «Кабачка 13 стульев», автор и исполнитель эстрадных монологов, с легкой руки которого чуть ли не в каждой семье появился свой «Люлёк» – это наиболее узнаваемые проявления Народного артиста России Зиновия Высоковского.
-Более внимательные зрители помнят и ценят его обаятельного Мишку-фотокорреспондента (   Читать дальше...   )Жанр: Жизнь замечательных людей, мемуары, поэзияПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1971651AF4F7668C7EE6B7A044F3428C4959127F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 385134   (123579) от 10.01.2024
-
-Михаил Салтыков-Щедрин | Господа Головлёвы (Радиоспектакль) (2005) [MP3, Аркадий Смирнов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива Гостелерадиофонда.
-Спектакль «Господа Головлевы» по роману великого русского сатирика Салтыкова-Щедрина ярко, образно и с большим мастерством преподносит нам дух той эпохи, которую Н.Некрасов определил как: "Бывали хуже времена, но не было подлей". Отчетливо проступает образ нынешней России, хотя произведению уже более 130 лет. Главный (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 02:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C92D12D19C7E528F80DCE353311186529C33B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326164   (123576) от 10.01.2024
-
-Михаил Салтыков-Щедрин | Рассказы (2006) [MP3, Олег Исаев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Русская классика.
-Михаил Евграфович Салтыков-Щедрин (1826—1889), гениальный художник и мыслитель, блестящий публицист и литературный критик, талантливый журналист, был одним из самых ярких деятелей русского освободительного движения.  Его дар – явление редчайшее, трудно представить себе классическую русскую литературу без М.Е. Салтыкова - Щедрина.Жанр: Русская литература, классика, сатира, рассказИздательство: РавновесиеПродолжительность: 05:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12959A6D2DBBE30E8FA79C391F3CEE94D7D313D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691008   (123541) от 10.01.2024
 
 Эрван Лафлериэль | Fallout. Хроники создания легендарной саги (2023) [MP3, Александр Гаврилин]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123541.jpg" />
 </div>
 
 
@@ -114,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123535.jpg" />
 </div>
 
 
@@ -142,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123533.jpg" />
 </div>
 
 
@@ -169,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123507.jpg" />
 </div>
 
 
@@ -195,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123505.jpg" />
 </div>
 
 
@@ -221,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123472.jpg" />
 </div>
 
 
@@ -248,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123462.jpg" />
 </div>
 
 
@@ -274,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123459.jpg" />
 </div>
 
 
@@ -300,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123452.jpg" />
 </div>
 
 
@@ -328,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123437.jpg" />
 </div>
 
 
@@ -355,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123420.jpg" />
 </div>
 
 
@@ -381,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123416.jpg" />
 </div>
 
 
@@ -407,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123397.jpg" />
 </div>
 
 
@@ -433,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123393.jpg" />
 </div>
 
 
@@ -459,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123390.jpg" />
 </div>
 
 
@@ -485,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123338.jpg" />
 </div>
 
 
@@ -511,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123332.jpg" />
 </div>
 
 
@@ -537,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123313.jpg" />
 </div>
 
 
@@ -563,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123297.jpg" />
 </div>
 
 
@@ -589,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123288.jpg" />
 </div>
 
 
@@ -617,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123283.jpg" />
 </div>
 
 
@@ -644,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123272.jpg" />
 </div>
 
 
@@ -670,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123266.jpg" />
 </div>
 
 
@@ -681,6 +600,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88F644E84BF61DB0357D57098CB52A60F269A6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691392   (123253) от 12.01.2024
+
+Себастьян Жапризо | Обречённое начало (2014) [MP3, Оксана Санькова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поклонники Жапризо наверняка удивятся простоте и безыскусности стиля этого романа. Дело в том, что «Обреченное начало» — первое произведение знаменитого автора «Купе смертников», «Ловушки для Золушки» и других книг, принесших Жапризо всемирную популярность. Признанный мастер детективного жанра написал свой дебютный роман в семнадцать лет, и это был роман о любви (   Читать дальше...   )Жанр: Зарубежная литература, детективный романИздательство: Нигде не купишьПродолжительность: 05:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E30D6394601C3693D5CC802997D4FD78290267D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691369   (123251) от 12.01.2024
+
+Кэтрин Ллойд | Мисс Мортон и убийство на званом вечере (2023) [MP3, Юлия Яблонская]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть дочерью покойного графа в Англии на самой заре викторианской эпохи, да еще и без гроша в кармане – непросто. Но мисс Кэролайн Мортон не из тех, кто сдается. Отказываясь называться леди, она устраивается компаньонкой к богатой вдове.
+Тем временем ее тетя, леди Элинор Гринвуд, приглашает племянницу на званый ужин в честь своей дочери. Но в поместье Гринвудов не (   Читать дальше...   )Жанр: ДетективИздательство: Дом Историй, ООО "Эвербук"Продолжительность: 09:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F065925E70786003E7530FD9EF2CFEDC45918B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691386   (123245) от 12.01.2024
+
+Себастьян Жапризо | Дама в очках и с ружьём в автомобиле (2017) [MP3, Владимир Сушков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123245.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом романе Жапризо в свойственной ему манере переосмысливает классический «роман дороги», в котором герой отправляется в путешествие, сулящее ему множество встреч с новыми людьми.
+Дани Лонго, героиню Жапризо, на каждом шагу подстерегают опасности двоякого свойства – как внешнего, так и внутреннего, таящиеся в ней самой. Оказавшись жертвой непонятной ей интриги, (   Читать дальше...   )Жанр: Зарубежная литература, детективный романИздательство: Нигде не купишьПродолжительность: 10:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCE5B179139F65B579E54F8411F44CED9D8E35A
 ```
 
 https://mybot314.ru/tekegram_catalog/

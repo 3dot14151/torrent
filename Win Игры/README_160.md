@@ -1,29 +1,3 @@
-###  Публикация: 1185301   (720897) от 10.04.2018
-
-Megaton Rainfall (2017) [Ru/Multi] (1.08) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мегатонный Ливень - игра в супергероя от первого лица. Вы один на один с глобальным инопланетным вторжением. Гоняйтесь на сверхзвуковой скорости за орудиями массового поражения вокруг Земли - огромной, как настоящая. Затем уничтожьте устройства врагов мегамощными взрывами. Старайтесь не убивать людей! Вы так сильны, что если промахнетесь - снесете полгорода!Тип издания: LicenseРазработчик: Pentadimensional GamesЖанр: Экшн, От первого лица, SandboxЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB7156B8DF7ACB8F3C26681A709D18446CB7A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285459   (720518) от 26.02.2019
 
 Pacify (2019) [Multi] (1.0/upd1) License PLAZA
@@ -32,7 +6,7 @@ Pacify (2019) [Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720518.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Mutant Year Zero: Road to Eden (2018) [Ru/Multi] (1.06) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720401.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Devotion (2019) [Multi] (1.0.5) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720389.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Sudden Strike 4 (2017) [Ru/En] (1.15/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720383.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Pinstripe (2017) [Ru/Multi] (1.0.3) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720211.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Lust from Beyond (2022) [Ru/Multi] (01.02.2022) License GOG [M Edition] [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720145.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Disney's Chicken Little (2005) [Multi] (1.0.0.1) License PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720073.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Immortal Redneck (2017) [Ru/Multi] (1.1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719984.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Starfighter Origins (2017) [En] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719982.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Haunted Hotel 8: Eternity (2015) [En] Unofficial [Collector's Edition / Колл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719813.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Animism: The Book of the Emissaries (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719799.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Megamagic: Wizards of the Neon Age (2016) [En/Multi] (1.05) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719457.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Tropico / Тропико Трилогия [Ru] (Lossless RePack) 2002-2011 | R.G
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_719420.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ TurnOn (2016) [Ru/Multi] (1.0.0.7) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719310.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Stranger of Sword City (2016) [En/Ja] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719306.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Dark Tales 13: Edgar Allan Poe's The Pit and the Pendulum / Темные ист�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719229.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Myths of the World 6: The Heart of Desolation / Мифы народов мира
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719190.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Brink of Extinction (2017) [Ru/Multi] (1.0) License HI2U
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719108.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Mystery Case Files 11: Dire Grove, Sacred Grove / За семью печатям
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719093.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ The Last Hope: Atomic Bomb - Crypto War (2018) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718985.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ SWORD ART ONLINE: Fatal Bullet (2018) [Ru/Multi] (1.1.2/dlc) License CPY [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718984.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Candleman: The Complete Journey (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718981.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Masters of Anima (2018) [Ru/En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718980.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Returner 77 (2018) [Ru/Multi] (4102018) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718974.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Maze Of Realities: Flower Of Discord (2022) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718548.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Maze Of Realities: Flower Of Discord (2022) [En] (1.0) Unofficial [Collector's E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACBC73342C2AD7EA564F86BB799C16E59A5C2F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400513   (718538) от 05.08.2020
+
+Poly Bridge 2 (2020) [Ru/Multi] (1.20) Repack xatab
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый симулятор мостостроения вернулся и стал лучше прежнего! Развивай инженерную смекалку — тебе предстоит провести много часов за разгадыванием увлекательных головоломок! Адриан Тэйленс снова порадует поклонников новым полновесным саундтреком! Расслабься под спокойную музыку, которую полюбили даже критики: тебя ждут 13 совершенно новых треков плюс 18 обновленных (   Читать дальше...   )Тип издания: RepackРазработчик: Dry CactusЖанр: 3D, SimulationЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7EC5A69863597CE4A2BD8BE2B2640841BAE601
 ```
 
 https://mybot314.ru/tekegram_catalog/

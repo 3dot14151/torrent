@@ -6,7 +6,7 @@ Insofta Cover Commander 5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801212.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Insofta Cover Commander 5.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801206.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BurnAware Professional 10.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801198.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PrivaZer 3.0.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801187.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Rufus 2.13 (Build 1077) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801177.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ UltraUXThemePatcher 3.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801170.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ HyperSnap 8.16.00 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801092.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Nox App Player 3.8.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801078.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Acoustica Premium Edition 7.3.19 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801054.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ reaConverter Pro 7.680 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801044.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ GPU-Z 2.6.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801033.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ FileZilla 3.30.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801031.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Cent Browser 3.1.5.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801020.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ WhatsApp 0.2.3699 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801007.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ PrivaZer 4.0.32 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800981.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Athentech Perfectly Clear WorkBench 4.0.0.2184 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800975.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ LibreOffice 5.4.4 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800964.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ TurboMosaic 3.0.4 Professional Edition [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800963.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Torch Browser 60.0.0.1508 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800951.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Wise Care 365 Pro 4.7.9.462 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800950.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ GPU Caps Viewer 1.38.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800948.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Volume2 1.1.6.409 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800946.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ dBpowerAMP Music Converter 16.4 Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800945.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ SoftMaker Office Professional 2016 rev 766.0331 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800943.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Passware Kit Forensic 2017.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800942.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Do Your Data Recovery Pro 7.5 [En] (промо-акция COMSS)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800933.jpg" />
 </div>
 
 

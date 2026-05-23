@@ -6,7 +6,7 @@ Adobe Zii 2019 - Universal Patcher v.4.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309690.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Commander One PRO 1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309644.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ OmmWriter 1.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309569.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ TechSmith Snagit 2020 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309566.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ TechSmith Camtasia Studio 2019.0.5 (109441 )[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309565.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ ON1 Photo RAW 2020 v14.0.0.7975 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309563.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sketch 59.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309548.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Readiris Corporate 17.1.2 (build 79b) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309545.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ OmniGraffle Pro 7 v7.11.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309530.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Permute 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309505.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Little Big Workshop (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309346.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ CleanMyMac 3.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309266.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ UninstallPKG 1.0.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309265.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Dropshare 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309253.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Photo Mechanic 6 v6.0, build 3558 (afa5073) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309119.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Mail Designer Pro 3 v3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309077.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Disk Diet - Clean your drive 5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309064.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Monit 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308880.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ BetterTouchTool 3 v3.206 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308775.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Wondershare Video Converter Ultimate 5.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308627.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ File Cabinet Pro 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307873.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Transmit 4.4.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307713.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Logoist 3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307684.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ TurboMosaic Pro 3.0.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307660.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Shredo 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307655.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Adobe Zii 2019 - Universal Patcher v.4.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307643.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku | OreGairu 2 | Как и 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921941.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Macross Plus | Макросс Плюс [1994, OVA, 4 из 4] BDRip 1080p 10-bit 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920638.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Arata Kangatari | Arata: The Legend | Легенда Араты [2013, TV, 12 и
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920578.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Shoukoku no Altair | Altair: A Record of Battles | Империя Альтаир
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920570.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Macross Delta | Macross Δ | Макросс Дельта [2016, TV, 26 + 9] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920525.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Macross Plus: Movie Edition | Macross Plus The Movie | Макросс Плюс: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920523.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Lodoss Tou Senki: Eiyuu Kishi Den / Record of Lodoss War: Legend of the Heroic K
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919951.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Urawa no Usagi-chan / Усаги-чан из Уравы [2015, TV, 13 из 13] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918773.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Rikei ga Koi ni Ochita no de Shoumei Shite Mita. | Science Fell in Love, So I Tr
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918226.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Yuu Yuu Hakusho / Yu Yu Hakusho: Ghost Files / Отчет о буйстве ду
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917855.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Paradise Kiss | Райский поцелуй [2005, TV, 12] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917307.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Natsume Yuujinchou Go / Тетрадь дружбы Нацумэ [ТВ-5] [2016,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916994.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Yakitate!! Japan / Baked Fresh!! Ja-Pan / Японская свежая выпе
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916666.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Robot Girls Z Plus / Девочки-роботы Зет [2015, ONA, 6] WEB-DLRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916618.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Shirobako [2014, TV, 24 + 2sp] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916614.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Nanako Kaitai Shinsho / Amazing Nurse Nanako / Нанако [1999, OVA, 6 ep.] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916249.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Kizuoibitou / Wounded Man / Человек со шрамом [1986, OVA, 5 ep.] 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916171.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Neppuu Kairiku Bushi Road [2013, TV-спешл] HDTV 720p Hi10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915864.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Mugen no Ryvius | Infinite Ryvius | Бесконечное путешестви�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915686.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915504.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Girlfriend (Kari) | Girlfriend (Beta) | Девушка (Бета) [2015, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915161.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Soukyuu no Fafner: Dead Aggressor - Exodus | Небесный Фафнир: Ис
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914684.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Wixoss Diva(A)Live | Wixoss: Дива в прямом эфире [2021, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913907.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita | Я 300 ле
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913741.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Dr. Stone: Stone Wars | Доктор Стоун [ТВ-2] [2021, TV, 11 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913727.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen | KimiSen | П
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913726.jpg" />
 </div>
 
 

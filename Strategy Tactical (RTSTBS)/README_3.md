@@ -6,7 +6,7 @@ Ceres (2015) [Ru/Multi] (1.2.0) Repack ARMENIAC
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853377.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Expeditions: Conquistador (2013) [Ru/Multi] (1.6.5) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853230.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Atlantic Fleet (2016) [En] (1.0) Repack ARMENIAC
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851708.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Panzer Corps: Soviet Corps (2016) [Ru/Multi] (1.25/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851616.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23391/dlc) SteamRip =nemos= [Master Co
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847532.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Fleets of Sol (2016) [En] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846207.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Warhammer 40,000: Dawn of War II (2009-2010) [Ru/Multi] (2.6.10236) SteamRip Let
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838481.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Gears Tactics (2020) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832530.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Rabiez: Epidemic (2016) [Ru/Multi] (1.01) Repack ALiAS
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830192.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Riftbreaker (2021) [Ru/Multi] (7526729) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827762.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Codex of Victory (2017) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827522.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Anomaly: Korea (2013) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822072.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ War Mongrels (2021) [Ru/Multi] (40797) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817198.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Blitzkrieg 2 Anthology / Антология Блицкриг 2 (2008) [Ru] (1.6.
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814678.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7/dlc) SteamRip R.G. Origins [Deluxe Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814318.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Survivor Squad: Gauntlets (2015) [En] (1.03) Repack ARMENIAC
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812958.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Royal Heroes (2016) [Ru/En] (1.700w) Repack ARMENIAC
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811060.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Star Wolves 3: Civil War / Звездные Волки 2: Гражданская
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810928.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Nomad Fleet (2016) [En/Es] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809092.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Anomaly: Warzone Earth / Аномалия: Поле битвы Земля (2011)
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808652.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Anomaly Defenders (2014) [Ru/Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808651.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ The Banner Saga (2014) [Ru/Multi] (2.18.08/dlc) License PROPHET [Gold Edition / 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805237.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Super Robot Wars 30 (2021) [Multi] (7571902) License Fairlight
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802216.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801944.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801915.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ XCOM: Chimera Squad (2020) [Ru/Multi] (1.0.0.46049) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800687.jpg" />
 </div>
 
 

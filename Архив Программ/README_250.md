@@ -6,7 +6,7 @@ LosslessCut 3.13.0 Portable (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939248.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Simple Sticky Notes 4.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939191.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discord 0.0.306 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939185.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cyberfox 44.0.1 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939000.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mozilla Firefox 44.0.1 Final Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938932.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ TagScanner 6.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938929.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Slimjet 7.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938858.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Mozilla Firefox 44.0.1 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938847.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ DesktopOK 4.52 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938768.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ SpeedyFox 2.0.18 Build 111Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938760.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ XnConvert 1.72 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938745.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Adobe AIR 20.0.0.260 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938721.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Mozilla Firefox 44.0.1 Final Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938712.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Wise Registry Cleaner 9.36.607 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938641.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Cyberfox 44.0.1 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938606.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ WebCamMax 7.2.2.2 [multi/rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938545.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ USDownloader 1.3.5.9 Portable (12.01.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_938521.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ xrecode II Build 1.0.0.229 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938459.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ CyberLink PowerDVD 10.0 Build 2429.51 Mark II Ultra (RePack by Lisabon)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938397.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Aiseesoft Video Converter Ultimate 9.0.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938392.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ CoolUtils Total PDF Converter 5.1.92 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938377.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Benvista PhotoZoom Pro 5.0.8 Portable by PortableAppZ [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938362.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Ashampoo Burning Studio 16.0.6.23 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938338.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Lyrics Finder 1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938332.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Any Video Converter Ultimate 6.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938304.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Ant Download Manager PRO 1.3.0 Build 36297 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938301.jpg" />
 </div>
 
 

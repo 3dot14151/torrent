@@ -1,55 +1,3 @@
-###  Публикация: 1722905   (56687) от 13.05.2024
-
-D Notes - заметки и списки 2.6.1 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-D Notes - крайне симпатичный блокнот, что, как и многие предлагает пользователям существенно упростить себе жизнь в механике записи различных коротких текстов на память. Мысли, идеи, списки покупок и всё прочее доступно в интуитивного управления оболочке стильного дизайна. При этом есть и обширнейший набор параметров настроек, как работы, так и визуального отображения. (   Читать дальше...   )Тип издания: ProРелиз состоялся: 05.05.2024Разработчик: Damian van den BergПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C82FC2882C156FC503F911718BEEC089275CA96B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722884   (56680) от 13.05.2024
-
-Via Браузер / Via Browser 5.5.1 Mod by AnBo39 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Via - весьма популярный и востребованный Браузер, что понравится всем кто любит использовать мобильное устройство для путешествий по пространству интернета. Для них приготовили комфортную оболочку, простое управление, различные настройки улучшающие взаимодействие, а так автоматическую блокировку рекламы, отсутствие сбора конфиденциальной информации, а так же спектр (   Читать дальше...   )Тип издания: ModРелиз состоялся: 07.04.2024Разработчик: Tu YafengПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Украинский, Английский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0755156FB390D5D6604B02F62CC8550695DA77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722885   (56669) от 13.05.2024
 
 Via Браузер / Via Browser 5.5.1 Mod by bot3.14 [Ru/En]
@@ -58,7 +6,7 @@ Via Браузер / Via Browser 5.5.1 Mod by bot3.14 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56669.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Via Браузер / Via Browser 5.5.1 Mod by person10301 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56661.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ ibis Paint X 12.1.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56657.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Adobe Acrobat Reader для PDF 24.4.1.33150 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56623.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56596.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ PhotoTune - Улучшитель фото v4.6.0 Mod by Mixroot, 0x7d [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56594.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.17 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56574.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ Colorize Images v4.0.72 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56573.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56490.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ Adobe Photoshop Express 13.5.31 (ARM64) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56468.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56398.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ PicWish: AI Photo Editor v1.6.11 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56395.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ WiFi Analyzer v5.4 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56388.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56378.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ Memrise: говори на новом языке 2024.04.29.0 Mod by AppModz [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56377.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ CamScanner 6.64.1.2405070000 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56363.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ Onvier - IP Camera Monitor (Ранее. Onvifer) 19.11 Mod by Alex.Strannik [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56361.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ CalenGoo - Calendar and Tasks 1.0.183 (build 1647) Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56349.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ AccuWeather - прогноз погоды 20.2-3-google Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56339.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ Abstruct - Wallpapers in 4K 2.9 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56337.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ FX Player Pro 3.7.8 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56334.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56292.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ Denoise it - ИИ фоторедактор v1.1.8 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56269.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ MX Player Pro v1.78.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56172.jpg" />
 </div>
 
 
@@ -672,6 +620,61 @@ MX Player Pro v1.78.6 Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F01304E08A8B2CC383451D85F63423687147B9B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724034   (56128) от 18.05.2024
+
+Spatial Touch™ 1.1.1 Mod by IndAlok [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управляйте своим планшетом или смартфоном, не касаясь экрана! Spatial Touch™ — это пульт дистанционного управления с помощью жестов на базе искусственного интеллекта, который позволяет управлять мультимедийными приложениями на расстоянии, не касаясь экрана. Вы можете управлять YouTube, Shorts, Netflix, Disney Plus, Instagram, Reels, Tiktok и другими добавляемыми (   Читать дальше...   )Тип издания: ModПоддерживаемая ОС: Android 8.0 и вышеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4340EFCF547EBF2A8EFBC342155431CF4A789F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724275   (56086) от 19.05.2024
+
+Яндекс Музыка, Книги, Подкасты PLUS 2024.5.2 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яндекс.Музыку можно слушать онлайн и без интернета. Десятки миллионов треков в одном приложении.
+- Подборки на все случаи жизни
+- Популярные и новые альбомы и синглы
+- Персональные рекомендации ежедневно(   Читать дальше...   )Тип издания: ModРелиз состоялся: 15.05.2024Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4360CB1F77D80EF1E8467ED67F13B96A62DAFF73
 ```
 
 https://mybot314.ru/tekegram_catalog/

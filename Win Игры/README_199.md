@@ -1,29 +1,3 @@
-###  Публикация: 1297129   (606156) от 20.04.2019
-
-Supraland (2019) [Ru/Multi] (1.2b) Repack R.G. Catalyst
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Supraland — игра-головоломка от первого лица в жанре Метроидвания. Основными источниками вдохновения являются Zelda, Metroid и Portal. Supraland предполагает, что вы умный и позволяет играть самостоятельно. История минимальна, она ставит перед вами всеобъемлющую цель, а затем выпускает вас в огромный мир. Время прохождения: ~ 15-30ч.Тип издания: RepackРазработчик: Supra GamesЖанр: Adventure, Puzzle, RPG, 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBF46AD814A12C3A68D507A412F1A5C5CB7AE3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038518   (606062) от 28.07.2016
 
 I am Weapon: Revival (2016) [Ru/En] (1.0) License HI2U
@@ -32,7 +6,7 @@ I am Weapon: Revival (2016) [Ru/En] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606062.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ ECHO (2017) [Ru/En] (24.03.2019) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606007.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Ghost of a Tale (2018) [Ru/Multi] (8.33) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606001.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Steam Squad (2016) [Ru/En] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605925.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Steam Squad (2016) [Ru/En] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605917.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ I am Weapon: Revival (2016) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605914.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Black The Fall (2017) [En] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605495.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Xanadu Next (2016) [En] (24.11.2016) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605400.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Hard Reset: Extended Edition [Ru/En] (Repack/1.51) 2011 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605140.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Hard Reset: Extended Edition [Ru/En] (Repack/1.51) 2011 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605137.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Vermillion Watch: Moorgate Accord (2016) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604838.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Mystery Trackers 11: Train To Hellswich (2016) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604771.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Anarcute (2016) [En] (1.0) Repack Elektra
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604764.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Spear Of Destiny. The Final Journey / Копье Судьбы. Последне�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604680.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Golden Rush (2015) [Ru] (20150625) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604620.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Wind of Luck (2014) [Ru/En] (patch for 0.8.2) License [Arena]
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604608.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ Shadowrun: Dragonfall (2015) [Ru/Multi] (2.09) Repack xGhost [Director's Cut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604594.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ SEUM: Speedrunners from Hell (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604573.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ Vermillion Watch: Moorgate Accord / Алый Дозор: Мургейтский 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604563.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ Crying is not Enough: Remastered (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604535.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604461.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ Thea: The Awakening (2015) [Ru/Multi] (1.20.1921/dlc) Repack Dok2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604389.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ SEUM: Speedrunners from Hell (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604387.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ Villagers (2016) [Ru/Multi] (1.100) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604379.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ Labyrinths of the World 6: The Devil's Tower / Лабиринты Мира 6: Б
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604269.jpg" />
 </div>
 
 
@@ -674,6 +648,32 @@ Labyrinths of the World 6: The Devil's Tower / Лабиринты Мира 6: Б
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE9FFF5697C370D6402268E9B64BA17DA8166722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148261   (604179) от 05.07.2017
+
+Sudeki (2005) [Multi] (1.0) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sudeki – это мир, разделенный на свет, тень и тьму. Расколотая в результате обмана и предательства земля взывает о мире, который могут принести лишь четыре объединившихся героя. За надежными стенами замка Иллюмина раскинулась на многие мили холмистая сельская местность, но войска Аклории превратили некогда безмятежный пейзаж в выжженное поле боя. Даже просто пересекать (   Читать дальше...   )Тип издания: LicenseРазработчик: Climax GroupЖанр: RPG (Japanese-style), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D5CAC3462D338D4B1E764A61D7CD61D377D067
 ```
 
 https://mybot314.ru/tekegram_catalog/

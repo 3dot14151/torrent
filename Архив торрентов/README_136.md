@@ -6,7 +6,7 @@ Things 3 v3.13.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023853.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023850.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Glary Utilities Pro 5.163.0.189 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023818.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SwitchResX 4.11.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023791.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ AOMEI Backupper Technician Plus 6.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023782.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Wondershare Filmora Х v10.2.0.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023781.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ QuitNow! PRO v5.145.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023778.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ AAF DCH Optimus Sound 6.0.9129.1 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023775.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ CryptoTab Browser Pro v4.1.46 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023774.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ LEDBlinker 8.1.3-pro Mod by Dragon [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023766.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ PotPlayer 1.7.21469 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023763.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tor Browser Bundle 10.0.15 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023742.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Windows 10 Manager 3.4.5.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023741.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ OfficeSuite + PDF & HD + Modificstions & Addons 11.2.34540 Mod by Balatan, derri
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023736.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023719.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Affinity Photo 1.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023703.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Novakill - Iconoclast (2021) [MP3|320 Kbps] <Dark Electro, EBM, Industrial>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023691.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Mechanical Moth - Mirrors (2021) 2 CD [MP3|320 Kbps] <EBM, Gothic, Darkwave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023688.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Text Editor Pro 15.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023684.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ FileZilla 3.53.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023681.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ File & Image Uploader 8.0.8 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023677.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Process Lasso Pro 10.0.1.16 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023676.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Stellarium 0.21.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023671.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ App Cleaner & Uninstaller Pro 7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023664.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ CleanMyMac X 4.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023662.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ GIMP 2.10.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023661.jpg" />
 </div>
 
 

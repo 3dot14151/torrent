@@ -1,29 +1,3 @@
-###  Публикация: 1180067   (344118) от 02.11.2017
-
-Expeditions: Viking (2017) [Ru/Multi] (1.0.7.1/dlc) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Идет 790 год нашей эры. Небольшой отряд воинов-северян высаживается на берегах Англии. В истории не сохранились их имена, но подвиги их вошли в легенды... Вы только что стали вождем небольшого клана викингов, и под вашим началом есть собственная деревня. Но для того, чтобы выбить свое имя на рунных камнях истории, вам понадобится великая сила и великое богатство. (   Читать дальше...   )Тип издания: RepackРазработчик: Logic ArtistsЖанр: RPG, Strategy (Turn-Based)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C474D8CF4471494B74259155354A9364917FAC32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179975   (344012) от 02.11.2017
 
 Perception Remastered (2017) [Ru/Multi] (1.0) License RELOADED
@@ -32,7 +6,7 @@ Perception Remastered (2017) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344012.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Attentat 1942 (2017) [En/Cz] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344005.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Wolfenstein II: The New Colossus / Wolfenstein 2: The New Colossus (2017) [Ru/Mu
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343999.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Trailblazers (2018) [Multi] (5.6.5.11926743) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343936.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Edge of Reality 7: Call of the Hills / Край реальности 7: Зов �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343846.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Book of Unwritten Tales (2012) [Multi] (2.0.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343837.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.7998) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343059.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Edge of Reality 4: Hunter's Legacy / Край Реальности 4: Насле
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342929.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Gears 5 (2019) [Ru/Multi] (1.0.1/upd1) License PLAZA [Language Pack]
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342867.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ State of Mind (2018) [Ru/Multi] (1.2.24280) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342479.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Guns, Gore and Cannoli Dilogy (2015-2018) [Ru/Multi] (1.2.15/1.0.8) Repack R.G. 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342474.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ TheNightfall (2018) [Ru/Multi] (1.5) Repack Other s [Halloween Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342472.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ No Place for Bravery (2022) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342441.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ The Dark Eye. Chains Of Satinav [Ru/En] (Repack/1.1) 2012 | Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342025.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ Among the Sleep (2014) [Ru/Multi] (3.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341957.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Steamburg (2017) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341838.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Steamburg (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341711.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Infinifactory (2015) [En] (5.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341399.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Turnip Boy Commits Tax Evasion (2021) [Ru/Multi] (1.1.3f1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340649.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Mystery Trackers 15: Darkwater Bay / Охотники за тайнами 15: Б
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340505.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Shadows: Awakening (2018) [Ru/Multi] (1.2/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340197.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ Antigraviator (2018) [Ru/Multi] (1.292/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340189.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Dawn of Hope 2: Daughter of Thunder / Рассвет надежды 2: Дочь 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339739.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ Renoir (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339688.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ The Admin (2016) [En] (1.02) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339686.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ The Admin — футуристический экшен с видом от тр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:654A79B94160D3085702834DCEA4413E1E847276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581203   (339500) от 26.11.2012
+
+The Lost Chronicles of Zerzura [En] (L) 2012 | SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339500.jpg" />
+</div>
+
+
+###  Подробнее
+
+В роли молодого изобретателя Феодора геймеры решают разнообразные загадки и головоломки с помощью творческого мышления, при этом они путешествуют по разным странам и набираются опыта, изучая разные культуры. Все начинается с того, что Феодор и его брат Рамон строят самолет в своем рабочем цехе, в Барселоне. Но незадолго до завершения работ Рамона похищает инквизиция…Тип издания: ЛицензияЖанр: AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD842E1C7DCCF1F2DB6F84655402CC0604A4273
 ```
 
 https://mybot314.ru/tekegram_catalog/

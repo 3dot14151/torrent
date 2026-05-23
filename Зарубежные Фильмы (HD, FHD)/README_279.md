@@ -1,55 +1,3 @@
-###  Публикация: 1119952   (804909) от 29.03.2017
-
-Никому не известный / Un illustre inconnu (2014) HDTV [H.264/1080i-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Простой французский риэлтор Себастьян Николя живет весьма скучно. У него нет ни семьи, ни детей, ни даже подруги для временного романа. Все, что есть у Себастьяна — работа, мать и сестра, которая успела выйти замуж, родить ребенка и значительно преуспеть, в отличие от брата. Долгое время Себастьян жил и делал то, что от него ждали, но за долгие годы он очень устал. (   Читать дальше...   )Производство: Франция, Бельгия / Chapter 2, Path, Orange StudioЖанр: Триллер, ДрамаРежиссер: Матьё ДелапортАктеры: Матьё Кассовиц, Мари-Жозе Кроз, Эрик Каравака, Шиван Финнеран, Филипп Дюкло, Оливье Рабурден, Женевьев Мниш, Бернар МюраПеревод: Многоголосый закадровый, профессиональный (Первый канал)Субтитры: РусскиеПродолжительность: 01:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312A5F423EFCA2399AC6D121846876C38BEFEAD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884708   (804835) от 04.04.2015
-
-Предатель / Traitor (2008) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Агент ФБР Рой Клэйтон ведет расследование опасного международного заговора и обнаруживает, что все нити ведут к офицеру США отдела Специальных Операций Самиру Хорну. Мистическая фигура со связями в террористических организациях, Хорн умеет появляться как раз во время окончания основной операции. Разгадки ведут к побегу из тюрьмы в Йемене, взрыву бомбы в Ницце и налете в Лондоне - все это путает Роя Клэйтона, задающегося вопросом - кто же Хорн...Производство: США | Crescendo ProductionsЖанр: Триллер, ДрамаРежиссер: Джеффри НачманоффАктеры: Дон Чидл, Гай Пирс, Саид Тагмауи, Нил МакДонаф, Али Кхан, Арчи Пенджаби, Раад Рави, Хассам Ганси, Можан Марно, Адель АхтарПеревод: Двуголосый закадровый, лицензияЯзык субтитров: Русский, английскийПродолжительность: 01:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7862CEA6E4AB7C2C70B37AF1A4D1F3506123B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119955   (804708) от 29.03.2017
 
 Пандорум / Pandorum (2009) BDRip [H.264/720p-LQ] [Open Matte]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804708.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804663.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804661.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804563.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804480.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804249.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804132.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804130.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804119.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_804072.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804066.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804065.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804003.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804001.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_803988.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803986.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803982.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_803979.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803974.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803971.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803933.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803902.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803859.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803850.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39C881AC0D01FAEB52CDD700207F317355C3F0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 778548   (803816) от 19.04.2014
+
+Анжелика, маркиза ангелов / Angelique, marquise des anges (2013) BDRip [1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция XVII века. Юную красавицу Анжелику выдают замуж за графа де Пейрака, обладающего огромным состоянием и слывущего «колдуном». Поначалу Анжелика ненавидит мужа, но постепенно начинает понимать, что за суровой внешностью скрывается обаятельным, добрый, чуткий и справедливый мужчина. Между супругами вспыхивает настоящая любовь, но идиллия оказывается недолгой. (   Читать дальше...   )Производство: Франция / A.J.O.Z. Films, EuropaCorp, France 3 CinmaЖанр: Мелодрама, ПриключенияРежиссер: Ариэль ЗейтунАктеры: Жерар Ланвен, Мигель Херц-Кестранек, Давид Кросс, Нора Арнезедер, Мэтью Бужена, Юлиан Вайгенд, Райнер Фриб, Флоренс Косте, Томер Сисле, Симон АбкарянПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9DA27377DFF81AC66021AB0DA795D7AE8D778B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 778866   (803809) от 19.04.2014
+
+Восточный ветер / Ostwind - Zusammen sind wir frei / Windstorm (2013) BDRip [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_803809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за плохой успеваемости в школе родители отправляют 14-летнюю Мику на всё лето на ферму к строгой бабушке. Однако там помимо сидения над книжками у неё неожиданно находится другое занятие. В отдалённом амбаре она находит дикого жеребца по имени Восточный ветер. Никто на ферме не в состоянии приручить его. Как по волшебству чувствующая привязанность к лошади Мика (   Читать дальше...   )Производство: Германия, Constantin Film Produktion GmbH, SamFilm GmbHЖанр: СемейныйРежиссер: Катя фон Гарнье / Katja von GarnierАктеры: Детлев Бук, Корнелия Фробесс, Ханна Хёппнер, Нина Кронягер, Марвин Линке, Тило Прюкнер, Мартин Тон, Юрген ФогельПеревод: Двуголосый закадровый, любительский (datynet & Selena) + одноголосый закадровый, любительский (Pashaup)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, английскийПродолжительность: 01:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE1ABB6D7B49F091F8147D4D0EE28F3D6B0A70D
 ```
 
 https://mybot314.ru/tekegram_catalog/

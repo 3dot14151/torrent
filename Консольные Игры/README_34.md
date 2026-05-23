@@ -1,111 +1,3 @@
-###  Публикация: 930059   (517010) от 21.08.2015
-
-Stranglehold (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Игра Stranglehold — масштабный проект мастера гонконгских боевиков Джона Ву. Блокбастеры прославленного китайского гуру отличаются не только высокими кассовыми сборами, но и фирменным стилем, имеющим огромное количество поклонников, особенно в России. Именно им, а также всем любителям исключительного экшена Джон Ву представляет свой сногсшибательный проект. Stranglehold (   Читать дальше...   )Тип издания: LicenceРазработчик: Midway GamesЖанр: Action / Shooter / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43DCA899D5917F5026AB30603C042B2BA6139138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930631   (514760) от 23.08.2015
-
-The Smurfs 2 / Смурфики 2 (2013) [Xbox360] [RegionFree] [FreeBoot] [License] [En/Multi]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Cмурфы - это маленькие синие гномы, придуманные бельгийским художником Пьером Кюллифором в 1958-ом году. С тех пор вышло огромное количество комиксов, видеоигр, мультсериал и полнометражный фильм о смурфах.
-
-Смурфики 2 - это новая увлекательная приключенческая игра по мотивам второй части одноименного фильма. Игра разрабатывается студией Wayforward, которая уже успела (   Читать дальше...   )Тип издания: ЛицензияРазработчик: WayForward и Ubisoft San FranciscoЖанр: Arcade (Platform) / 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Испанский, ПортугальскийЯзык интерфейса: Английский, Немецкий, Французский, Испанский, Португальский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4C6716A7A3517B1DB80D6832928ADA19ED0915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930676   (514746) от 23.08.2015
-
-Serious Sam 3: BFE / Крутой Сэм 3 (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Крутой Сэм возвращается, чтобы напомнить о золотом веке классических шутеров! О времени, когда мужчины были мужчинами, укрытия искали лишь слабаки и трусы, а нажатие спускового крючка вызывало взрыв, от которого закладывало уши! Действие игры «Крутой Сэм 3» разворачивается до событий первой части культовой серии. Человечеству угрожают легионы инопланетной нечисти (   Читать дальше...   )Тип издания: ЛицензияРазработчик: WayForward и Ubisoft San FranciscoЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB00B52E7D01D357DD896161953CC846B8ACBC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536022   (514229) от 18.08.2012
-
-Ninja Gaiden 3 [PS3] [RUS] [PAL] (2012)
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ninja Gaiden 3 — это экшн от третьего лица. Игра разработана студией Team Ninja и издана компанией Tecmo Koei для PlayStation 3
-Экшен Ninja Gaiden 3 был анонсирован на прошлой выставке Tokyo Game Show и до сих пор остается самой настоящей загадкой. Журнал Official  PlayStation Magazine взял интервью у главы студии Team Ninja Ёсуке Хаяси, который рассказал пару подробностей. Отвечая на вопрос, в каком ключе создается игра, Хаяси ответил: «Я не могу выразить свою мысль ясно, но это будет скорее революция, чем эволюция. Мы собираемся представить вам совершенно иной подход к этой игре. Так что не ждите, что мы начнем рассказывать о том, что в Ninja Gaiden 3 появилось новое оружие и новые способы расчленять врагов на части. Это вы можете ожидать от других игр, а мы хотим предложить нечто большее».
- В частности, разработчики решили сделать игру более реалистичной. «Мы решили полностью переделать дизайн. Ninja Gaiden всегда была очень яркой игрой. Но в Ninja Gaiden 3 мир будет куда более мрачным и реалистичным, чем ранее», (   Читать дальше...   )Жанр: Action Слэшер (Действие)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213CEF1C6E0F29AAFFEA0FF8DBAD45E67AE30BD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536236   (514224) от 18.08.2012
 
 DiRT Showdown [PS3] [ENG] [PAL] (2012)
@@ -114,7 +6,7 @@ DiRT Showdown [PS3] [ENG] [PAL] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514224.jpg" />
 </div>
 
 
@@ -141,7 +33,7 @@ Sonic The Hedgehog 4 Episode I [WiiWare] [PAL] [MULTI 6] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514131.jpg" />
 </div>
 
 
@@ -168,7 +60,7 @@ Ni no Kuni II: Revenant Kingdom (2018) [EUR] [PS4] 5.05 [HEN] [License] [Ru/En]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513680.jpg" />
 </div>
 
 
@@ -194,7 +86,7 @@ Escape Dead Island (2014) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513657.jpg" />
 </div>
 
 
@@ -220,7 +112,7 @@ Up: The Video Game / Вверх (2009) [Xbox360] [RegionFree] [FreeBoot] [Unoffi
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513645.jpg" />
 </div>
 
 
@@ -246,7 +138,7 @@ Kung Fu Panda / Кунг-фу Панда (2008) [Xbox360] [RegionFree] [FreeBoot
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513643.jpg" />
 </div>
 
 
@@ -272,7 +164,7 @@ MX vs ATV Supercross (2014) [PS3] [USA] 4.53 [Cobra ODE / E3 ODE PRO ISO] [Unoff
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513576.jpg" />
 </div>
 
 
@@ -299,7 +191,7 @@ Pac-Man and the Ghostly Adventures 2 (2014) [Xbox360] [RegionFree] [FreeBoot] [L
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513574.jpg" />
 </div>
 
 
@@ -325,7 +217,7 @@ Mortal Kombat: Komplete Edition / Смертельная Битва: Полно�
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513551.jpg" />
 </div>
 
 
@@ -351,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513136.jpg" />
 </div>
 
 
@@ -377,7 +269,7 @@ Ferrari: The Race Experience (2010) [PS3] [EUR] 3.70 [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512621.jpg" />
 </div>
 
 
@@ -403,7 +295,7 @@ Xenogears (1998) [PS1] [USA] [License] [En]
 >>PS1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512604.jpg" />
 </div>
 
 
@@ -429,7 +321,7 @@ Facebreaker  (2008) [PS3] [EUR] 2.41 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512571.jpg" />
 </div>
 
 
@@ -455,7 +347,7 @@ Aliens vs. Predator (2010) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru] | R.
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512568.jpg" />
 </div>
 
 
@@ -481,7 +373,7 @@ Pro Evolution Soccer 2013 (2012) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512565.jpg" />
 </div>
 
 
@@ -507,7 +399,7 @@ Final Fantasy IX (2000) [PS1] [USA] [License] [En]
 >>PS1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512558.jpg" />
 </div>
 
 
@@ -534,7 +426,7 @@ The Legend of Zelda: Twilight Princess (2006) [Wii] [PAL] [Unofficial] [Ru/Multi
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512496.jpg" />
 </div>
 
 
@@ -560,7 +452,7 @@ Ace Combat: Assault Horizon Limited Edition [PS3] [RUS] [PAL] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512012.jpg" />
 </div>
 
 
@@ -587,7 +479,7 @@ Phineas and Ferb: Quest for Cool Stuff (2013) [Xbox360] [RegionFree] [FreeBoot] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511685.jpg" />
 </div>
 
 
@@ -613,7 +505,7 @@ The Expendables 2 Video Game (2012) [Xbox360] [RegionFree] [FreeBoot] [License] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511628.jpg" />
 </div>
 
 
@@ -639,7 +531,7 @@ Cars 2: The Video Game / Тачки 2 (2011) [Xbox360] [RegionFree] [FreeBoot] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511582.jpg" />
 </div>
 
 
@@ -665,7 +557,7 @@ The Legend of Zelda: Twilight Princess (2006) [Wii] [NTSC] [Unofficial] [Ru/Mult
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511574.jpg" />
 </div>
 
 
@@ -676,6 +568,111 @@ The Legend of Zelda: Twilight Princess (2006) [Wii] [NTSC] [Unofficial] [Ru/Mult
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DEF08D8A0481B71D727EDBD2C4D82B39881121A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931453   (511550) от 26.08.2015
+
+Doom 3 BFG Edition (2012) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511550.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издание Doom 3 BFG Edition войдет обновленная версия культового шутера Doom 3, а также дополнение к нему под названием Ressurection of Evil. Помимо знакомой игрокам истории войны на марсианской станции поклонников Doom ждут совершенно новые эпизоды - семь уровней под общим заголовком The Lost Mission.Тип издания: Неофициальное изданиеРазработчик: id SoftwareЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: -/-Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B32DD115294F255F8669991FC43884FB5DAAA26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315531   (510702) от 22.07.2019
+
+Tetris 99 (2019) [Switch] [EUR] 8.0.0 [eShop] [Ru/Multi]
+
+>>Консольные Игры
+>>Switch
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510702.jpg" />
+</div>
+
+
+###  Подробнее
+
+99 игроков — и только один окажется победителем! TETRIS® 99 — классическая игра-головоломка в совершенно новой оболочке. Сможете подобрать стратегию, чтобы одолеть одновременно 98 других игроков?!
+Игра TETRIS 99 доступна исключительно участникам платного членского сервиса Nintendo Switch Online. Ведь TETRIS® 99 — это в первую очередь захватывающие онлайн-сражения (   Читать дальше...   )Тип издания: eShopРазработчик: ARIKAЖанр: PuzzleЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01D3D44C80DE91C1CA41BE0F761C4058B2D383A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931583   (510636) от 27.08.2015
+
+SpongeBob HeroPants (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510636.jpg" />
+</div>
+
+
+###  Подробнее
+
+SpongeBob HeroPants – игра, основанная на полнометражном мультфильме The SpongeBob Movie: Sponge Out of Water. Вам предстоит взять под свое управление любимых героев Бикини-Боттом, которые предстанут перед вами как в своем обычном виде, так и в новой супергеройской форме из мультфильма. SpongeBob HeroPants представляет собой платформер, в котором игроку предстоит (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Behaviour InteractiveЖанр: Arcade / Adventure / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14268A5BFF90A4202F1A6A396610B846FB25031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932091   (509861) от 28.08.2015
+
+Cars Race-O-Rama (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Честная борьба - вот главный принцип Молнии Макквина, знаменитого героя мультфильма «Тачки», который в корне изменил жизнь захолустного городка Радиатор Спрингс. Однако далеко не все готовы соблюдать правила! Грандиозный турнир Race-O-Rama собирает гонщиков со всей округи, но чтобы стать победителем, вам нужно быть готовым ко всему!Тип издания: ЛицензияРазработчик: Incinerator StudiosЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76F3CB507EC2CF121899D4EA099E76EBBF782A7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

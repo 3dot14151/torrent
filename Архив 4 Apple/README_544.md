@@ -6,7 +6,7 @@ PDF Converter Master 6.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229237.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Aiseesoft Mac Video Converter Ultimate for Mac 10.3.80 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229193.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Nevercenter CameraBag Photo 2021.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229161.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Pixelmator Pro 3.3.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229122.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Nevercenter CameraBag Pro 2021.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229121.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Paw 3.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229107.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ PDF to EPUB Converter 6.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229068.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Allegorithmic Substance Designer 2019.2.3 (build 2683) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229010.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Omni Toolbox 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228773.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Default Folder X 6.0 b1 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228748.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Photo Mechanic 6 v6.0 build 3954 (158b808) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228692.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Nik Complete 2 Collection by DxO 2.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228618.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ This War of Mine: Final Cut (2014) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228536.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ ProFind 1.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228242.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Cookie 6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228233.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Drop - Color Picker 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228225.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Postico 1.5.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228213.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ EverWeb (Standalone) 3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228195.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Doxillion Plus 4.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228184.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ AirServer 6.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228170.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ beaTunes 5 v5.2.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228164.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Ink2Go 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228152.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Dropshare 5.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228098.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Persecond 1.5[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228066.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ SoundSource 5.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228043.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Movist Pro 2.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227989.jpg" />
 </div>
 
 

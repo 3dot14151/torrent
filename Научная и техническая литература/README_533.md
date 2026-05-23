@@ -1,138 +1,3 @@
-###  Публикация: 1630818   (198966) от 02.05.2023
-
-Павел Серков | Электрообереги (2023) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена устройствам в вашем электрощитке, которые спасают вас от погибели. Простое объяснение принципа работы АВ, ВДТ, УЗИП, УЗДП, РН и т.д.Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7BFA2440074CD964A70FD18EE8F89EB37AC04DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630918   (198935) от 03.05.2023
-
-Б.Р. Киселев | Детали машин. Привод (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-В учебнике рассмотрена механическая сущность деталей машин, раскрыты вопросы назначения и работоспособности привода, приведены основы кинематических и прочностных расчетов механизмов, типичных деталей и узлов машин. Даны рекомендации выбора и использования конструкций механизмов, как отдельных передач, так и всего модуля привода в целом. Представлены промышленные (   Читать дальше...   )Жанр: МашиностроениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B7D1063A0669D5A74C46E56A6BFA9D147E7AF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630696   (198931) от 03.05.2023
-
-Л.М. Москалев, В.В. Боченков, С.В. Дорожков | Узкоколейные паровозы. Россия (2012) [DJVU, PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Издание посвящено истории конструирования, постройки и эксплуатации узкоколейных паровозов Российской Империи в период до 1926 г. В книге приводятся описания локомотивов отечественного и иностранного производства для частных и государственных железных дорог 30 размеров колеи. Отдельные главы посвящены паровозам военно-полевых железных дорог русской армии и «литерным» (   Читать дальше...   )Жанр: история техникиЯзык: Русский, АнглийскийФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E32F0310B7CA2AA0CED9269CF3007701D4F6F22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629898   (198902) от 05.05.2023
-
-Евгений Норин | Чеченская война [2 тома] (2021-2022) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Хроника самой кровавой и мучительной войны современной России от военного историка Евгения Норина. Одна из первых фундаментальных работ по Чеченской войне: ход трагических событий восстанавливался с привлечением максимально широкого круга источников.
-Эта война оставила слишком много вопросов. Эта книга — первый шаг к тому, чтобы дать на них ответы.
-Издание проиллюстрировано (   Читать дальше...   )Жанр: Военная историяИздательство: Черная сотняФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C42613396763CD43BB6260165252F40816A9E4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624961   (198829) от 05.05.2023
-
-Сборник | Electronics books collection [2110 книг] (1950-2022) [PDF, DJVU] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Подборка книг и учебников на английском языке по Электронике, изданных в
-период с 1950 по 2022 год.
-
-Collections of the books in English on Electronics, published by(   Читать дальше...   )Жанр: ЭлектроникаЯзык: АнглийскийФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C179C3592C1A617E8CB7191D403F6CFED8CB9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632060   (198760) от 08.05.2023
 
 Анна Махова | БАДы и витамины. Как восполнить дефицит и избежать передозировки (2023) [FB2]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198760.jpg" />
 </div>
 
 
@@ -167,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198715.jpg" />
 </div>
 
 
@@ -193,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198671.jpg" />
 </div>
 
 
@@ -219,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198669.jpg" />
 </div>
 
 
@@ -245,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198652.jpg" />
 </div>
 
 
@@ -271,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198619.jpg" />
 </div>
 
 
@@ -297,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198567.jpg" />
 </div>
 
 
@@ -323,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198399.jpg" />
 </div>
 
 
@@ -349,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198398.jpg" />
 </div>
 
 
@@ -376,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198219.jpg" />
 </div>
 
 
@@ -402,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198213.jpg" />
 </div>
 
 
@@ -428,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198202.jpg" />
 </div>
 
 
@@ -454,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198186.jpg" />
 </div>
 
 
@@ -481,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198181.jpg" />
 </div>
 
 
@@ -510,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198123.jpg" />
 </div>
 
 
@@ -537,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_198051.jpg" />
 </div>
 
 
@@ -563,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_198049.jpg" />
 </div>
 
 
@@ -590,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198030.jpg" />
 </div>
 
 
@@ -616,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_198017.jpg" />
 </div>
 
 
@@ -642,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197952.jpg" />
 </div>
 
 
@@ -668,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197948.jpg" />
 </div>
 
 
@@ -679,6 +544,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D398ABE876165D64B70D93DCDA14AED66450CFB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635116   (197946) от 24.05.2023
+
+А.Н. Свистунов | Построение распределенных систем на Java (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197946.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемом курсе рассказывается о проблемах, сопровождающих разработку распределенных программных систем, и методах решения этих проблем. Все рассмотренные элементы технологии проиллюстрированы примерами, ознакомившись с которыми, читатели получат полное представление о методах разработки распределенных приложений на платформе J2EE.
+В рамках курса рассматривается (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F92D216E5A809498E7B378FE3DC579DDEE16075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635824   (197927) от 27.05.2023
+
+С.Р. Гуриков | Основы алгоритмизации и программирования на Visual C++ (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197927.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены основы алгоритмизации и программирования на языке Visual C++ для разработки Windows-приложений и создания консольных программ. Содержится описание работы линейных, разветвляющихся и циклических структур, принципов обработки одномерных и двумерных массивов, порядка создания DLL-библиотек и модулей, методов работы с файлами. Много внимания (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD4B318DA362B0799807446D7679237E3EB4890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636081   (197889) от 28.05.2023
+
+Кристер Стурмарк, Дуглас Хофштадтер | Светоч разума. Рациональное мышление в XXI веке (2022) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный мир располагает огромным количеством идей, концепций и систем взглядов, которые предлагают человеку то или иное объяснение реальности. Теории заговоров, альтернативная медицина, духовные практики, астрология, эзотерика, несмотря на развитие науки, не теряют популярности. Но что они на самом деле могут объяснить? И почему многие люди так легко готовы поверить (   Читать дальше...   )Жанр: Научно-популярная литератураПеревод: Инна Каганова, Татьяна ЛисовскаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732B0423AF32194E3A3AC2114E1E43D8F27C54FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636130   (197806) от 28.05.2023
+
+Marcos Mateu-Mestre | Серия книг по рисованию Framed: Drawing Techniques, Ink, Perspective [5 книг] (2010-2021) [PDF] [RU, EN]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг по рисованию "Framed" от Marcos Mateu-Mestre:
+- Framed Drawing Techniques
+- Framed Ink
+- Framed PerspectiveЖанр: РисованиеЯзык: Русский, АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B824747B1CF3330601286E04DE935D9B7EC5E0D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636723   (197752) от 31.05.2023
+
+И. Гончаренко | Антенны КВ и УКВ. Часть 6 (2014) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга является шестой (окончательной) частью справочника "Антенны KB и УКВ" и посвящена антеннам УКВ. В ней под ультракороткими волнами понимаются частоты от 50 до 3000 МГц.
+Первые части справочника выпущены издательством "РадиоСофт" в 2004-2009 гг. под названиями "Антенны KB и УКВ. Часть I. Компьютерное моделирование. MMANA", (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160C98523F59172E6EEAB45E1616FF8079AAFE10
 ```
 
 https://mybot314.ru/tekegram_catalog/

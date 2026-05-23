@@ -6,7 +6,7 @@ Joanne Tatham - The Rings of Saturn (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744878.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chet Baker & Art Pepper - Playboys (1956) 2012, Pacific Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744761.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tommy Flanagan with the Wilbur Harden Quartet - Plays The Music of Rodgers & Ham
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744636.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Frank Sinatra & Count Basie - The Complete Reprise Studio Recordings (2011) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744220.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Elvin Jones - And Then Again (1965) 2017, Warner [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744200.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Chick Webb & Ella Fitzgerald - The Quintessence: New York City (1929-1939) 1995,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744199.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Sunday Morning Snooze: Relaxing Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744130.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Zara Home Music Collection (2012) [MP3|192-320 кб/с]<Lounge, Jazz, Lo-Fi
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744097.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Little Boys Blue - Tennissippi (2016) [MP3|320 кб/с] <Blues, Jazz>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743889.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Tom Harrell - Paradise (2001) BMG Bluebird [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743844.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Lou Donaldson - Four Classic Albums (1957 - 1961) 2CD, 2017, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743841.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Greta Matassa - I Wanna Be Loved (2009) Resonance Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743839.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Pure... Blues (2010) Box Set, 4 CD [FLAC|Lossless]<Blues, Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743817.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Anita O'Day - The Complete Anita O'Day Verve / Clef Sessions (1952 - 1962) 9CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743768.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Mick Grabham - Original Paint (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743545.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Melanie De Biasio - Lilies (2017) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743475.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Piano For Dinner - Finest Jazz (2018) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743352.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Al Di Meola - Orange And Blue (1994) [FLAC|Lossless]<Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742884.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Roy Eldridge - Three Classic Albums Plus (1954 - 1956) 2011, 2CD, Avid Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742743.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Franklin Kiermyer & Pharoah Sanders - Solomon's Daughter (1994) Evidence [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742740.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Buddy De Franco - Sweet And Lovely (1956) Remaster, 2012, Universal [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742513.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ron Carter / Cedar Walton Duo - Heart & Soul (1981) Remaster, 2015, Solid Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742512.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ John Verity - My Religion (2016) [MP3|320 кб/с] <Blues, Blues Rock, Classic R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742508.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ James O'Neill and the Silver Shadows - A Little Bit More Than the Blues (2016) [
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742506.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Albert Castiglia - Big Dog (2016) [MP3|320 кб/с] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742501.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ JP Stingray - Mister Blues Strikes Again (2003) [FLAC|Lossless|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742499.jpg" />
 </div>
 
 

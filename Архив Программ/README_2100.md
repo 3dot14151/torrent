@@ -6,7 +6,7 @@ RealStrat Standalone VSTi v1.1.1 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80856.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 7 Codec Pack 4.0.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80785.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nero Video 11 v.8.2.15700.3.100 Ru/En RePack by MKN [Русский/ Англи�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80706.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Deluge 1.3.4 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80672.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ PTC MathCAD Prime 2.0 F000 x86+x64 [2012, MULTILANG +RUS] 2.0 Build F000 [Мул
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80518.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Double Commander 0.5.3 + Portable x86-x64 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80454.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Gens-Rerecording 11b (svn296) [Английский, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80438.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Xilisoft Media Toolkit Ultimate 7.0 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80333.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Xilisoft DVD Copy Express 2.0.1 build-0112 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80148.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Nero Multimedia Suite Platinum 11.2.00400 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80115.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Help & Manual Professional 6.0.2 Build 2352 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80075.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Microsoft Touch Pack для Windows 7 2010 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80074.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80020.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79967.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Kaspersky World 1.3.0.13 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79807.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Kill Win Locker by Core-2 6.2.12 6.2.12 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79781.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Nero 11.2.00400 Full RePack + Toolkit by Vahe-91 [RUS / ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79684.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Multibar Ticno 1.1.1.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79625.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Any DVD Converter Professional 4.3.5 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79610.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Almeza MultiSet Professional 8.1.0 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79585.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ cFosSpeed 7.01 Build 1927 Beta [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79569.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79559.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Almeza MultiSet Pro 8.1.0 Portable [Multi (Русский)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79534.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Visual Studio 11 Ultimate Beta [Eng] 11.0.50214.1 Beta [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79404.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79290.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ NANO Антивирус 0.16.12.42871 Beta [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79280.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1665765   (181033) от 01.10.2023
-
-Torn Away (2023) [Ru/Multi] (Build 12315550) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Torn Away — интерактивная история, собранная из элементов приключенческих игр, стелс сайд-скроллеров и уровней от первого лица. Взгляните на ужасы Второй мировой войны глазами ребенка. Сможете ли вы сохранить веру в людей и вернуться домой?Тип издания: RepackРазработчик: perelesoqЖанр: Adventure, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5B0352DA63C7C55B42FCD5B69F0D0616CC85349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417818   (181032) от 30.11.2020
 
 Mesmer (2020) [Multi] (1.0.4) License GOG
@@ -32,7 +6,7 @@ Mesmer (2020) [Multi] (1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181032.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ ZED (2019) [En] (1.3) License GOG [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180507.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Fobia - St. Dinfna Hotel (2022) [Ru/Multi] (01.02 Build 9460237) License DOGE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180164.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Unsolved Case 4: Above the Law / Нераскрытое дело 4: Вне за�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180017.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Abomi Nation (2021) [Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179877.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Noch (2023) [Ru/Multi] (1.0.0.12532) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179834.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Halloween Stories 4: Defying Death / Хеллоуинские истории 4: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179818.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Demonologist (2023) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_179794.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Noch (2023) [Ru/Multi] (1.0.0.12532) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179789.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Overpass 2 (2023) [Ru/Multi] (1.0.0-1892.84963) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179771.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Crossroads 2: Escaping the Dark / Перекресток 2: Побег из ть
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179626.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Empire of Sin (2020) [Ru/Multi] (1.0) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179525.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2/dlc) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179523.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Amok Runner (2022) [Ru/Multi] (9865847) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179471.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ UFO: Extraterrestrials Platinum (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179172.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Christmas Stories 9: The Christmas Tree Forest (2020) [En] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179076.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Alien Shooter 2 - The Legend (2020) [Ru] (1.2.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178885.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Dust to the End (2021) [Ru/Multi] (1.0.1) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178873.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Resident Evil 5 (2009) [Ru/Multi] (1.2.0/dlc) Repack Decepticon [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178576.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Halloween Stories 7: Written in Blood (2023) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178150.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Living Legends 8: The Crystal Tear / Живые легенды 8: Хрустал
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178115.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Project Wingman (2020) [Ru/Multi] (1.0.3.20.1201.3199) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177795.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Skeleton Crew (2022) [En] (1.1.3) License FLT
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177561.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Druidstone: The Secret of the Menhir Forest (2019) [Ru] (1.2.12) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177541.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Resident Evil: Revelations (2013) [Ru/Multi] (1.0u5/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177174.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Resident Evil® Revelations после доработки снова на пла
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04206BF588E7C498AD76757EA75948BD9C195FEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667175   (177136) от 07.10.2023
+
+Resident Evil: Revelations 2 (2015) [Ru/En] (6.0/dlc) Repack Decepticon
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Направляясь на далекий остров-тюрьму в поисках пропавшей дочери, Барри Бертон встречает совершенно нового персонажа - маленькую девочку по имени Наталья Корда. Она обладает необычными способностями, позволяющими ей чувствовать врагов и спрятанные предметы. Пользуясь этими умениями вместе с проверенными бойцовскими навыками Барри, игрокам нужно будет переключаться (   Читать дальше...   )Тип издания: RepackРазработчик: Frim Studio и CapcomЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477EC3FAA5CC1170A12233601AF121ADBDE1918D
 ```
 
 https://mybot314.ru/tekegram_catalog/

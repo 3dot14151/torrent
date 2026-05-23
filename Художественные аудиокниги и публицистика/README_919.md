@@ -1,83 +1,3 @@
-###  Публикация: 1698932   (118111) от 11.02.2024
-
-Тем Резник и др. | Сборник  «Глубина» (выпуск 50) (2023) [MP3, Светлана Шаклеина и др.]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мог ли врач Джон Полидори предполагать, что, публикуя в 1819 году написанную им историю, услышанную от лорда Байрона, он откроет ящик Пандоры целого жанра рассказов о вампирах? С тех пор утекло немало крови во множестве историй о кровопийцах.
-Вы всё поняли правильно: юбилейное 50-е погружение «Глубины» посвящено самой жуткой и мистической литературной теме — вампирам. (   Читать дальше...   )Жанр: ФантастикаИздательство: Творческое объединение Независимых чтецовПродолжительность: 09:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F734F33FF34DF9D9AD1C61B04D65D18EFFD074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699002   (118110) от 11.02.2024
-
-Эдуард Хруцкий | Операция прикрытия (2018) [MP3, Всеволод Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Шел 1944 год. Каждый день приближал Красную Армию к рубежам Советской страны. Немцы, сопротивляясь, отступали вглубь Европы. Но признавать свое очевидное уже для всех поражение не спешили. Напротив, в далеком и мирном Берне разрабатывался план дальнейшей работы английских и немецких агентов на территории СССР.Жанр: ДетективИздательство: СОЮЗПродолжительность: 01:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9535177A09844E0E1F9D561994AD49364FF025AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699063   (118105) от 11.02.2024
-
-Сергей Аксаков | Семейная хроника (2007) [MP3, Алексей Злаказов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сергей Тимофеевич Аксаков (1791–1859) – русский писатель,  литературный и театральный критик.
-«Тесно стало моему дедушке жить в Симбирской губернии, в родовой отчине своей, жалованной предкам его от царей московских... С некоторого времени стал он часто слышать об Уфимском наместничестве, о неизмеримом пространстве земель...». Так начинает свое повествование о роде (   Читать дальше...   )Жанр: Русская литература, классика, прозаИздательство: 1С-Паблишинг, МедиаКнигаПродолжительность: 08:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A694868DB8227EE65F61BD6EFE74303FE9D499F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698931   (118095) от 11.02.2024
 
 Чингиз Абдуллаев | Дронго (Книга 55). Ангел боли - Путешествие по Апеннинам (2024) [MP3, Святой]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118095.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118052.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118028.jpg" />
 </div>
 
 
@@ -167,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118021.jpg" />
 </div>
 
 
@@ -193,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118005.jpg" />
 </div>
 
 
@@ -222,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118003.jpg" />
 </div>
 
 
@@ -248,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117995.jpg" />
 </div>
 
 
@@ -276,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117991.jpg" />
 </div>
 
 
@@ -302,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117979.jpg" />
 </div>
 
 
@@ -328,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117964.jpg" />
 </div>
 
 
@@ -355,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117953.jpg" />
 </div>
 
 
@@ -383,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117950.jpg" />
 </div>
 
 
@@ -409,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117948.jpg" />
 </div>
 
 
@@ -435,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117909.jpg" />
 </div>
 
 
@@ -462,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117905.jpg" />
 </div>
 
 
@@ -489,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117884.jpg" />
 </div>
 
 
@@ -516,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117883.jpg" />
 </div>
 
 
@@ -544,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117878.jpg" />
 </div>
 
 
@@ -571,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117868.jpg" />
 </div>
 
 
@@ -600,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117857.jpg" />
 </div>
 
 
@@ -628,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117850.jpg" />
 </div>
 
 
@@ -654,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117849.jpg" />
 </div>
 
 
@@ -680,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117844.jpg" />
 </div>
 
 
@@ -691,6 +611,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30A2ECE9042E1FAFCDA2A29F83FB4FF1B18632D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699550   (117839) от 13.02.2024
+
+Тайниковский | Серый рыцарь. Том II (2024) [MP3, Михаил Архипов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман фэнтези-цикла «Серый рыцарь»!
+
+Что делать гениальному магу, душа которого была изгнана из его родного мира и волею случая попала в тело молодого паренька из самого бедного знатного рода? Ответ прост: прокладывать себе путь на вершину, попутно пытаясь обрести знания, чтобы вернуться домой и отомстить своим обидчикам.Жанр: Альтернативная история Городское фэнтезиИздательство: ЛитРес: чтецПродолжительность: 09:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9836A685D18DFB6635DAF42EDE3AD6FE7200DC37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699560   (117828) от 13.02.2024
+
+Мария Семёнова | Там, где лес не растёт (2023) [MP3, Илья Веселов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Далеко за морем, в сотнях вёрст от родных лесов, где молодой венн Коренгa знал каждое дерево, от речки Черёмуховый Юг, притока славной Светыни, высоко в горах живёт удивительное и нелюдимое племя виллов, в котором у каждого человека есть побратим – крылатый пес симуран. Легенды утверждают, что самый первый симуран был обычной собакой, но Боги наделили его могучими (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиИздательство: Азбука-АттикусПродолжительность: 13:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B09410772E8726F71F3154CF147A8ADA7A47E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699459   (117812) от 13.02.2024
+
+Андрей Булычев | Егерь Императрицы (Книга 12). Гвардия, вперёд! (2024) [MP3, Сергей Уделов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как ни пытались союзники Османской империи заставить её воевать дальше с Россией, но проигравшая все большие сражения на земле и на море Блистательная Порта запросила мира, который и был заключён в декабре 1791 года в Яссах. – Тут, на Дунае оставят турку стеречь или на Кавказскую линию погонят? – гадали егеря-волкодавы. – А может, вообще в Польшу мятежных ляхов по (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастикаИздательство: ЛитРесПродолжительность: 09:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85931303ADB36F4318A396CA96B70ADF05383173
 ```
 
 https://mybot314.ru/tekegram_catalog/

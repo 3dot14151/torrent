@@ -6,7 +6,7 @@ Aho Girl | Дурочка (2017) [FLAC|Lossless] <OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137783.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rinne no Lagrange OP&ED Single - TRY UNITE! Hello! [Nakajima Megumi] (2012, FLAC
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77962.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Senpai wa Otokonoko | Senpai is an Otokonoko | Моя Сэмпай — Паре�
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69995.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Mahou Shoujo ni Akogarete | Gushing Over Magical Girls | Восхищаясь д
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53943.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Jibaku Shounen Hanako-kun Drama CD: Houkago Shounen Hanako-kun | Туалетн�
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25723.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Hibi wa Sugiredo Meshi Umashi OST (2025) [FLAC|tracks] <3CD+OP+ED+Character Song
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11918.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Ef - a Fairy Tale of the Two Original Soundtrack Collection (2007-2009)[FLAC]<OS
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4231.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Dr.Web Anti-Virus 8.0.0.11210 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_345160.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345120.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Movavi Video Editor Plus 20.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345119.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cyberfox 50.0 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345082.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Reg Organizer 7.60 beta 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345073.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Piriform CCleaner Professional Plus 5.24.5841 Portable by PortableAppZ [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345066.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ LosslessCut 1.14.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345041.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ System Ninja 3.2.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345040.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Auslogics BoostSpeed 10.0.18.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345039.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ CCleaner 5.48.0.6834 Professional RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345037.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Hee-SoftPack v3.3.3 (Обновления на 24.11.2012) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_344992.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Hirschmann Industrial HiVision 07.0.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344958.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Internet Download Manager 6.26 Build 10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344955.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ BlueStacks App Player 5.9.0.1062 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344928.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ SideFX Houdini FX 19.5.303 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344923.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Adguard Premium 6.4.1814.4903 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344891.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ NextLimit RealFlow 2.6.5.0095 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344887.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Symantec Endpoint Protection 14.2 MP1 build 1023 (14.2.1023.0100) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344886.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Adguard Premium 6.4.1814.4903 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344882.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ DisplayFusion 5.0.0 Beta 3 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_344843.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ NVIDIA GeForce Desktop 375.86 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344768.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ O&O ShutUp10 1.4.1385 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344766.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Adguard Premium 6.4.1814.4903 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344740.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ MAGIX Vegas Pro 16.0 Build 307 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344737.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Dr.Web Security Space Pro 8.0.0.11210 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_344695.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Total Commander 8.01 LitePack | PowerPack | ExtremePack 2012.11a Final + Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_344669.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ AOL Shield 1.0.22.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745297.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Maxthon Cloud Browser 4.9.3.500 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745296.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Mozilla Firefox Quantum ESR 60.5.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745264.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ DMG Audio – Plugins Bundle (2019.2) VST, VST3, AAX, RTAS (x86/x64) RePack by V
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745260.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Opera 58.0.3135.65 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745246.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Synapse Audio - DUNE 3.0.5 VSTi, AAX (x86/x64) Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745234.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ PointerStick 3.41 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745229.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Cent Browser 1.9.12.65 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745214.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Firefox Browser 96.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745204.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ K-Lite Codec Pack Update 16.7.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745200.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ CrystalDiskInfo 8.14.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745196.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PrivaZer 4.0.39 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745189.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Microsoft Edge 97.0.1072.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745188.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ HiBit Uninstaller 2.7.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745187.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Wise Care 365 Pro 5.2.6.521 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745166.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Mozilla Firefox Quantum 65.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_745157.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ eM Client Pro 7.2.34666.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745156.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VideoInspector 2.15.0.144 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745148.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Google Chrome 51.0.2704.63 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745141.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Google Chrome 51.0.2704.63 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745132.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Mozilla Thunderbird 91.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745098.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ IK Multimedia - T-RackS 5 Complete 5.8.0 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745089.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Opera 82.0.4227.58 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745077.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ IK Multimedia - AmpliTube 5 Complete 5.3.0B STANDALONE, VST, VST3, AAX (x64) [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745068.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ CodeLobster IDE 2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_745067.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Wise Game Booster 1.37.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745052.jpg" />
 </div>
 
 

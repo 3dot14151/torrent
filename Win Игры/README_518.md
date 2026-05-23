@@ -1,29 +1,3 @@
-###  Публикация: 1781600   (26590) от 24.02.2025
-
-The Shell Part III: Paradiso (2025) [Multi] (1.0.2/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Закручивающиеся цепи одержимости, которые начались с "Раковины", теперь угрожают задушить детектива Рейджи Токисаку в третьей и последней части трилогии. Пока старые друзья и враги восстают для последнего противостояния, сможет ли кто-нибудь разорвать порочный круг - и сможет ли сердце Рейджи когда-нибудь вырваться на свободу?Тип издания: LicenseРазработчик: Innocent GreyЖанр: Приключенческие игры, СимуляторыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (традиционный, упрощенный)Язык интерфейса: Английский, Китайский (традиционный, упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACBD286F9DFB069C8658386957D999184974B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781591   (26587) от 24.02.2025
 
 BrokenLore: LOW (2025) [Ru/Multi] (build 17449000) Repack seleZen
@@ -32,7 +6,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (build 17449000) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26587.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Megaloot (2024) [Ru/Multi] (1.17.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26546.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.092) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26544.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Quake - Квадрология (1996-2021) [Ru/Multi] (1.0/5971/1.32/1.4.3/dlc) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26540.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Hands of Necromancy (2022) [Ru/Multi] (18.2.25) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26527.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Stellar Settlers: Space Base Builder (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26515.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Hands of Necromancy II (2) (2024) [Ru/Multi] (18.2.25) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26514.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Generation Zero (2019) [Ru/Multi] (2925040/dlc) Repack Let'sРlay [Ultimate Bund
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26513.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Zoochosis (2024) [Ru/Multi] (1.6.3) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26484.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Brutal Orchestra (2021) [Multi] (1.4.1f1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26445.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.31-CL364745/dlc) Repack Wanterlude
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26436.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ SKALD: Against the Black Priory (2024) [En] (Skald Modding Tool/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26431.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Tribute (2025) [Ru/Multi] (1.4.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26412.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Little Brave (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26393.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.108/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26386.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Little Brave (2025) [Ru/En] (1.0.0) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26378.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Transformers: Fall of Cybertron (2012) [Ru/Multi] (1.0/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26368.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Small Saga (2023) [Ru/En] (Build 12840998) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26345.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.14.29.106/dlc) Repack W
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26344.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The First Berserker Khazan (2025) [Ru/Multi] (480684) Repack Let'sРlay [Demo]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26333.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Ninja Five-O (2025) [Multi] (1.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26311.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Sleeping Dogs (2014) [Ru/Multi] (1.0/dlc) Repack Wanterlude [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26306.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Monospaced Lovers (2024) [Ru/Multi] (1.0.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26241.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Strange City (2024) [Multi] (1.0.6) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26229.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17385646) Repack Decep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26228.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17385646) Repack Decep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D3EDE9E1007C37A77509FA7D01F92776D8331D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131600   (26224) от 28.02.2025
+
+World to the West (2017) [Multi] (1.6.0) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная девочка - Тесламансер, маленький аутсайдер-оптимист, закалëнная путешественница и самоуверенный силач-аристократ по стечению обстоятельств оказались в центре чужой авантюры. Теперь им предстоит задействовать свои уникальные способности чтобы выжить на континенте, хранящем древние секреты и опасности. Кто-то ищет славу, кто-то желает отомстить, а кто-то (   Читать дальше...   )Тип издания: LicenseРазработчик: Rain GamesЖанр: Action, Adventure, PlatformerЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF382403359D4DAC7ED6B951E12372F34792554
 ```
 
 https://mybot314.ru/tekegram_catalog/

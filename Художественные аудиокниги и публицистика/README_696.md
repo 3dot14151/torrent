@@ -1,84 +1,3 @@
-###  Публикация: 1639392   (238241) от 13.06.2023
-
-Алексей Шмаков | Хранитель Рода Государева (Книга 3) (2023) [MP3, Вадим Ерофеев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Я наследник рода, который уже не одну сотню лет является щитом императорской семьи. Рода, который ненавидят все аристократы империи. Рода, сила которого пугает абсолютно всех. Я умер, выполняя свой долг. Но, как оказалось, смерть далеко не конец. Ждите меня! I’ll Be Back!Жанр: фантастика, фэнтезиПродолжительность: 09:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B741B1DF8CDDD6A726F86AC6C7C87F851DD181BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639492   (238212) от 13.06.2023
-
-Александр Афанасьев | На изломе (2023) [MP3, Лана Репина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Роман «На изломе» – книга родившаяся из допущения, что 19 августа 1991 года было обычным днем, не произошло путча, и стороны подписали новый союзный договор. Но при этом – остались все горячие точки, по-прежнему плохо с экономикой, придуманные Горбачевым институты не работают, республики тянут одеяло на себя.В этих условиях – Москва обращает внимание на странную (   Читать дальше...   )Жанр: Детективная фантастика, криминальные боевикиПродолжительность: 11:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C5493F3BBB5243B72DC16AC70CB23C2AA95B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639528   (238204) от 13.06.2023
-
-Бен Ааронович |  Реки Лондона (Книга 2). Луна над Сохо (2023) [MP3, Михаил Прокопов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Финалист премии Академии НФ, фэнтези и хоррора.
-Номинация на премию журнала SFX..
-
-«Тело и душа». Так называется мелодия джазового стандарта, которую слышит Питер Грант – лондонский констебль и ученик чародея, – осматривая труп саксафониста Сайреса Уилкинса. Он умер в клубе «606» в Сохо, где подрабатывал в джаз-бэнде. Музыка, звучащая из его тела, явно указывает (   Читать дальше...   )Жанр: Героическое фэнтези, зарубежное фэнтезиПродолжительность: 13:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C04D81ACCA51743322CD4BF1D23BA686FA2D337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580727   (238143) от 02.10.2022
 
 Иван Сергеевич Тургенев | Рудин (2013) [MP3, Владимир Самойлов]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238143.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238123.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238082.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238062.jpg" />
 </div>
 
 
@@ -193,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238054.jpg" />
 </div>
 
 
@@ -219,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238052.jpg" />
 </div>
 
 
@@ -245,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238045.jpg" />
 </div>
 
 
@@ -271,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238028.jpg" />
 </div>
 
 
@@ -297,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238027.jpg" />
 </div>
 
 
@@ -323,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238002.jpg" />
 </div>
 
 
@@ -350,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237906.jpg" />
 </div>
 
 
@@ -379,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237883.jpg" />
 </div>
 
 
@@ -405,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237862.jpg" />
 </div>
 
 
@@ -431,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237845.jpg" />
 </div>
 
 
@@ -457,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237776.jpg" />
 </div>
 
 
@@ -484,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237767.jpg" />
 </div>
 
 
@@ -510,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237710.jpg" />
 </div>
 
 
@@ -536,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237684.jpg" />
 </div>
 
 
@@ -564,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237682.jpg" />
 </div>
 
 
@@ -591,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237671.jpg" />
 </div>
 
 
@@ -617,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237657.jpg" />
 </div>
 
 
@@ -643,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237654.jpg" />
 </div>
 
 
@@ -669,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237637.jpg" />
 </div>
 
 
@@ -680,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82B97DB3CF2E1C9240CA6FE80BA405F64F8F81AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605806   (237625) от 19.01.2023
+
+Галина Гончарова | Средневековая история (Книга 7). По праву короля (2022) [MP3, Татьяна Черничкина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237625.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Уэльстере вспыхивает мятеж – и свою цену, цену крови и жизни платит его величество Гардвейг. Мчится, не успевая из ссылки его друг и брат, Альтрес Лорт, но спасать – поздно. Остается только мстить. Хаос мятежа разлучает графа и графиню Иртон. Лилиан бежит вместе с королевой Милией, пытаясь спасти и ее, и принцев. Тем временем граф выбирается из охваченного мятежом (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 12:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAFBD0F6C71BA7219C50A414C4A5C4F2339E3CDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626561   (237605) от 15.04.2023
+
+Татьяна Степанова | Детектив-триллер (Книга 8). Флердоранж - аромат траура (2023) [MP3, Анна Чинцова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему на этом огромном поле, где мирно колосится рожь, людей охватывает первобытный ужас? Почему именно на нем нашли расчлененные тело бизнесмена а год спустя напали на молодоженов и зверски убили счастливого мужа? Что заставляет приходить сюда модного живописца, участкового милиционера, бывшего солдата-наемника? Загадка этого поля, о котором ходят столько мрачных (   Читать дальше...   )Жанр: ДетективПродолжительность: 04:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D051B0074304F99D3153E3D7F305E6D610CF676A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629909   (237595) от 28.04.2023
+
+Юрий Тарарев, Александр Тарарев | Последний вздох (Книга 5). Безумие апокалипсиса (2023) [MP3, Александр Иванов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Противостояние Кибдиго и Джао выходит на новый уровень. Джао уже не считаются ни с какими потерями, а Кибдиго внезапно обретают нового, сильного союзника. Борьба продолжается и грозит быть разрушительной для обеих сторон.Жанр: ФантастикаПродолжительность: 06:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9EDD636B18D24F37C7C621F21D043429CF1D954
 ```
 
 https://mybot314.ru/tekegram_catalog/

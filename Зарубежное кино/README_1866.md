@@ -1,55 +1,3 @@
-###  Публикация: 1597032   (167136) от 13.12.2022
-
-Амстердам / Amsterdam (2022) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йорк, 1933 год. Ветеран Первой мировой Бёрт Берендсен держит небольшую клинику и помогает таким же покалеченным войной бедолагам, как и он сам. Однажды его с лучшим другом и сослуживцем, адвокатом Харольдом Вудменом, нанимает дочь их бывшего полководца, чтобы провести вскрытие внезапно почившего отца, который только что прибыл из Европы и собирался выступить (   Читать дальше...   )Производство: США, Канада / 20th Century Studios, Canterbury Classic, Forest Hill EntertainmentЖанр: Kомедия, детектив, историяРежиссер: Дэвид О. РасселлАктеры: Кристиан Бэйл, Джон Дэвид Вашингтон, Марго Робби, Рами Малек, Андреа Райзборо, Аня Тейлор-Джой, Крис Рок, Алессандро Нивола, Маттиас Шонартс, Майкл ШеннонПеревод: Дублированный (Jaskier), Многоголосый профессиональный (LostFilm, TVShows), Авторский (Д.Есарев)Субтитры: Русские (Full), Английские (Forced, Full, SDH)Продолжительность: 02:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83CE73482C07AA2E2A8EB0D5BC14B9D31F02BB84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345289   (167134) от 14.12.2019
-
-Тихая семья / Joyonghan gajok / The Quiet Family (1998) BDRip [H.265/1080p-LQ] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Пожилая пара с тремя взрослыми детьми и братом мужа приобрела большой дом рядом с горой в надежде на перспективный доход от туристов и строящуюся рядом дорогу. Время идёт, туристов нет. Но вот появляется первый клиент — платит, отправляется в свой номер, а на следующее утро хозяева находят его мёртвым. Бедолага покончил с собой, и чтобы не портить репутацию гостинице, (   Читать дальше...   )Производство: Корея Южная / Myung Film Company Ltd.Жанр: Комедия, КриминалРежиссер: Ким Джи-унАктеры: Пак Ин-хван, На Мун-хи, Сон Кан-хо, Чхве Мин-сик, Ко Хо-гён, Ли Юн-сон, Чхве Чхоль-хо, Ки Джу-бон, Чан Га-хён, Чон Джэ-ёнПеревод: Одноголосый любительский x2Субтитры: английские (хардсаб)Продолжительность: 01:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652572B726378FD08FBDC61BE036053B318208CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431165   (167131) от 13.12.2020
 
 Опасный элемент / Radioactive (2019) BDRip [H.264] [GER Transfer]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167131.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167123.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167120.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167118.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167095.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167080.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167064.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167059.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167051.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167039.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167020.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167014.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166978.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166955.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166938.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166924.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166912.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166879.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166854.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166848.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166797.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166787.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166768.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166760.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38E97D76C0182EE2E60D0E501F5F23C13B4CB674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431542   (166747) от 14.12.2020
+
+47 преданных ронинов (Тюсингура) / Chushingura / The Loyal 47 Ronin (1958) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история произошла в царствование 5-го сёгуна из династии Токугава. В 1701 году даймё Асано Наганори из города Ако был назначен для приёма двух императорских послов во дворец сёгуна. Перед церемонией Асано Наганори должен был получить наставления у Киры Ёсинака, чиновника, который являлся потомственным знатоком церемоний высшего ранга. Тот имел славу мздоимца (   Читать дальше...   )Производство: Япония, Daiei StudiosЖанр: ДрамаРежиссер: Кунио ВатанабэАктеры: Кадзуо Хасэгава, Синтаро Кацу, Кодзи Цурута, Раидзо Итикава, Матико Кё, Фудзико Ямамото, Митиё Когурэ, Тикагэ Авасима, Аяко Вакао, Осаму ТакидзаваПеревод: Многоголосый любительский (STEPonee)Субтитры: Русские (дед_сто_лет©), английскиеПродолжительность: 02:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7CBAACF1CDA836CF03A3E8E409A075827C67F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516172   (166713) от 10.12.2021
+
+Вкус жизни / Smagen af sult (2021) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166713.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жизни Мэгги и Карстена есть все: любимая работа, прекрасные дети и самый популярный ресторан. Не хватает только одного — заветной звёздочки Мишлен, самой престижной награды. В погоне за успехом пара забыла, что лучшие блюда в жизни делаются вместе… Вернётся ли к ним вкус жизни?Производство: Дания, Швеция / ZentropaЖанр: Драма, мелодрамаРежиссер: Кристоффер БоэАктеры: Катрин Розенталь, Николай Костер-Вальдау, Флора Аугуста, Чарли Густафссон, Аугуст Винкель, Николас Бро, Мэй-Бритт Матьезен, Даг Малмберг, Расмус Хаммерих, Лука Рейхардт Бен КокерПеревод: Дублированный (iTunes)Язык озвучки: Русский, датскийСубтитры: Русские (Forced, Full)Продолжительность: 01:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B3C7A36A45EFF6A36286EE91D84FF5568301437
 ```
 
 https://mybot314.ru/tekegram_catalog/

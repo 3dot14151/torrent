@@ -6,7 +6,7 @@ Dr.Web CureIt! 8.0.1 (16.01.2013) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996689.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ RonyaSoft Poster Designer 2.01.43 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996686.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Small LanGet 2.0.8.7 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996667.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Logon Screen 2.55 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996662.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ FrostWire 5.5.2 Stable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996660.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Who Is On My Wifi 2.1.3 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996637.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ SolveigMM Video Splitter 3.6.1301.16 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996633.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Code Composer Studio 5.2.1.00018 Code Size Limited (для TI Launchpad) [Eng] +
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996620.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ StartIsBack 1.3.2 RePack by CRD [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996618.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ RonyaSoft Poster Printer 3.01.28 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996604.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Active Partition Recovery Professional 7.1.2 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996603.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ NANO Антивирус 0.22.6.49175 Beta [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996595.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ SONY Sound Forge Pro 10.0e Build 507 Portable by punsh [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996578.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Windows Xp professional SP3 City v10 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996562.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Paragon Partition Manager 12 Professional 10.1.19.15721 + Boot Media Builder [Р
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996552.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ WinISO Standard 6.3.0.4765 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996469.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ JavaRa 2.1 Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996449.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ PerformanceTest 8.0 Build 1011 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996433.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ AutoRuns 11.40 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996415.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Wise Folder Hider 1.32.68 + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996396.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Autopano Giga 3.0.3 RePack by AlekseyPopovv [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996389.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ SIV (System Information Viewer) 4.35 Beta 2 Portable [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996384.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Advanced SystemCare Pro 6.1.9.215 Final DC 17.01.2013 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996352.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VueScan Pro 9.2.04 RePack by AlekseyPopovv [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996349.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ RedCrab Calculator 4.32.00 Portable [Multi\Eng.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996336.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Advanced URL Catalog 2.2.8.0 [Multi/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996330.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Winter Mood - Sweet Melancholic Piano Music for a Winter Snowy Day (2021) [
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032263.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ R.Strauss - Also sprach Zarathustra (2019) [FLAC|Lossless|image + .cue] <Classic
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032261.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ NeoBarock – J.S. Bach: Metamorphose (2019) Ambitus [FLAC 2.0|44.1/24|tracks|WE
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029937.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ Mao Fujita - Chopin: Impromptus and Scherzos (2020) Naxos [FLAC 2.0|96/24|tracks
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029929.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ Peter Donohoe - Mozart: Piano Sonatas. Volume 2 (2019) SOMM Recordings [FLAC 2.0
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029922.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Otavio de Assis Brasil - The Great Classical Music Played On Accordion (2020) Se
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029914.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Andrey Denisov - Plays Bach (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical Cros
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029521.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Royal Philharmonic & Roqueville Orchestras - Soft Rock Hits (2008) Box Set, 3 CD
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029497.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ J.S. Bach - Solo Cantatas for Bass BWV56, 82 & 158 (2019) [FLAC|Lossless|WEB-DL|
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027370.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Piano Classics - Relaxing Classical Music (2021) [FLAC|Lossless|WEB-DL|trac
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026707.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ A.Scarlatti - San Casimiro, re di Polonia (1999) 2010,  Acte Prealable [FLAC|Los
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026588.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ French composers conduct - Henri Tomasi, Florent Schmitt, Philippe Gaubert, Maur
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025624.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Great conductors of the 20th century - Evgeny Mravinsky (2003) 2CD [FLAC|Lossles
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025620.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Schubert - Symphony No. 8 , Mendelssohn - Symphony No. 4 (1987) [FLAC|Lossless|i
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025099.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Viacheslav Zubkov - Transcriptions & Improvizations (2018) [FLAC|Lossless|tracks
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024057.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Bruckner - Symphony No. 8 (Anton Nanut, Ljubljana Symphony Orchestra) (1989) [FL
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023474.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - Piano Seasons: Spring (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022972.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Mozart - Concerto for 3 Harpsichords & 2 Concerti after J.C.Bach (1985) [FLAC|Lo
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022247.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ VA - Best Of Green Hill Music: The Celtic Collection (2021) [FLAC|Lossless|WEB-D
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021754.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Johann Sebastian Bach - Tenor Arias: BWV 62, 104, 29, 198, 171, 114, 95, 108, 90
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021165.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Schubert - Mayrhofer-Lieder, Vol.2 - Christiane Iven, Burkhard Kehring (2003) [F
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019462.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Brahms - The Five Sonatas for Violin & Piano Vol. 2 (Ulf Wallin, Roland Pontinen
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018757.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Berlioz / Берлиоз - La Damnation de Faust /Осуждение Фауст�
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018589.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Antonio Salieri (Rousset, Les Talens Lyriques) - Armida (2021) 2xCD [FLAC|Lossle
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018248.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Vivaldi · Tartini · Boccherini - Cellokonzerte - Cello Concertos (1978) 1989, 
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017724.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Marais - Dialogues: Pieces en re mineur Livre I & Pieces en sol majeur Livre I (
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017559.jpg" />
 </div>
 
 

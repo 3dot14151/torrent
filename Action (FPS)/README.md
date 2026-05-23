@@ -7,7 +7,7 @@ Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069229.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Resident Evil 7 Biohazard (2017) [Ru/Multi] (1.0.0.7/dlc) Scene Rune [Gold Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068988.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Resident Evil 7 Biohazard (2017) [Ru/Multi] (1.0.0.7/dlc) Repack Let'sРlay [Gol
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068987.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.9) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068666.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mob Enforcer / Я, гангстер (2004) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068406.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ DeadHunt / DeadHunt: Охотник на Нежить (2005) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066809.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Far Cry 3 (2012) [Ru] (1.05/dlc) Repack seleZen [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066746.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064740.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack Wanterlude [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064393.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Turok 2: Seeds of Evil (1998) [Multi] (3.0.1336) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063781.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ DOOM Eternal (2020) [Ru/Multi] (20260319-122157/dlc) License GOG [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063545.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Echo Point Nova (2024) [Ru/Multi] (2.123) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062938.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BioShock Remastered (2016) [Ru] (Build 8552765) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062274.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BioShock (2007) [Ru] (Build 11242) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062257.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack HardwareMining
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061477.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061047.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ BioShock 2 (2010) [Ru] (Build 789537) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061021.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061020.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (20760608/dlc) Repack Wanterlude [Premium 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060939.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (1.0.0.1/dlc) Repack Let'sРlay [Premium E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060931.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060918.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Ready or Not (2023) [Ru/Multi] (112610/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060796.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Metro: Exodus / Метро: Исход (2021) [Ru/Multi] (3.0.8.39/dlc) Repack W
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060437.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.8.39/dlc) Repack W
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060436.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Thief (2014) [Ru/Multi] (1.7/dlc) Repack Wanterlude [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060433.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Metro 2033 Redux (2014) [Ru/Multi] (1.03) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060431.jpg" />
 </div>
 
 

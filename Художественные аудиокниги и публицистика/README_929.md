@@ -1,84 +1,3 @@
-###  Публикация: 1703988   (114611) от 02.03.2024
-
-Эдгар Аллан По | Овальный портрет (2006) [MP3, Юлия Мен]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Эдгар Аллан По (Edgar Allan Poe) США, (1809–1849).
-Писатель, поэт-романтик. Один из самых выдающихся американских писателей XIX века. Эдгар По обоснованно считается родоначальником детективного жанра. Рассказы По не только увлекательны, полны интриги, но и умны.Жанр: Зарубежная литература, классика, детективИздательство: Вира-МПродолжительность: 04:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD723ED0CD5FFAE41B62A1ED42B2545B62B6326C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704219   (114554) от 03.03.2024
-
-Ерофей Трофимов | Шатун (Книга 4). Шаг в неизвестность (2024). [MP3, Пожилой Ксеноморф]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Что не сделаешь для того, чтобы выжить в чужом мире! Даже женишься…
-Как оказалось, в этом мире мало просто прижиться и казаться своим. Тут еще нужно научиться соблюдать все мыслимые и немыслимые условности, и это невзирая на дела, службу и войну. Вот и приходится Руслану делать все, чтобы окончательно стать своим. И одним из таких условий становится женитьба. Но (   Читать дальше...   )Жанр: Боевая фантaстика, ПопаданцыИздательство: Аудиокнига (АСТ)Продолжительность: 09:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8816538E65AEA22D9D47A81ACE79163A39BE36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704098   (114522) от 03.03.2024
-
-Патрик Зюскинд | Парфюмер. История одного убийцы (2006) [MP3, Алексей Борзунов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Современная литература.
-Всемирную известность принес Зюскинду его первый роман «Парфюмер. История одного убийцы», опубликованный в 1985 году. Роман «Парфюмер» стал одним из самых популярных немецкоязычных романов XX столетия. Он переведен на десятки языков и в течение многих лет занимает прочное место в первой десятке бестселлеров на западном, да и на (   Читать дальше...   )Жанр: Зарубежная литература, драма, романИздательство: Издательский дом «Союз»Продолжительность: 10:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEF0EA0E3236A2C9F15A60F94AB368BDADD86DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704296   (114491) от 03.03.2024
 
 Гордон Диксон | Чёрный Чарли (2024) [MP3, Puffin Сafe]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114491.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114467.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114429.jpg" />
 </div>
 
 
@@ -166,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114425.jpg" />
 </div>
 
 
@@ -192,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114424.jpg" />
 </div>
 
 
@@ -220,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114422.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114371.jpg" />
 </div>
 
 
@@ -272,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114369.jpg" />
 </div>
 
 
@@ -298,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114367.jpg" />
 </div>
 
 
@@ -326,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114360.jpg" />
 </div>
 
 
@@ -352,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114348.jpg" />
 </div>
 
 
@@ -378,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114346.jpg" />
 </div>
 
 
@@ -404,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114323.jpg" />
 </div>
 
 
@@ -430,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114319.jpg" />
 </div>
 
 
@@ -456,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114317.jpg" />
 </div>
 
 
@@ -482,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114237.jpg" />
 </div>
 
 
@@ -509,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114236.jpg" />
 </div>
 
 
@@ -535,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114224.jpg" />
 </div>
 
 
@@ -561,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114206.jpg" />
 </div>
 
 
@@ -588,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114194.jpg" />
 </div>
 
 
@@ -614,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114182.jpg" />
 </div>
 
 
@@ -640,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114179.jpg" />
 </div>
 
 
@@ -668,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114173.jpg" />
 </div>
 
 
@@ -679,6 +598,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC1803771A77BE5BBE137F9F50AD8F6420468BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704604   (114159) от 05.03.2024
+
+Лена Обухова | Городские легенды 2. Медвежье озеро (Книга 2). Украденный ключ (2024) [MP3, Екатерина Бранд]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на все трагические события, сопровождавшие подготовку к открытию, гостиница на Медвежьем озере принимает первых гостей. Юля твердо намерена в скором времени наладить работу и заполнить все номера, а Влад больше увлечен поиском объяснений своему внезапному прозрению. Обоим приходится вновь начать собственное расследование, когда в гостинице одна за другой (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 09:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C20AFDEFD2E535366CAD27AD618B5548265A273A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704620   (114151) от 05.03.2024
+
+Влада Ольховская | Мастера профайлинга (Книга 1). Зимнее солнце (2024) [MP3, Юрий Мироненко]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обнаженная девушка обнаружена замерзшей насмерть на вершине старой сосны посреди заснеженного леса. Никаких указаний на убийство нет, и полиция считает произошедшее пусть и очень странным, но все же несчастным случаем. Однако в эту версию не верит судмедэксперт, который обращается за помощью к старому другу – легендарному профайлеру Николаю Форсову. Вот только сам (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 11:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02EA8399FC061AF69BB3A13A8988B631CCB6235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704534   (114147) от 05.03.2024
+
+Дмитрий Володихин | Дети Барса (2023) [MP3, Кирилл Петров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Место действия – некогда счастливая страна, раскинувшаяся меж двух великих рек, несущих свои воды через выжженную солнцем пустыню. Могущественное Царство, когда-то обласканное Богом, стоит на пороге гибели. Со всех сторон его осаждают беспощадные враги. Жизнь страны еще теплится лишь благодаря древнему мистическому завету.
+
+Власть над судьбой Царства попадает в руки (   Читать дальше...   )Жанр: Боевое фэнтезиИздательство: Нигде не КупишьПродолжительность: 13:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7527FDE6497B15C8B86D6598CA03A30B3C009FD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

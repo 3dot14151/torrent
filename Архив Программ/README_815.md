@@ -6,7 +6,7 @@ GoodSync Enterprise 9.2.3.3 [ML/Rus] & GoodSync Enterprise 9.2.2.9 Repack Ru + G
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_634795.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AVG Anti-Virus Free Edition 2012 Build 2195.5110 (x64-x86) [Multi/Русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_634783.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Themes Windows7  Barcelona 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_634780.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SUPERAntiSpyware Professional 6.0.1244 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634752.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Dism++ 10.1.1000.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634749.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Total Commander 9.0a Extended 17.6 Lite RePack (&Portable) by BurSoft [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634649.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Client for Google Translate Free + Portable 6.0.612 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_634620.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ NANO Антивирус 0.18.4.45637 Beta [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_634613.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ SpyHunter 4.26.12.4815 Portable by Alex [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634583.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Microsoft Office 2016 Standard 16.0.4549.1000 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634579.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Windows 10 Enterprise LTSB (x86/x64) Elgujakviso Edition (v.18.06.17) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634574.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Enigma Virtual Box 4.80 + Portable от punsh [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_634523.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Connectify Pro 3.5.1.24187 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_634511.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ iSendSMS 2.2.0.680 + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_634448.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.4.3 build 5056 beta + Portable +
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634330.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ USDownloader 1.3.5.9 Portable (12.07.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634235.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Slimjet 11.0.1.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634226.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Junkware Removal Tool 6.9.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634190.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Dism++ 10.1.6.3C Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634144.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ GPU-Z 1.9.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634141.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Dism++ 10.1.6.3B Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634139.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Daum PotPlayer 1.6.62377 Stable RePack by 7sh3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634138.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Daum PotPlayer 1.6.62377 DC 13.07.2016 Stable RePack by 7sh3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634129.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Slimjet 4.0.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634074.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VirtualBox 5.1.0 r108711 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634045.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Daum PotPlayer 1.6.62377 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634043.jpg" />
 </div>
 
 

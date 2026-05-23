@@ -6,7 +6,7 @@ DesktopOK 4.46 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288376.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Q-Dir 6.46.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288280.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Stellarium 0.90.0.8917 TEST [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288270.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CoolUtils Total Mail Converter 5.1.0.211 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288243.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kinza Browser 4.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288241.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ akaEasyMoney 1.0.6 Portable [Ru] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288130.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ CoolUtils Total Audio Converter 5.2.0.158 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288113.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ashampoo Photo Commander 15.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287981.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ qBittorrent 4.0.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287968.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Mozilla Thunderbird 52.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287954.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Avast Secure Browser 70.0.917.103 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287811.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Chromium 72.0.3615.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287801.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Panda Protection 18.0.0 DC 04.12.2016[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287789.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ FireAlpaca 2.2.2 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287715.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Aiseesoft Burnova 1.3.56 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287712.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ PrivaZer 3.0.81 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287697.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ PrivaZer 3.0.57 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287638.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ BlueStacks Tweaker 5.8.4 beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287629.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Process Lasso 9.4.0.28 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287569.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Beyond Compare Pro 4.3.2.24472 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287550.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ PrivaZer 3.0.81 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287548.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ KeePassXC 2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287545.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Opera 49.0.2725.47 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287411.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ BlueStacks App Player 4.32.57.2556 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287399.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ AV Uninstall Tools Pack 2018.11 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287390.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ WinNTSetup 3.8.7 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287385.jpg" />
 </div>
 
 

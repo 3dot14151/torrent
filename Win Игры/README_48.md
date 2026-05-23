@@ -6,7 +6,7 @@ Routine (2025) [Ru/Multi] (1.7.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047501.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sacred 2 Remaster (2025) [Ru/En] (CL16183 Build 20876016) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047500.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047499.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (Build 20964708) Repack R.G. Freedom
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047490.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (47139 build 20790748/d
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047489.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Art of Reflection (2025) [Ru/Multi] (2465) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047481.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Simon the Sorcerer Origins (2025) [Ru/Multi] (1.0.2.11062025.41663/dlc) Repack L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047467.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.04) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047437.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mount & Blade II: Bannerlord (2020) [Ru/Multi] (1.3.4.102350/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047429.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Cricket 26 - The Official Game of the Ashes (2025) [En] (1.0.1256) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047412.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Cricket 24 (2023) [En] (0.2.5521) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047361.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Routine (2025) [Ru/Multi] (Build 21021859) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047358.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Christmas Wonderland 16 (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047356.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ AFL 23 (2023) [En] (1.0.6618) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047350.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (1.01) Repack dixen18
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047349.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ FEROCIOUS (2025) [Ru/Multi] (Build 21077857) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047343.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Midnight Scenes: A Safe Place (2024) [En] (1.2a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047325.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Midnight Scenes: From the Woods (2023) [En] (1.1a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047324.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Uninvited / Unwelcome (2022) [En] (1.14a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047323.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Midnight Scenes: The Nanny (2021) [En] (1.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047322.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Midnight Scenes Episode 2 (2020) [Ru/Multi] (1.19a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047321.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ The Librarian (2020) [Ru/Multi] (1.03a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047320.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Monster Hunter Stories 2: Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047319.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ HELL OF FEAR Mind Breach (2025) [Ru/Multi] (165.5.1.f) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047317.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047305.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Lost Ember: Rekindled Edition (2025) [Ru/Multi] (1.0.5/dlc) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047304.jpg" />
 </div>
 
 

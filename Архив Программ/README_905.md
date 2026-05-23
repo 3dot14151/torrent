@@ -6,7 +6,7 @@ IsMyLcdOK 2.66 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589949.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PDF24 Creator 7.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589944.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DesktopOK 4.15 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589943.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Q-Dir 6.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589939.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Daum PotPlayer 1.6.55084 Stable RePack by 7sh3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589938.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589927.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Internet Download Manager 6.23 Build 15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589916.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Nitro Pro 10.5.3.21 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589906.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Run-Command 2.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589904.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ DU Meter 7.08 Build 4749 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589900.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Mozilla Firefox 40.0 beta 3 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589897.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Adobe components: Flash Player 18.0.0.203 + AIR 18.0.0.180 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589896.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ AusLogics BoostSpeed 8.0.1.0 DC 07.07.2015 RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589894.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ MaxLim Alarm Clock 2.4.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589890.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Ashampoo WinOptimizer 12.00.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589883.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Daum PotPlayer 1.6.55124 Stable RePack by 7sh3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589868.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Display Driver Uninstaller 15.3.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589865.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Windows 7 Manager 5.1.4 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589856.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ YoWindow Unlimited Edition 4 Build 33 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589846.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The KMPlayer 3.9.1.138 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589837.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VirtualBox 5.0.0 r101573 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589834.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Chief Architect Premier X7 17.3.1.1 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589829.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The KMPlayer 3.9.1.138 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589817.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Adobe Photoshop CC 2015 (20150529.r.88) Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589812.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ JetBrains PhpStorm 9.0 Build #PS-141.1912 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589808.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Adobe Illustrator CC 2015.0.1 19.0.1 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589798.jpg" />
 </div>
 
 

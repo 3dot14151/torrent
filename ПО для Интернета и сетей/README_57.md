@@ -6,7 +6,7 @@ MassTube Ultra 21.0.3.167 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_321.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MassTube Ultra 21.0.3.167 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_307.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ YT Downloader 9.17.7 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104.jpg" />
 </div>
 
 

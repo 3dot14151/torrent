@@ -1,56 +1,3 @@
-###  Публикация: 1278285   (772831) от 24.01.2019
-
-Прощай, Кристофер Робин / Goodbye Christopher Robin (2017) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Картина расскажет о взаимоотношениях между А. А. Милном и его сыном Кристофером Робином, чьи игрушки вдохновили писателя на создание волшебного мира повестей о Винни-Пухе.Производство: Великобритания / Fox Searchlight Pictures, TSG Entertainment, DJ Films, Gasworks MediaЖанр: Драма, биографияРежиссер: Саймон КёртисАктеры: Донал Глисон, Марго Робби, Келли Макдоналд, Вики Пеппердин, Уилл Тилстон, Алекс Лоутер, Стивен Кэмпбелл Мур, Ричард МакКейб, Джеральдин Сомервилль, Мосси СмитПеревод: Профессиональный (многоголосый закадровый) (лицензия)Субтитры: Русские, английские, французские, испанские, голландские, немецкие, арабские, эстонские, латышские, литовские, украинскиеПродолжительность: 01:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBCC1932BC828E12F0F9BD2803E25AAF755B0B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276322   (772826) от 24.01.2019
-
-Анаконда / Anaconda (1997) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Команда исследователей отправляется на поиски затерянных индейских племен в самое сердце таинственных джунглей Амазонки. Наслаждаясь пейзажами великой реки, они не подозревают, что их проводник — сумасшедший охотник, помешавшийся на идее поймать гигантскую змею.
-Никто не верит его рассказам о мистическом хищнике, пока не появляется первая жертва, и их путешествие (   Читать дальше...   )Производство: США, Бразилия, Перу / Columbia Pictures Corporation, Iguana ProduccionesЖанр: Приключения, Боевик, Триллер, УжасыРежиссер: Луис ЛлосаАктеры: Дженнифер Лопез, Айс Кьюб, Джон Войт, Эрик Столц, Джонатан Хайд, Оуэн Уилсон, Кари Вурер, Винсент Кастелланос, Дэнни Трехо, Фрэнк УэлкерПеревод: Дублированный, профессиональный (многоголосый закадровый), авторский (одноголосый)Субтитры: русские, английскиеПродолжительность: 01:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434336C6317541FDCDDBCF1884CAFC44B3F3B94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278293   (772818) от 24.01.2019
 
 Прощай, Кристофер Робин / Goodbye Christopher Robin (2017) DVD5 [Custom]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772818.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772805.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772789.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772780.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772774.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772769.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772739.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772730.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772652.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772648.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772644.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772630.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772616.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772530.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772504.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772446.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772358.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772356.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772300.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772285.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772268.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772237.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772227.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772220.jpg" />
 </div>
 
 
@@ -670,6 +617,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EE8C6A213F98BE2C0D7F5AFD7C35CDD9E3D9A96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 660598   (772062) от 25.05.2013
+
+Бенни и Джун / Benny & Joon (1993) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бенни и Джун — брат с сестрой. Бенни — приятный молодой человек, он работает механиком. Джун же больна шизофренией, и за ней требуется постоянный присмотр, потому что она всегда хочет что-нибудь поджечь, но Бен обожает сестренку и даже и не помышляет о расставании с ней, хотя постоянно выслушивает сотни жалоб.
+Джун знакомится с Сэмом. Сэм обаятелен, но немножко странноват, (   Читать дальше...   )Производство: США /  Metro-Goldwyn-Mayer (MGM), Roth-Arnold ProductionsЖанр: Драма, Мелодрама, КомедияРежиссер: Джеримайя С. ЧечикАктеры: Джонни Депп, Мэри Стюарт Мастерсон, Эйдан Куинн, Джулианна Мур, Оливер Платт, Си Си Эйч Паундер, Дэн Хедайя, Джо Грифази, Уильям Х. Мэйси, Лиан Александра Кёртис и др.Перевод: Двуголосый закадровыйПродолжительность: 01:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D188BF1BB2B6D46E7DA7D67C7D6FF1A17D52CECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 885419   (771702) от 07.04.2015
+
+12 лет рабства / 12 Years a Slave (2013) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соломон Нортап был женатым и образованным мужчиной, который жил и работал в штате Нью-Йорк, когда два человека однажды предложили ему привлекательную работу в Вашингтоне. По прибытии он был похищен, стал рабом и влачил жалкую жизнь, переходя от одного хозяина к другому.Производство: США, Великобритания | New Regency Pictures, Plan B Entertainment, Film4, Regency Enterprises, River Road EntertainmentЖанр: Драма, Биография, ИсторияРежиссер: Стив МакКуинАктеры: Чиветель Эджиофор, Майкл Фассбендер, Лупита Нионго, Сара Полсон, Бенедикт Камбербэтч, Брэд Питт, Пол Дано, Пол Джаматти, Элфри Вудард, Эдеперо Одуйе, Куавенжане Уоллис, Дж.Д. Эвермор, Гаррет Диллахант, Роберт Мартин СтейнбергПеревод: Профессиональный дублированный, авторскийЯзык субтитров: Русский, английскийПродолжительность: 02:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1BE9EB0380B24108CFB01771F076FD1D32044EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

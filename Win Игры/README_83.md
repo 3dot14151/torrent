@@ -1,29 +1,3 @@
-###  Публикация: 1092245   (939559) от 11.01.2017
-
-Horror Hospital (2016) [En/Tr] (1.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Готовы ли вы к лицу со своими встретиться со своими страхами? Страхом, ужасом и паранормальной активностью наполнена ужасная сущность психиатрической больницы. Между тем эта игра является не только игрой ужасов, но головоломкой, основанной на интеллекте. Прогнозируемая продолжительность игры составляет около 18 часов геймплея.Тип издания: RepackРазработчик: Kırmızı Nokta ProductionЖанр: Adventure (Horror), 1st Person, IndieЯзык субтитров: Английский, ТурецкийЯзык интерфейса: Английский, Турецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A584212CA063709F6BA34C6DEC826FEF60C4CBCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984150   (939554) от 08.02.2016
 
 Fire (2015) [Ru/Multi] (1.0.6780S) SteamRip Let'sРlay
@@ -32,7 +6,7 @@ Fire (2015) [Ru/Multi] (1.0.6780S) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939554.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Blade & Bones (2016) [Ru/Multi] (1.3) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939498.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Tropico 5 (2014) [Ru/Multi] (1.10/dlc) Repack R.G. Catalyst [Complete Collection
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939440.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Dollar Dash [En/Multi5] (L) 2013 | FANiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939413.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Worms Revolution / Worms: Революция + 4 DLC [Ru/En/Multi7] (Steam-Rip/0
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939349.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Spirits of Mystery 12: Whisper of the Past / Тайны духов 12: Шёпо�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939246.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Wanderlust 3: Shadow of the Monolith / Жажда странствий 3: Тен
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939183.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Heaven Dust (2020) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939081.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Westward Kingdoms (P) [En] 2010
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938889.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Redemption Cemetery 8: At Death's Door / Кладбище искупления 8
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938300.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ Incredible Dracula III: Family Secret / Невероятный Дракула II
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938196.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Lucius - Dilogy / Lucius - Дилогия (2012-2015) [Ru/En] (1.02.3866/1.0.160
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938136.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ Darkest Dungeon (2016) [Ru/Multi] (16708) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938098.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ Cities XL Platinum [En/Multi7] (L) 2013 | PROPHET
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937865.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ Black Mirror 2 / Черное зеркало 2 (2010) [Ru] (1.01) RePack -Ultra-
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937715.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ Your Toy (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937557.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ Void Destroyer 2 (2020) [En] (1.0/upd3) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937545.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ RoboMatch (2017) [Ru/Multi] (GreenLight Demo) License
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936959.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ Dr. Langeskov, The Tiger, and The Terribly Cursed Emerald: A Whirlwind Heist (20
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936951.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ Don't Chat With Strangers (2017) [En] (1.0) Repack MaggotFreddy
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936875.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ Poly Bridge (2015) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936732.jpg" />
 </div>
 
 
@@ -586,7 +560,7 @@ Planar Conquest (2016) [Ru/Multi] (1.3.1f) SteamRip Let'sPlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936701.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ Meridian: New World (2014) [Ru/Multi] (1.0.4.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936596.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ Stronghold: Crusader II (2014) [Ru/Multi] (1.0.22714) License GOG [Special Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936576.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ Heroes Over Europe [Ru/En] (RePack/1.02) 2010 l Adil
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936228.jpg" />
 </div>
 
 
@@ -677,6 +651,32 @@ Heroes Over Europe [Ru/En] (RePack/1.02) 2010 l Adil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD7F35D346BAA283F0EF6AB4214F3D8FFE73E0BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628748   (936179) от 10.03.2013
+
+Impire [Ru/En] (Repack/1.0.1.1) 2013 | R.G. Catalyst
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Impire – стратегия, в которой вы выступаете правителем живущих в подземном мире импов. Выполняя всяческие задания, необходимо помочь Bjal-Abaddon'у обрести былое могущество повелителя подземного царства. Воевать придется против постоянно ищущих приключений героев, хотя при желании всегда можно предпринять вылазку на поверхность, совершив рейд на какое-то из поселений людей. (   Читать дальше...   )Тип издания: RepackЖанр: StrategyЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:164B065E3743ED6762B44D81E139FE54BBD1F710
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Comodo Dragon 96.0.4664.110 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146845.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NewWeather 2.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146839.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Reload #6 (2012) [MP3|320 кб/с]<House, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146837.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Vocal Trance 2016 New York (2016) [MP3|320 Kbps] <Uplifting Trance, Vocal T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146836.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Multitouch 1.21.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146835.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146832.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Hetman Photo Recovery 4.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146831.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Smooze 1.9.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146829.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Werner Laemmerhirt - SaitenZauber (1999) [MP3|320 кб/с]<Folk, Blues>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146827.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146825.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Telegram Desktop 1.5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146822.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Kryder - Kryteria Radio 270 (2020 Label Showcase) (2020-12-23) [MP3|192 Kbps] <H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146819.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ John Aise - House Energy 11 (2012) [MP3|320 кб/с]<Club \ Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146818.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Rencontre Nocturne - Recap 2020 (2020) [MP3|320 Kbps] <Electro House, Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146811.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Fast Video Cutter Joiner 3.6.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146809.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146805.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ JRiver Media Center 31.0.84 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146800.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Andrew Lu - Club Universe Radioshow 052 (13.12.2012) [MP3|320 кб/с]<Trance, P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146791.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ TechSmith Camtasia 23.3.3 build 49804 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146789.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Ashampoo Burning Studio 23.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146788.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Sexy Girls Pack Wallpapers (14.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146784.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Wondershare UniConverter 15.0.6.19 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146770.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Movavi Screen Recorder 22.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146769.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ ProfiMail Go Full 4.19.24 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146768.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Aiseesoft Video Converter Ultimate 9.0.16 Portable by poni-koni [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146762.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Gilrs Wallpaper (14.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146746.jpg" />
 </div>
 
 

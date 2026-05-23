@@ -6,7 +6,7 @@ FastStone Capture 8.3 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410804.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ REVision FX Plug-ins Pack for AE СС 2015 RePack by PooShock update 4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410801.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Infix PDF Editor Pro 7.3.1 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410724.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Celemony - Melodyne Studio 4 4.2.0.020 STANDALONE, VST, VST3, RTAS, AAX (x86/x64
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410723.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Tor Browser Bundle 8.0.2 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410705.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ EaseUS Data Recovery Wizard 9.5.0 Technician Edition Portable by PortableWares [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410701.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ DIGISPOT II Джинн Лайт 2.16.2.10.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410698.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ O&O Defrag Professional 19.0 Build 99 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410688.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Vista Mizer 3.1.0.0 [RuS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_410675.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Ncesoft Flip Book Maker v2.5.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_410671.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Adguard Premium 6.3.1399.4073 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410658.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ SoftMaker Office Professional 2018 rev 938.1002 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410656.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ ArchiCAD 19 Build 4006 + Add-Ons, Cadimage, ArchiSuite, Multiplicator [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410626.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ CoolUtils Total Audio Converter 5.2.0.154 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410604.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ HyperSnap 8.13.05 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410601.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ WinRAR 5.61 Final (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410585.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Mp3tag 2.84b + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410433.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Take Command 21.01.52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410429.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Stellarium 0.16.1 + classic [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410415.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Bootstrap Studio 6.1.2 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410398.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ IObit Smart Defrag Pro 8.1.0.159 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410396.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Wise Disk Cleaner 7.66 Build 522 + Portable [Multi(RuS)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_410355.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Waterfox 55.0.2 + Portable by PortableApps [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410347.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ XnView 2.42 | Minimal | Standard | Extended + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410338.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ FanControl V125 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410328.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ IObit Uninstaller Pro 12.0.0.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410314.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Total Uninstall Ultimate 6.14.0 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657362.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ESET NOD32 4.x/3.x (x32 x64) Offline Update 11711 (май 2015) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657355.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Paragon Hard Disk Manager 15 Professional 10.1.25.348 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657347.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Total Uninstall Ultimate 6.14.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657342.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Wise Registry Cleaner 7.32 Build 470 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657230.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Wise Disk Cleaner 7.4.2 Build 495 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657226.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Genuine Registry Doctor 2.5.5.6 + Portable by Invictus [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657220.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ AIMP 5.02 Build 2368 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657216.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Balabolka 2.15.0.814 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657207.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Glary Utilities Pro 5.184.0.213 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657201.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Tablacus Explorer 22.3.24 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657150.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Reg Organizer 8.91 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657145.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ ORPALIS PaperScan Professional 4.0.4 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657143.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ PDFCreator 4.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657140.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ PixPlant 5.0.40 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657063.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ CareUEyes 2.1.11.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657058.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Ventoy 1.0.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657048.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Zemana AntiLogger 1.9.3.177 [Multil/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657041.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Junkware Removal Tool 6.8.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656978.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ MediaInfo 0.7.74 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656973.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Tungsten 2.04 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656878.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Aiseesoft Screen Recorder 2.0.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656865.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Reg Organizer 8.15 Final RePack (& Portable) by elchupaсabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656862.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Q-Dir 7.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656856.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VideoCacheView 2.86 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656776.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ WinUtilities Professional Edition 14.66 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656771.jpg" />
 </div>
 
 

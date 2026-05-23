@@ -6,7 +6,7 @@ IObit Uninstaller Pro 9.4.0.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894944.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Clipdiary 5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894934.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Far Manager 3.0 Build 5577 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894880.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PotPlayer 200317(1.7.21149) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894860.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PotPlayer 1.7.21149 DC 24.03.2020 Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894626.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Uninstall Tool 3.5.2 Build 5555 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894557.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ HelpSmith 6.4.17.127 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894547.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ PDF-XChange Viewer Pro 2.5.320.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894529.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ ShareX 11.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894507.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Volume2 1.1.5.395 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894318.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ UltraEdit 16.00.0.1032 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_894243.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Uninstall Tool 3.5.2 Build 5555 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894210.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894083.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Avast Internet Security 17.1.2286 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894018.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ ESET Endpoint Security 5.0.2265.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893943.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Total Commander 9.0a Freemen 17.1 Lite Repack (& Portable) by notn [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893877.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Rufus 2.12 (Build 1054) Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893849.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Avast Free Antivirus 17.1.2286 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893842.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ FontExpert 2016 14.0 Release 1 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893837.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Brave Browser 1.29.77 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893836.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ ESET Smart Security 10.0.390.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893823.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ MInstAll Release By StartSoft 01-2017 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893814.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ PC Cleaner Pro 8.1.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893801.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Kaspersky Anti-Virus 2018 18.0.0.405 (Technical Release) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893776.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Free Download Manager 6.15.2.4167 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893774.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Sumatra PDF 3.4.14111 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893756.jpg" />
 </div>
 
 

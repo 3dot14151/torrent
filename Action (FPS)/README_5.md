@@ -6,7 +6,7 @@ Hard Reset Redux (2016) [Ru/En] (1.1.3.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921928.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DeadTruth: The Dark Path Ahead (2017) [En] (1.0) License PLAZA [Episode 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921794.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Quadrant (2015-2017) [Ru/Multi] (1.53) License POSTMORTEM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920156.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Area 51 Dilogy / Зона 51 Дилогия (2005-2007) [Ru/En] (1.1/1.2) Repack
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920124.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Arma 3 (2013) [Ru/Multi] (1.56.134627/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919893.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Prospekt (2016) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919870.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Venom. Codename: Outbreak (2001) [Ru/Multi] (1.0.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918548.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Pulang: Insanity (2020) [Multi] (1.0.0.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916809.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Medal Of Honor: Airborne (2007) [Ru] (1.3) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916679.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Call of Juarez: Gunslinger (2013) [Ru/En] (1.0.5/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916333.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ SWAT 3: Tactical (1999) [En] (2.1) License GOG [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915125.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ SWAT 4 / SWAT 4: The Stetchkov Syndicate (2005) [En] (1.1) License GOG [Gold Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914997.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.1.25.5165/dlc) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913452.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ RICO (2019) [Multi] (1.0.5/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913324.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Call of Juarez: Bound in Blood (2009) [Ru] (1.1.0.0/tr) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910964.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Last Floor (2020) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909966.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Butterfly Sign (2016) [Ru/Multi] (1.1.5) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909737.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Painkiller / Painkiller: Крещеный Кровью (2005) [Ru/En] (1.64/dlc)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905972.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Marine Heavy Gunner: Vietnam / Морпех против терроризма 3:
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904415.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Rise of the Triad (2013) [En] (1.0) License HI2U [DOOM Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904341.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Town of Light (2016) [Ru/Multi] (1.0) Repack bosenok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903626.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Quake II: Quad Damage (1997) [En] (3.20/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902560.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Quake III: Gold (2001) [En] (1.32/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902558.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Quake: The Offering (1998) [En] (1.09/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902551.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/dlc) Repack YelloSOFT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900753.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Chasing Dead (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896766.jpg" />
 </div>
 
 

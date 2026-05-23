@@ -6,7 +6,7 @@ Screenpresso Pro 2.2.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059227.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ System software for Windows 3.6.9 by CUTA [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059192.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fan Control V261 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058978.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wise Auto Shutdown 2.1.1.112 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058733.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ WakeMeOnLan 1.96 Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058730.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PIDKey Lite 1.64.4 b54 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058507.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ System software for Windows 3.6.8 by CUTA [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058413.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ StartAllBack 3.9.21.5352 (3.6.16.4729) StartIsBack 2.9.21 (2.9.1) / 1.7.6 / 2.1.
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058179.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Alt SwitchER 24.8 Portable [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058168.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ TreeSize Professional 9.7.1.2201 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057636.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ UltraSearch Professional 4.9.0.1201 + Free Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057635.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Fan Control V260 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057519.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Rufus 4.13 (Build 2316) + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057297.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Firefox Browser ESR 140.7.1 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1057277.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ TechSmith Camtasia 26.0.3  Build 15135 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057190.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ TechSmith Snagit 26.0.1  build 9849  (x64) RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057189.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Air Explorer Pro 5.9.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057107.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ TechSmith Camtasia 26.0.3 Build 1535 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056898.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ TechSmith SnagIt 2026.0.1 Build 9849 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056449.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ KMS Tools Portable by Ratiborus 11.02.2026 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1056403.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Fast Screen Recorder 2.1.0.18 Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056399.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Defender Remover Portable 13.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056190.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Icecream Screen Recorder Pro 7.45 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055720.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ MediaInfo 26.10 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055568.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ O&O ShutUp10++ 2.2.1024 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055523.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Office Installer & Office Installer+ 1.35 by Ratiborus [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055514.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Valhalla Hills v.1.05.17 (2015) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639144.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Yooka-Laylee (2017) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638721.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Zen Bound 2 v. 2 .2.6 (2015) [En] [OS X Native game]
 >>Casual Games, Other для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637144.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Dead Synchronicity: Tomorrow Comes Today v.1.0.6 (2015) [Multi/Ru] [OS X Native 
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635805.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Grim Fandango Remastered v1.2.2 (2015) [Multi] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635687.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635409.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Planescape: Torment: Enhanced Edition v.3.1.4.0 (2017) [Multi/Ru] [macOS Native 
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633534.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Don't Starve: Reign of Giants v. 1.0 (115739) (2014) [Ru] [OS X Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633212.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Sphinx and the Cursed Mummy v2018.05.23 (2018) [Multi] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629962.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Wargame. European Escalation [WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_628454.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Ship Simulator: Maritime Search and Rescue v. 1.03.03 (2015) [Multi] [OS X Nativ
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627164.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Men of War: Assault Squad [WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_626270.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Urban Trial Playground (2019) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625704.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Where The Water Tastes Like Wine v1.4.21207 (2018) [Multi/Ru] [macOS Native game
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624357.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623409.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Pathway (2019) [Multi] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622186.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Skulls of the Shogun: Bone-A-Fide Edition (2013) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622179.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Serious Sam: The First Encounter v1.05 (2001) [Ru] [macOS Cider]
 >>Тестовые macOS Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622050.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Flyhunter Origins v. 1.0 (2014) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621658.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Aaru's Awakening v. 1.0 (2015) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621653.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Monochroma v. 1.0 (2014) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621556.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ The Witcher: Enhanced Edition v. 2.2.0.7 (2007) [Multi/Ru] [OS X Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621272.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ The Mooseman / Человеколось (2017) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618594.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Slayaway Camp (2016) [Multi/Ru] [macOS Native game]
 >>Casual Games, Other для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618589.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ The Witcher 2: Assassins Of Kings 1.0.0.2 (GOG) (2012) [Multi/Ru] [OS X Native g
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617346.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Defender's Quest: Valley of the Forgotten v2.2.6 (DX edition) (2018) [Multi/Ru] 
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615395.jpg" />
 </div>
 
 

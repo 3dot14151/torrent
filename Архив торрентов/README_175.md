@@ -6,7 +6,7 @@ Mozilla FireFox 88.0.1.7794 Portable by JolyAnderson [Multi/Ru] (авторск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016545.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Steinberg - WaveLab Elements 10.0.70 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016538.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Internet Download Manager 6.38 Build 25 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016533.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VLC Media Player 3.0.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016527.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Adobe Audition 2021 14.2.0.34 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016503.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Tr
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016502.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Adobe After Effects 2021 18.2.0.37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016497.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Adobe Acrobat Pro DC 2021.001.20155 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016478.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Yate 6.4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016471.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Recordia 1.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016468.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ ImageRanger Pro Edition 1.8.1.1742 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016464.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ CaptureGRID 4 v4.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016457.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Backgrounds 9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016455.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ AweCleaner Professional 4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016453.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ djay - DJ App & AI Mixer 3.1.1  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016449.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ FBackup 9.0.271 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016443.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ FireAlpaca 2.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016432.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Opera 76.0.4017.123 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016429.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ iThoughtsX 5.28 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016426.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ K-Lite Codec Pack Update 16.1.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016422.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Vivaldi 3.8.2259.42 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016418.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Brave Browser 1.24.84 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016415.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ LibreOffice 7.1.3.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016412.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Exif Pilot 6.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016392.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Baccano! | Шумиха! [2007, TV, 13 эп. + 3 SP] BDRip 1080p raw+rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016390.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Infix PDF Editor Pro 7.6.2 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016389.jpg" />
 </div>
 
 

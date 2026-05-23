@@ -6,7 +6,7 @@ PrivaZer Pro 4.0.110 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5176.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Macrorit Partition Expert 8.6.0 Pro / Technician / Server / Unlimited Edition Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5144.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AnyDesk 9.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5081.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Topaz Video AI 7.1.3 (30.08.2025) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5062.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SoftMaker Office Professional 2024 rev. S1226.0817 RePack (& portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5038.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Firefox Browser 142.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5019.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Flyoobe 1.6.246 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5014.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ IObit Uninstaller Pro 15.0.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4982.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Firefox Browser 142.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4963.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4961.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 27.08.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4890.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ MyLanViewer 6.5.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4871.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Bandicam 8.2.1.2530 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4868.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ FL Studio Producer Edition 25.1.4.4951 - All Plugins Edition + Addons (x64) RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4865.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Volume2 1.1.9.469 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4858.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Telegram Desktop 6.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4849.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ YT Downloader 9.16.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4845.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ v2rayN 7.14.5 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4711.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Advanced Renamer Commercial 4.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4707.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ PotPlayer 250625 (1.7.22570) RePack (& Portable) by elchupacabra (02.09.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4694.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Telegram Desktop 6.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4679.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ AIMP 5.40.2693 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4587.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.2 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4583.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Opera One 121.0.5600.50 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4581.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Google Chrome 140.0.7339.81 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4572.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Chromium 140.0.7339.81 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4561.jpg" />
 </div>
 
 

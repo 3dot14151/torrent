@@ -6,7 +6,7 @@ MediaHuman Youtube Downloader 3.9.9.13 (0903) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697642.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Affinity Photo Beta 1.7.0 (112) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697636.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ PDF Reader Pro Edition 2.7.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697586.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Telegram Desktop 2.3.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697585.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Wondershare UniConverter 12.0.3.5 Repack by elchupacabra 64-bit [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697578.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Allegorithmic Substance Painter 2020.2.1  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697575.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Galactic Civilizations III (2015) [En] (1.8/dlc) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697566.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697563.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ HitmanPro 3.7.14 Build 265 RePack by norton46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697561.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Kingdom Wars 2: Battles (2016) [Ru/Multi] (1.6/dlc) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697554.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Beyond Compare Pro 4.1.6 build 21095 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697551.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697534.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ GeoGebra 6.0.691.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697518.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ FireAlpaca 2.7.6 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697517.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ BitComet 1.86 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697511.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ SiteSucker 2.11.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697506.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Avast Secure Browser 72.0.1174.122 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697500.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Wise Registry Cleaner Pro 10.1.6.677 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697499.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Garden Planner 3.6.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697498.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Topaz Video Enhance AI 1.5.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697449.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ UltraISO Premium Edition 9.7.5.3716 [DC 16.08.2020] RePack (& Portable) by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697433.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Slimjet 3.1.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697416.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ TG Pro (Temperature Gauge Pro) 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697414.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Ball Adventures 1.0.12 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697412.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ PrivaZer 2.31.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697408.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ SMPlayer 22.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697401.jpg" />
 </div>
 
 

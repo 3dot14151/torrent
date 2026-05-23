@@ -6,7 +6,7 @@ Microsoft Visual Studio 2019 Professional 16.5.0 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872443.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Visual Studio 2019 Enterprise 16.5.0 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872438.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ABViewer Enterprise 14.1.0.61 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872436.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ACDSee Ultimate 10.3 Build 894 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872415.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Avira Phantom VPN Pro 2.5.1.27035 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872404.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ User Time Control Center 4.9.4.6 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872385.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Visual Studio Community/Professional/Enterprise 2015 14.0.25431.01 Upd
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872383.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ ACDSee Pro 10.3 Build 675 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872380.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ R-Studio 8.13 Build 176093 Network Edition RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872345.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Acme CAD Converter 2019 8.9.8.1510 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872342.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Cockos REAPER 6.08 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872341.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Bat! Professional 9.1.12 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872281.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Bat! Professional 9.1.12 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872271.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Tor Browser Bundle 9.0.9 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872220.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VLC Media Player 3.0.9.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872209.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Adobe Illustrator 2020 24.1.2.402 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872203.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ V-Ray Next 4.30.02 for 3ds Max 2016-2021 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872170.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ The Bat! Voyager 9.1.10.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872168.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ AnyDesk 5.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872166.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.25.5400 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872152.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ QQ Browser 9.3.6872.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872096.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ KakaoTalk 2.1.2.1124 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872089.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Sogou Explorer 6.1.5.20644 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872088.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Qiyu Swordfish Browser 1.0.7.0 [En/Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872038.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Maxthon Cloud Browser 4.9.2.400 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871975.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ AnyMP4 Blu-ray Ripper 6.3.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871968.jpg" />
 </div>
 
 

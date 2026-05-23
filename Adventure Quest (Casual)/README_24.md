@@ -6,7 +6,7 @@ Mystic Diary 3: Missing Pages (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658154.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ominous Objects 4: Lumina Camera / Зловещие вещи 4: Камера 'Lu
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658026.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ominous Objects 5: The Cursed Guards / Зловещие вещи 5: Прокля
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658024.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mary Knots: Garden Wedding (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657767.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Fairy Kingdom 2 / Сказочное Королевство 2 (2017) [Ru] (1.0) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657699.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Cadenza 2 : The Kiss of Death / Каденция 2: Поцелуй смерти 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657563.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ominous Objects 5: The Cursed Guards / Зловещие вещи 5: Прокля
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656675.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sable Maze 4: Twelve Fears / Темный лабиринт 4: Двенадцат
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656302.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Rite of Passage 8: Hackamore Bluff / Обряд посвящения 8: Хака
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655642.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Bridge to Another World 3: Alice in Shadowland / Мост в другой мир
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655613.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Final Cut 5: Fame Fatale (2015) [En] Unofficial [Collector’s Edition / Кол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655458.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Rite of Passage 5: Heart of the Storm / Обряд Посвящения 5: Се�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654755.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Off the Record 4: Liberty Stone (2015) [En] Unofficial [Collector’s Edition / 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653438.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Contract with the Devil (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653323.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Haunted Halls: Nightmare Dwellers / Дом с привидениями: Обит
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653091.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ I Know a Tale / Я знаю интересную историю (2015) [Ru] Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652877.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Haunted Legends 12: Monstrous Alchemy (2017) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652500.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Immortal Love 4: Black Lotus (2017) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652492.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Twin Mind 3: Ghost Hunter (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652439.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Whispered Secrets 13: Tying the Knot / Нашептанные секреты 13:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652436.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Punished Talents 2: Stolen Awards / Наказанные талантом 2: У�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652315.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Scarlett Mysteries. Cursed Child / Алые Тайны. Проклятое ди�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652313.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Bridge To Another World 4: Escape From Oz / Мост в Другой мир 4: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652141.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Night In The Opera (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651728.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Fierce Tales: The Dog's Heart Collector's Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651314.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Danse Macabre 7. Florentine Elegy / Танец смерти. Флорентий�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650197.jpg" />
 </div>
 
 

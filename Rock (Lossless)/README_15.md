@@ -6,7 +6,7 @@ Albert Bouchard (ex-Blue Oyster Cult) - Re Imaginos (2020) [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018109.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Vienna Circle - Secrets Of The Rising Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018104.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Freedom To Glide - Seed (2019) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017936.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Akira Kajiyama & Joe Lynn Turner - Fire Without Flame (2006) [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017935.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Touch - The Complete Works - Definitive Edition (2008) 2xCD, Compilation, Jар�
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017933.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Electric Cactus - The Electric Cactus (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017861.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Heart - Rock The House Live! (1991) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017780.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Heart - Passionworks (1983) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017768.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Heart - Bebe Le Strange (1980) [FLAC|Lossless|image + .cue] <Classic Rock, Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017764.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Heart - Heart (1985) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017763.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Heart - Private Audition (1982) Reissue, 1986, Epic Records [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017762.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Heart - Bad Animals (1987) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017760.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Heart - Brigade (1990) 2xCD, Box Set, Limited Edition, Jараnese Еditiоn [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017646.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Pulse - Chasing Shadows (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017598.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ KDB3 - When It All Comes to Pass (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017594.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Pulse - Worlds Apart (2004) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017450.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Amorphous Androgynous & Peter Hammill - We Persuade Ourselves We Are Immorta
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017435.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ High South - Peace, Love & Harmony (2020) [FLAC|Lossless|image + .cue] <Classic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017286.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Jody Grind - 2 albums, 4CD (1969-2006) [FLAC|Lossless|image + .cue] <Prog Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017282.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Peter Gabriel - Rated PG (2020) [FLAC|Lossless|tracks + .cue] <Prog Rock, Soundt
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017275.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Jordsjo - Pastoralia (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Sym
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016940.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Work Force - Work Force (1989) Japanese Edition [FLAC|Lossless|image + .cue] <AO
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016936.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ It Bites - Map Of The Past (2012) Bonus Tracks Edition, Remastered, 2021, Inside
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016928.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Elvis Presley - Las Vegas International Presents Elvis (2021) The First Engageme
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016914.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Classic Old Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016912.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ World On Edge - Against All Gods (1993) [FLAC|Lossless|image + .cue] <Pop Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016793.jpg" />
 </div>
 
 

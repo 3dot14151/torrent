@@ -6,7 +6,7 @@ Seiyuu Radio no Uraomote/ The Many Sides of Voice Actor Radio / Другая с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51948.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Yoru no Kurage wa Oyogenai / Jellyfish Can't Swim in the Night / Медуза н
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51944.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kenka Dokugaku | Viral Hit | Борьба в прямом эфире [2024, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51868.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wind Breaker | Ветролом [2024, TV, 13 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51770.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mahouka Koukou no Rettousei (2024) | Непутевый ученик в школ
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51769.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The New Gate | Новые врата [2024, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51551.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tonari no Youkai-san | Ёкаи по соседству [2024, TV, 13 эп.] Web
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51539.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51511.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Boukyaku Battery | Oblivion Battery | Забвение баттери [2024, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51214.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Isekai Cheat Magician | Маг-обманщик из другого мира [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49907.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48950.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47185.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Записки аптекар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47157.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. 2 |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47144.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life | Chillin' in Anot
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47123.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Mato Seihei no Slave | Chained Soldier | Раб спецотряда [ТВ-1] [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47075.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Isekai Suicide Squad | Отряд самоубийц в другом мире [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46524.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Bye Bye, Earth / Пока, Земля [2024, TV, 10] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43716.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Mob kara Hajimaru Tansaku Eiyuutan / A Nobody's Way Up to an Exploration Hero / 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43612.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Megami no Cafe Terrace 2 / The Cafe Terrace and Its Goddesses 2 / Терраса
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43093.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Gimai Seikatsu / Days with My Stepsister / Жизнь со сводной сес
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43088.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Giji Harem | Pseudo Harem | Псевдогарем [2024, TV, 12 из 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42989.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Ore wa Subete o Parry Suru: Gyaku Kanchigai no Sekai Saikyou wa Boukensha ni Nar
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42981.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Madougushi Dahlia wa Utsumukanai / Dahlia in Bloom: Crafting a Fresh Start With 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42877.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Karasu wa Aruji o Erabanai | Yatagarasu: The Raven Does Not Choose Its Master | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42875.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Nanare Hananare / Narenare: Cheer for You! / Слушайте Хананарэ [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42783.jpg" />
 </div>
 
 

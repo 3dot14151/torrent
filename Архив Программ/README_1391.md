@@ -6,7 +6,7 @@ DVDInfo 1.3.6 + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332053.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Auslogics BoostSpeed 11.2.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332030.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AIMP 4.60 Build 2153 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332025.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Acrobat Reader DC 2019.021.20047 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332020.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Don't Sleep 9.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332003.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ IconLover 5.16 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_331959.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Bandicam 2.4.1.903 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331950.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Universal USB Installer 1.9.6.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331941.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MAGIX Vegas Pro 18.0 Build 373 RePack by PooShock [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331915.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe Acrobat Pro DC 2019.021.20047 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331876.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Victoria 4.99b Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331875.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Runtime GetDataBack for FAT/ NTFS 4.02 + Portable 4.02 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_331864.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Power Video Converter 2.2.28 [English + Русификатор]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_331852.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Wise Care 365 Pro 6.3.7.615 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331850.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Calibre 6.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331843.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331810.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Media Creation Tool 10.0.10586 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331802.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ KMSAuto Net 2015 1.4.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331797.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Foxit PhantomPDF Business 7.2.5.930 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331792.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ AIMP 4.60 Build 2153 Final RePack (& Portable) by elchupacabra (Standard) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331752.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Windows 10 Enterprise 1903 18362.418 x64 Rus by OneSmiLe (15.10.2019)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331744.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Windows 10 Enterprise LTSC 2019 17763.805 x64 Rus by OneSmiLe (14.10.2019)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331740.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ CCleaner 5.63.7540 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331738.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Google Chrome 106.0.5249.91 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331712.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Download Master 6.26.1.1697 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331700.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ AOMEI Backupper Technician Plus 7.0.0 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331699.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 614031   (980865) от 05.02.2013
-
-Настоящая любовь (2012) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Состоятельный адвокат Андрей и начинающая журналистка Лена - каждый по-своему несчастлив в личной жизни. Разведенный Андрей инкогнито ищет настоящую любовь, переодеваясь в нищего, потому что убежден: деньги портят чувства. А Лена тем временем полностью разочаровалась в мужчинах. Теперь ее цель – получить хорошую работу в газете, и в поисках сенсации она решает вывести на чистую воду брачных аферистов. Но, как говорится, любовь нечаянно нагрянет …Жанр: КомедияРежиссер: Сергей ПоповПродюсер: Юрий Сапронов, Андрей СмирновАктеры: Кристина Асмус, Илья Носков, Ольга Тумайкина, Анна Ардова, Анна Уколова, Дарья Чаруша, Алексей Гришин, Виталий Хаев, Тимофей Трибунцев, Артур Ваха, Елена Галибина, Марина Барсукова, Евгений Дремин, Эвелина ВаулинаПеревод: Не требуется (Русский)Продолжительность: 01:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA208B471C505070883E9A2705D1AB208DD2F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614065   (980466) от 05.02.2013
-
-Дублёр (2012) BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой нашей истории — успешный актер, звезда шоу-бизнеса Игорь Успенский. Его жизнь — сплошные съемки, концерты, презентации, корпоративы, интервью и светские тусовки. Он вынужден «крутиться» день и ночь, у него нет выходных и праздников. А его очаровательная жена и прекрасная дочка видят его в лучшем случае поздно ночью, когда он приезжает домой, чтобы поспать (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Евгений АбызовАктеры: Александр Ревва, Кристина Асмус, Дмитрий Хрусталев, Людмила Артемьева, Татьяна Орлова, Ксения Буравская, Варвара Малкова, Александра Кимаева, Евгений Шиманович, Алексей РязанцевПеревод: Не требуетсяПродолжительность: 01:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F38EFF5FDEC4C022F3B7D4AFFEDFFD3565CB1E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356238   (980448) от 29.01.2020
 
 В ожидании моря / Waiting for the Sea (2013) WEBRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980448.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980351.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979884.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979875.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979806.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979448.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979400.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978260.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977492.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977344.jpg" />
 </div>
 
 
@@ -312,33 +260,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 201151   (976547) от 07.01.2014
-
-Ленинград / Leningrad (2009) ВDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Зима 1941-го. С неба безостановочно сыплются бомбы, превращая дома в руины, а выживших, оставшихся без крова мерзнущих людей душит голод. Гитлер убежден, что блокада превратит ленинградцев в стадо диких зверей, рвущих друг у друга куски пищи. Но ленинградцы остаются людьми.
-В фильме две героини: Нина Цветкова и Кейт Дэвис. Одна — ленинградка, милиционерша, «рабочая (   Читать дальше...   )Жанр: Драма, ВоенныйРежиссер: Александр БуравскийАктеры: Мира Сорвино, Армин Мюллер-Шталь, Ольга Сутулова, Алена Стебунова, Михаил Ефремов, Александр Абдулов, Владимир Ильин, Луиза Мосендз, Александр Филиппенко, Сергей КолтаковСубтитры: Английские (вшиты на русскую и немецкую речь) + Русские субтитры на английскую речь (внешние srt*)Продолжительность: 01:50:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 743072   (976438) от 07.01.2014
 
 Хочу замуж (2014) SATRip [2 серии из 2]
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976438.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976314.jpg" />
 </div>
 
 
@@ -401,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976238.jpg" />
 </div>
 
 
@@ -427,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975313.jpg" />
 </div>
 
 
@@ -453,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974456.jpg" />
 </div>
 
 
@@ -479,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974439.jpg" />
 </div>
 
 
@@ -507,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973955.jpg" />
 </div>
 
 
@@ -533,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973674.jpg" />
 </div>
 
 
@@ -563,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973448.jpg" />
 </div>
 
 
@@ -589,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973029.jpg" />
 </div>
 
 
@@ -615,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972934.jpg" />
 </div>
 
 
@@ -641,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972790.jpg" />
 </div>
 
 
@@ -667,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972774.jpg" />
 </div>
 
 
@@ -678,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BA7AABCBD3F58FA27BC7DBEB5DAA5F6C34F68FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357449   (972730) от 04.02.2020
+
+Девушки бывают разные (2019) WEB-DLRip [H.265] [10-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о трёх друзьях, решивших покататься на серфе в Мексике. Все как полагается: океан, девушки и золотой песок. История не предвещает неожиданностей. Но не для наших героев, которые первым делом как следует отметили свой приезд. С трудом проснувшись наутро, парни обнаруживают себя посреди пляжа, они в замешательстве — не помнят, что же произошло накануне. (   Читать дальше...   )Производство: Россия / Продюсерская компания "Фетисов Иллюзион"Жанр: КомедияРежиссер: Сарик АндреасянАктеры: Дмитрий Нагиев, Роман Попов, Артем Сучков, Дмитрий Власкин, Владимир Яглыч, Зоя Бербер, Елизавета Моряк, Алена Чехова, Сергей БелоголовцевПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF2B4058FCCD03FF6055510D71C7118052310BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 176646   (972318) от 21.01.2012
+
+Кипяток (2008) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кассирша супермаркета Галина находит утешение от семейных неурядиц в любви к студенту и помогает ему выбраться из-под материнского гнета. Студент счастлив, но чтобы решить свои материальные проблемы, он выносит из магазина, когда Галина работает за кассой продукты. Разумеется, они попадаются… Галина берет вину на себя. Выйдя из тюрьмы, она ищет свидания. Любовники опять встречаются.Жанр: МелодрамаРежиссер: Татьяна ФирсоваАктеры: Сергей Лактюнькин, Светлана Лебедева, Александр Василевский, Константин Милованов, Ирина Сенотова, Павел ШмарёвПродолжительность: 01:39:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 174654   (971873) от 21.01.2012
+
+Короткое замыкание (2009) DVDRip
+
+>>След.
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полнометражный фильм, в рамках которого пять режиссеров сняли по новелле. Это фильм о любви, о встрече мужчины и женщины и это всегда волнительно. Каждый режиссер снял по своей оригинальной истории. Это разные стилистически и по жанрам истории, объединенные одной общей идеей...Жанр: МелодрамаРежиссер: Петр Буслов, Иван Вырыпаев, Алексей Герман мл., Кирилл Серебренников, Борис ХлебниковАктеры: Иван Добронравов, Карим Пакачаков, Алексей Филимонов, Юрий Чурсин, Александр Яценко, Ирина Бутанаева, Каролина Грушка, Алена Долецкая, Александр Виноградов, Владимир Дубосарский, Анна Екатерининская, Юлия Пересильд, Андрей Савельев, Евгения Свиридова, Павел Сергиенко, Андрей Фомин, Виталий Хаев, Илья ЩербининПеревод: ОригинальныйФормат: AVIПродолжительность: 01:35:10
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

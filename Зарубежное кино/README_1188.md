@@ -1,61 +1,3 @@
-###  Публикация: 550696   (455255) от 23.09.2012
-
-Возвращение / Restitution (2011) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Частный детектив, ведущий расследование страховых мошенничеств в небольшом городе, оказывается втянут в запутанный клубок убийств, интриг и коррупции. Чудом оставшись в живых, он решает мстить. Его месть не будет иметь границ и изменит его жизнь и жизнь маленького города навсегда.Жанр: Триллер, КриминалРежиссер: Ланце КавасАктеры: Мена Сувари, С. Томас Хауэлл, Уильям Сэдлер, Том Арнольд, Дэйв Дейвис, Майкл Роберт Брэндон, Миа ГовичПеревод: Профессиональный (многоголосый)Продолжительность: 01:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F7B1C513689E8B1C477A62E408E4C9B1904BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549733   (455247) от 23.09.2012
-
-Зодчий теней / Shadow builder (1997) [H.264] DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-И Бог сказал: Да будет свет. И стал свет.
-И вместе с ним появилась тень.
-С первым светом родилась первая тень, а свет был создан, Богом.
-В фильме есть поклонники тьмы и ее Господина, в течении тысячелетий приносившие ему кровавые жертвоприношения. Они молились о господстве тени. И зодчий теней пришел...
-Действие очередной картины о борьбе добра и зла происходит в маленьком городишке, избранном судьбой в качестве арены. Разрытые могилы с трупами, разлагающимися под воздействием прямых лучей солнца, приближающееся солнечное затмение, ночь грозит поглотить город.
-Что даст вскрытие тел, найденных в могиле? Труп просто оживает и встает со стола для вскрытия, но рассыпается под воздействием света и снова складывается в… дымную, черную тень…
-Кто возьмет в руки меч Господа для того, чтобы встать на пути зла в предрассветный час? Что может сделать простой шериф и его помощник? Может быть, спасителем станет таинственный незнакомец с белым воротничком священника, приехавший в город?…Жанр: УжасыРежиссер: Джеми ДиксонАктеры: Майкл Рукер, Лесли Хоуп, Шоун Алекс Томпсон, Эндрю Джексон, Кевин Зегерс, Тони Тодд, Харли Лайнэм, Кэтрин БрюхирПеревод: Многоголосый закадровыйПродолжительность: 01:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:878C7C3AAA242BADA579C2F13C940ADA464B1BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 704297   (455231) от 27.09.2013
 
 Семейка Аддамс / The Addams Family (1991) BDRip [1080p]
@@ -64,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455231.jpg" />
 </div>
 
 
@@ -90,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455225.jpg" />
 </div>
 
 
@@ -116,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455213.jpg" />
 </div>
 
 
@@ -142,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455166.jpg" />
 </div>
 
 
@@ -168,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455145.jpg" />
 </div>
 
 
@@ -194,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455087.jpg" />
 </div>
 
 
@@ -220,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455081.jpg" />
 </div>
 
 
@@ -246,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455074.jpg" />
 </div>
 
 
@@ -272,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455070.jpg" />
 </div>
 
 
@@ -298,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455022.jpg" />
 </div>
 
 
@@ -324,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455014.jpg" />
 </div>
 
 
@@ -350,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455012.jpg" />
 </div>
 
 
@@ -376,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455006.jpg" />
 </div>
 
 
@@ -402,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_455000.jpg" />
 </div>
 
 
@@ -428,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454999.jpg" />
 </div>
 
 
@@ -454,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454925.jpg" />
 </div>
 
 
@@ -480,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454921.jpg" />
 </div>
 
 
@@ -506,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454920.jpg" />
 </div>
 
 
@@ -532,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454919.jpg" />
 </div>
 
 
@@ -558,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454917.jpg" />
 </div>
 
 
@@ -584,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454912.jpg" />
 </div>
 
 
@@ -610,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454874.jpg" />
 </div>
 
 
@@ -636,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454869.jpg" />
 </div>
 
 
@@ -662,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454784.jpg" />
 </div>
 
 
@@ -673,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CC48B1B4546FA15B844EFF78899B1CF85A579AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550965   (454778) от 23.09.2012
+
+Прометей / Prometheus (2012) DVDRip  [RUS/UKR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454778.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках сакрального знания группа ученых отправляется в самые темные и неизведанные чертоги вселенной. Именно там, в отдаленных мирах, находясь на пределе своих умственных и физических возможностей, им предстоит вступить в безжалостную схватку за будущее всего человечества…Производство: США, ВеликобританияЖанр: Фантастика, триллер, приключенияРежиссер: Ридли СкоттАктеры: Нуми Рапас, Майкл Фассбендер, Шарлиз Терон, Идрис Эльба, Гай ПирсПеревод: Дублированный |Лицензия|Субтитры: ОтсутствуютПродолжительность: 01:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7A1B9366E6639FF4A1E6D07E8405A0C63B3A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550754   (454773) от 23.09.2012
+
+Жажда золота / La soif de l'or (1993) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для того, чтобы вывезти контрабандой в Швейцарию золотые слитки на сумму 6 миллиардов франков, мсье Юрбэн Донадье придумал весьма оригинальный способ — он спрятал их в стенах своего домика, который должен был сыграть роль чемодана с двойным дном. Его жена Флоретта узнала об этом и, так как Юрбэн не желал делиться «честно нажитым» богатством, она принялась за дело (   Читать дальше...   )Жанр: КомедияРежиссер: Жерар УриАктеры: Кристиан Клавье, Цилла Шелтон, Катрин Жакоб, Филипп Хорсан, Марина Дельтерм, Паскаль Греггори, Бернард Хэллер, Жаки Нерсесян, Альбер ДрэПеревод: Многоголосый закадровыйПродолжительность: 01:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B0689243848C736799B08721641A2E0B237655
 ```
 
 https://mybot314.ru/tekegram_catalog/

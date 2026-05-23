@@ -1,81 +1,3 @@
-###  Публикация: 1822021   (94706) от 04.10.2025
-
-Жорж Сименон | Комиссар Мегрэ. Преступление в Голландии (2024) [MP3, Валерий Войтенко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Французский подданный, профессор, задержан в Голландии как важный свидетель. Человек, пригласивший его прочесть лекции в его городке, убит. Мегрэ отправляют на выручку. Истина окажется такой неприглядно, что лучше бы её замолчать, но будет уже поздно...Жанр: ДетективИздательство: Аудиокнига своими руками / неофициальное издание профессионального актёраПродолжительность: 04:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49EB7A6B9B04F019E9316B67023A687992B2F97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822033   (94680) от 04.10.2025
-
-Джон Диксон Карр | Доктор Гидеон Фелл (Книга 1). Ведьмино логово (2024) [MP3, Антон Макаров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мужчины в роду Старбертов погибают, сломав себе шею. Такова легенда, бытующая в деревне, где расположена Чаттерхэмская тюрьма, заброшенная уже сотни лет, но до сих пор хранящая свои ужасные тайны. Гидеону Феллу предстоит раскрыть одно из самых коварных и таинственных преступлений…Жанр: ДетективИздательство: Азбука-АттикусПродолжительность: 09:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8CF0639A5E0421DBD4C04027F7F307E76D3001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822034   (94678) от 04.10.2025
-
-Джон Диксон Карр | Доктор Гидеон Фелл (Книга 2). Тайна Безумного Шляпника (2024) [MP3, Антон Макаров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Март 1932 г. Завёлся в английской столице странный шутник, который в тёмное время суток срывает головные уборы с добропорядочных граждан, а затем - явно издевательски - размещает похищенное в неподходящих для этой цели общественных местах. Жертв проказ Шляпника пока не очень много, но вот, к примеру, пожилой состоятельный коллекционер, сэр Уильям Биттон, пострадал (   Читать дальше...   )Жанр: детективИздательство: Азбука-АттикусПродолжительность: 09:10:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FFDFBC875823594C7121E62378BB20154F5598A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822036   (94676) от 04.10.2025
 
 Джон Диксон Карр | Доктор Гидеон Фелл (Книга 3). Восемь мечей (2024) [MP3, Антон Макаров]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94676.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94674.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94672.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94670.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94668.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94665.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94663.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94651.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94532.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94512.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94508.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ Drm Алексеев | Знаки [2011] [MP3]
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94302.jpg" />
 </div>
 
 
@@ -401,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91305.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91278.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91272.jpg" />
 </div>
 
 
@@ -480,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91267.jpg" />
 </div>
 
 
@@ -506,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91261.jpg" />
 </div>
 
 
@@ -533,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91175.jpg" />
 </div>
 
 
@@ -559,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91160.jpg" />
 </div>
 
 
@@ -587,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90896.jpg" />
 </div>
 
 
@@ -613,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90482.jpg" />
 </div>
 
 
@@ -639,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90333.jpg" />
 </div>
 
 
@@ -665,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89840.jpg" />
 </div>
 
 
@@ -677,6 +599,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:516AA2A62A92B2031AE2EF63F2D67505D706BB31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486016   (89809) от 21.04.2012
+
+Кристофер Сташеф | Профессор Гарольд и попечители (Дипломированный чародей - 6) [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89809.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как коллеги Гарольда Ши остались в разных мирах, попечительский совет Гарейденского института обеспокоился отсутствием специалистов-психологов на своих рабочих местах. Теперь Гарольду, решившему остаться в мире Огайо 20 века, с одной стороны придется защищать коллег перед "толстыми кошельками" попечительского совета, а с другой стороны разыскивать их по этим самым мирам, чтобы заручиться поддержкой коллег в борьбе с попечительским советом за свои идеалы счастливой жизни.Жанр: Юмористическое фэнтези
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85CC1D09C46107AA8ED8EA39C1D6BA95586E369D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484827   (89448) от 19.04.2012
+
+Александр Лазаревич | "Червь" Дилогия [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89448.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Червь. 1992 год: "Князь Тьмы""
+ Рассказ, созданный в 1991 году, недавно отметил свое 20-летие. Основная оригинальная идея рассказа - искусственный интеллект не будет создан искусственно, а появится в ходе естественного отбора компьютерных программ по принципу дарвиновской эволюции. Несмотря на то, что эта идея была впоследствии (2003 г.) украдена Голливудом и использована в фильме "Терминатор-3" (т.н. "Скайнет"), я все же надеюсь, что аудиокнигу (а точнее "аудиофильм" - фонограмму к так и не снятому кинофильму), будет интересно послушать и новому поколению читателей (слушателей).2012Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5894FFB01797F1153446542BF48BA43B0A7DF23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484429   (89281) от 18.04.2012
+
+Роман Злотников, Олег Маркелов | Крыло ангела [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей родился в Советском Союзе, отслужил в армии и вернулся в совсем другую страну - в Россию. Занялся бизнесом, поймал удачу за хвост, и со временем ему уже многие завидовали. А что, вроде бы у парня все есть: свое дело, иномарка, квартира, любимая девушка. Но что-то не дает Алексею покоя - иногда возникают тени воспоминаний о том, чего не было, и появляется странное ощущение, что где-то далеко его ждет другой мир. Проверить это ощущение оказалось легко, всего-то и нужно было остановиться лунной ночью на МКАД, выйти из тонированной "ауди" на обочину и шагнуть в портал... Однако память о давнем прошлом просыпается не так скоро, а сражаться за свою жизнь и за новых - или старых? - друзей нужно уже сейчас...2012Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2AE7754772B3682D4238736D632B427C032BE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

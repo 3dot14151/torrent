@@ -6,7 +6,7 @@ BurnAware Professional 12.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633609.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Novicorp WinToFlash Professional 0.9.0025 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633606.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GPU-Z 0.8.3 Portable by PortableApps [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633604.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wise Memory Optimizer 3.35.89 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633592.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Bat! Professional 6.8.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633589.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ HDCleaner 2.023 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633558.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AIR Music Technology - TubeSynth 1.0.1  Standalone, VSTi, VSTi3, AAX (x64) RePac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633553.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Windows 10 Manager 2.2.9 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633537.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Adobe Dreamweaver CC 2018 18.2.0.10165 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633512.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Internet Download Manager 6.32 Build 9 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633503.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Google Chrome 73.0.3683.103 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633499.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ HWiNFO 6.04-3720 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633498.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Google Chrome 73.0.3683.103 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633492.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Internet Download Manager 6.32 Build 9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633486.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633483.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Lightwave 3D 2015.2 Build 2839 + Content [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633472.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ SideFx Houdini 14.0.361 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633466.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Macrorit Data Wiper 4.8.4 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633440.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ KORG - Wavestate Native 1.0.2 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633436.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ FileZilla 3.59.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633427.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ ScrollNavigator 5.7.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633378.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NetLimiter Pro 4.0.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633357.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ IK Multimedia - AmpliTube 4 Complete 4.8.2 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633356.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Caramba Switcher + Corporate 2019.04.01 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633345.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ ArtRage 5.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633340.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633338.jpg" />
 </div>
 
 

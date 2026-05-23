@@ -1,56 +1,3 @@
-###  Публикация: 1630978   (198963) от 04.05.2023
-
-Сыграем в убийство? / Murder, Anyone? (2022) WEB-DLRip [H.264/1080p] [EN / RU Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Сложный, сильно запутанный, совершенно безумный и смешной процесс создания авангардного, сюрреалистического, умопомрачительного нео-нуарного триллера. И получается в результате: наполненная весельем и хаосом комедийная пьеса внутри фильма, в которой рассматриваются сложности языка, искусства, театра, кино и многого другого.Производство: США / Red Phoenix Productions, Sandaled Kid ProductionsЖанр: Комедия, Криминал, мистикаРежиссер: Джеймс Каллен БрэссакАктеры: Кристос Эндрюс, Галадриель Стинман, Морис ЛаМарш, Чарльз М. Хауэлл IV, Карла Коллинз, Спенсер Бреслин, Dani Abraham, Джеймс Каллен Брэссак, Тайлер Кристофер, Гектор Дэвид мл.Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (hardsub)Продолжительность: 01:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E99E0AAB3EE1B18AD011BF417C2F232E12B45E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630456   (198962) от 02.05.2023
-
-Козырные тузы / Smokin' Aces (2006) DVDRemux [Fullscreen]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Гангстер Бадди Израэл согласился сотрудничать с ФБР и дать показания против своих мафиозных дружков. За его жизнь главой мафии назначено крупное вознаграждение в миллион долларов, и Бадди грозит реальная опасность распрощаться с жизнью еще до начала суда.
-Охрана Израэла поручена двум агентам ФБР – Месснеру и Карратерсу, которым предстоит нелегкая задача защищать (   Читать дальше...   )Производство: Великобритания, Франция, США / Universal Pictures, StudioCanal, Relativity MediaЖанр: боевик, триллер, драма, комедия, криминалРежиссер: Джо КарнаханАктеры: Райан Рейнольдс, Энди Гарсиа, Джереми Пивен, Рэй Лиотта, Алишиа Кис, Тараджи П. Хенсон, Коммон, Крис Пайн, Джоэл Эдгертон, Нестор КарбонеллПеревод: Дублированный, профессиональный двухголосый, авторскийЯзык озвучки: Русский, АнглийскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9760D0B9F31EA6F6BE0F7030039723B27BF4DCAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630707   (198960) от 02.05.2023
 
 Горизонт в огне / Couleurs de lincendie / The Colors of Fire (2022) BDRemux [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198960.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_198952.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198949.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198944.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198942.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198936.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198922.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198900.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198889.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198882.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198869.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198867.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198855.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198851.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198848.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198844.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198842.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198839.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198837.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198832.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198825.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198823.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198821.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198811.jpg" />
 </div>
 
 
@@ -670,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A74C4DCFAE2AEB9DD3A30B003CBB860966FC0958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631191   (198809) от 05.05.2023
+
+Отзвуки прошлого / The Old Way (2023) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Колтон Бриггс некогда сильно оступился, и теперь прошлое его настигло. Опасность грозит близким людям, поэтому Бриггс должен спасти самое дорогое — свою семью, а с прошлым распрощаться навсегда.Производство: США / Intercut Capital, Saturn Films, Tri-Fold PicturesЖанр: боевик, вестернРежиссер: Бретт ДонохуАктеры: Николас Кейдж, Ноа Ле Грос, Ник Сирси, Райан Кира Армстронг, Клинт Ховард, Керри Кнуппе, Абрахам Бенруби, Шайло Фернандес, Бо Линнелл, Скайлер СтоунПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (Forced, Full)Продолжительность: 01:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AD9288C50270B5A6694928F90A925D0686D18F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460374   (198805) от 05.05.2023
+
+День курка / Boss Level (2020) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день бывший спецназовец Рой Палвер начинает, отбиваясь от всевозможных убийц: здоровяка с мачете, пулемётчика на вертолёте, двух красоток на быстром авто, виртуозно владеющей мечом китаянки, карлика-подрывника и прочих психопатов. И каждый раз Рой неизменно погибает и снова оказывается в том же дне. Однажды он узнаёт, что его бывшая жена, которая занималась (   Читать дальше...   )Производство: США / WarParty Films, Scott Free Productions, Emmett/Furla/Oasis Films (EFO Films)Жанр: фантастика, боевикРежиссер: Джо КарнаханАктеры: Фрэнк Грилло, Мэл Гибсон, Наоми Уоттс, Рио Грилло, Кен Жонг, Шон МакКинни, Аннабелль Уоллис, Мишель Йео, Уилл Сассо, Селина ЛоПеревод: дублированный, профессиональный многоголосый, авторский (одноголосый)Язык озвучки: русский, украинский, английскийСубтитры: русские (forced, full), украинские (forced), английские (full, SDH)Продолжительность: 01:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF1933643C4C80EF202A92A6BFAD437D48800F72
 ```
 
 https://mybot314.ru/tekegram_catalog/

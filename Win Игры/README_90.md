@@ -1,29 +1,3 @@
-###  Публикация: 1491239   (911945) от 24.08.2021
-
-Living Legends 9: Voice of the Sea / Живые легенды 9: Голос моря (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей сказочной серии игр Living Legends. Брат пригласил вас на Солнечный остров отпраздновать День Нептуна, посвященный договору островитян с народом моря. Однако все пошло не так, как планировалось. Проклятие пало на обитателей острова - они стали превращаться в соляные статуи и монстров. Почему Владыка Моря и его дочери так разгневались на (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly Fox GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B0ACE1404DAD3E8FFFFEA1621B707871F6A9AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491184   (911635) от 24.08.2021
 
 Inside (2016) [Ru/Multi] (10) License GOG
@@ -32,7 +6,7 @@ Inside (2016) [Ru/Multi] (10) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911635.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Fall (2014) [Ru/Multi] (2.31) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911525.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911507.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.11.3102) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911050.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Call of Juarez: Bound in Blood (2009) [Ru] (1.1.0.0/tr) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910964.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Castle Story (2015) [En] (0.6.0) Repack John2s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_910960.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (1.1.0_02) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910331.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Mystery Trackers 6: Raincliff’s Phantoms Game / Охотники за тайн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910185.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Bus Simulator 18 (2018) [Ru/Multi] (1.0/upd13/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909969.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Last Floor (2020) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909966.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Subway Simulator (2020) [Ru/Multi] (A 2.8.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909950.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Green Valley: Fun on the Farm / Ферма Зеленая Долина (2008) [R
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909860.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Trine Anthology (2013-2015) [Ru/Multi] (2.12/2.01/1.11) Repack Seraph1
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909793.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Butterfly Sign (2016) [Ru/Multi] (1.1.5) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909737.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Rocketbirds 2: Evolution (2017) [Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909672.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ X Rebirth (2013) [Ru/Multi] (4.0 build 208311/dlc) License CODEX [Collector's Ed
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909308.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ X Rebirth (2013) [Ru/Multi] (4.0 build 208311/dlc) Repack xatab [Collector's Edi
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909272.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ We Are The Dwarves (2016) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909266.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ TT Isle of Man Ride on the Edge 2 (2020) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908279.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.8244/dlc) Repack West4it
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908257.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Sword of the Necromancer (2021) [Multi] (2.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908190.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Never Alone (2014) [Ru/Multi] (1.8/dlc) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907892.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Walking Dead: Season Two (2013-2014) [Multi] (3.00) License GOG [A Telltale 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907884.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Command: Modern Air / Naval Operations (2014) [En] (1.11 SR6 b870.4/dlc) License
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907880.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Assassin's Creed Syndicate [patch] (2015) (1.40)
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907430.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Assassin's Creed Syndicate [patch] (2015) (1.40)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21FA46271024836F493313A5223FE8C726BC6391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990999   (907316) от 27.02.2016
+
+The Town of Light (2016) [En/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907316.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 марта 1938 года, привычный, для 16-ти летней Рени, мир внезапно перестал существовать, сузившись до размера больничной палаты. Банальное незнание своего места в этом мире было ее единственной виной. "Опасна для самой себя, окружающих и причина вопиющего публичного скандала", пестрели заголовки газет. Жуткая, леденящая душу похлеще всяких призраков правда (   Читать дальше...   )Тип издания: LicenseРазработчик: LKA.itЖанр: Action, 3D, 1st PersonЯзык озвучки: Английский, Итальянский, НемецкийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEBECC91B6EAA9AD2E1722C1D508FA32825E697F
 ```
 
 https://mybot314.ru/tekegram_catalog/

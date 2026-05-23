@@ -6,7 +6,7 @@ Reg Organizer 9.0 Beta 3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502489.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PortableApps.com Platform 22.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502485.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Artweaver Plus 7.0.13.15544 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502482.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Quick CPU 4.4.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502480.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ VirtualBox 4.20.80444 RC3 + Extension Pack [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502428.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Norton Removal Tool 22.5.0.13 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502408.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ MeinPlatz 5.69 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502390.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502389.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ TechSmith Camtasia 2019.0.4 Build 4929 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502376.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ ScrollNavigator 5.2.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502332.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Process Lasso Pro 8.8.4.1 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502323.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ SeaMonkey 2.35 Final + PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502322.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502300.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ BELOFF [dp] 2019.6.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502293.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ O&O Defrag Pro v15.8 Build 801 Final RePack by zhmak [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502281.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Kaspersky Password Manager 5.0.0.169 [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502279.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ AI RoboForm Enterprise 7.8.2.5 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502278.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ XviD4PSP 6.0.4 DAILY 9371 + Portable (x32) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502277.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Ashampoo Photo Optimizer 6.0.13.120 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502249.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Waterfox 40.0.2 x64 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502244.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Waterfox 40.0.3 + Portable by PortableApps [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502235.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Adobe InDesign CC 2019 14.0.3.418 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502231.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2021 by Eagle123 (07.2022) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502215.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Adobe Illustrator CC 2019 23.0.5.632 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502210.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ C-Organizer Professional RePack/Portable 4.7 By Boomer [Русский/Англ�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502190.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ DVD X Player Professional 5.5.3.3 + Portable by Valx [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502182.jpg" />
 </div>
 
 

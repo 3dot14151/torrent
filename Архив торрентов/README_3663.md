@@ -6,7 +6,7 @@ WinContig 5.0.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242761.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chromium 113.0.5672.127 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242760.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Global Trance Masters Vol. 7 (2023) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242757.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Process Lasso Pro 12.1.0.26 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242754.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Hornil StylePix 3.0.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242746.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Soft4Boost Document Converter 6.1.9.309 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242740.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Wise Registry Cleaner Pro 11.0.1.711 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242738.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Topaz Video AI 3.2.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242737.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - Trance Favorites Episode #004 (2017) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242732.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ MediaInfo 22.03 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242724.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ TunesKit AceMovi Video Editor 3.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242723.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Display Driver Uninstaller 18.0.6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242716.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242713.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ TG Pro (Temperature Gauge Pro) 2.80 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242708.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242707.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Bandicam 6.0.1.2003 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242695.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Trojan Killer 2.1.11 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242690.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Chaotica 2.2.2 Beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242680.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ MediaHuman YouTube Downloader 3.9.9.74 (0708) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242675.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Cкелетон. Кубок мира 2016-2017. 6-й Этап. Кёнигзее 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242673.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ EF Commander 2023.04 (upd 03.04.2023) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242669.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Cкелетон. Кубок мира 2016-2017. 6-й Этап. Кёнигзее 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242665.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ John’s Background Switcher 5.5.0.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242661.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ AeroAdmin 4.8 сборка 3610 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242658.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242657.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ AOMEI Partition Assistant Technician Edition 9.9.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242653.jpg" />
 </div>
 
 

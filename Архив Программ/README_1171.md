@@ -6,7 +6,7 @@ The Bat! Professional 5.2.2 Final + PortableAppZ [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_449785.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ ProDAD VitaScene Pro For Edius 6.5 & Adobe CS6 (x32/x64) 2.0.196 (от 17.09.201
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_449777.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Mozilla Firefox 42.0 beta 3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449683.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lacey Free Music & Video Downloader 2.75 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449552.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ R-Studio Network Edition 8.14 Build 179597 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449450.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ QTranslate 5.5.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449437.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Steinberg - WaveLab 11 Pro 11.1.10 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449413.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ NirLauncher Package 1.23.63 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449407.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Wondershare PDFelement 9.0.8.1778 RePack by elchupacabra + OCR Plugin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449403.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ ActivePresenter Pro Edition 8.2.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449330.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Artweaver Plus 7.0.7.15492 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449326.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Opera 70.0.3728.189 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449322.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Icecream Ebook Reader 2.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449290.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ R-Studio Network 9.1 Build 191029 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449276.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ W10Privacy 4.0.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449274.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Gilisoft Video Converter 9.2.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449265.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Epubor Ultimate 3.0.14.402 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449264.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Steinberg - SpectraLayers Pro 9.0.10 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449255.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ MKVToolNix 70.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449251.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ R-Studio Network Edition 8.14 Build 179611 RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449181.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449178.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ CCleaner 5.71.7971 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449176.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Anvide Seal Folder 5.23 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449130.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ FlylinkDC++ r503 build 19096 Stable Portable (x86) + Хаблист [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449129.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Everything 1.4.0.703 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449125.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Emsisoft Internet Security 10.0.0.5735 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449122.jpg" />
 </div>
 
 

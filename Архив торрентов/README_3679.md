@@ -6,7 +6,7 @@ Radiant Photo 1.1.1.266 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240917.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240916.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240910.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ BetterZip 5 v5.1.1 b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240904.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Wireshark 4.0.5 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240901.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Valentina Studio Pro 11.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240898.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ TechSmith Camtasia 22.1.0 (Build 39645) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240897.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Trancebargitha (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240887.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Irvue 2.7.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240882.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Glary Utilities Pro 5.205.0.234 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240877.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Hazel 5.0.6 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240872.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ TextMate 2 v2.0.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240859.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.21.2 RePack (& portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240853.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ NIUBI Partition Editor 9.5.0 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240849.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Bandicam 5.4.3.1923 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240845.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Downie 4 v4.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240841.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Acon Digital AudioLava for Mac 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240833.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ HWiNFO 7.43 Build 5045 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240828.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ RAR Extractor Max - Unzip 6.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240824.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ CudaText 1.193.3.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240821.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Spotify 1.1.83.956 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240811.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Author 6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240807.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ OCCT 12.0.0.b9 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240802.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ PDF Reader Pro 2.8.23.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240798.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Topaz Video Enhance AI 2.6.3 RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240797.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ QOwnNotes 23.5.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240794.jpg" />
 </div>
 
 

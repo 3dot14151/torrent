@@ -1,29 +1,3 @@
-###  Публикация: 1222242   (531130) от 09.08.2018
-
-Basingstoke (2018) [En] (101_built_842018_54725_pm) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Basingstoke представляет собой суровый рогалик с элементами аркадного экшена и стелса. Герою предстоит исследовать руины апокалиптического городка Бейсингстока, где живут зомби и инопланетные монстры. Надо уничтожать врагов, создавать предметы для миссии и постараться побыстрее смыться из этого ада.Тип издания: LicenseРазработчик: PuppygamesЖанр: Экшн, Приключение, СтелсЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA085A84C36F4928FF69FE433B579454C6B4F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240165   (531122) от 09.08.2018
 
 Deiland (2018) [Ru/Multi] (1.0) Repack Other s
@@ -32,7 +6,7 @@ Deiland (2018) [Ru/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531122.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Tacoma (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530974.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Project CARS (2015) [Ru/Multi] (2.5.0) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530921.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530657.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ Top Secret Finders / Архив Секретных Агентов (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530487.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ Dusk (2018) [En] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530348.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ Vampire Legends 3: The Count of New Orleans / Легенды о вампирах
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530321.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Mother Russia Bleeds (2016) [Ru/Multi] (1.0.1) Repack GAMER [Dealer Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530198.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ Proteus (2013) [En] (1.1.2) Repack Табличка
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530112.jpg" />
 </div>
 
 
@@ -273,7 +247,7 @@ Memoria (2013) [Ru/Multi] (1.1.4.0336) SteamRip R.G. Игроманы
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529910.jpg" />
 </div>
 
 
@@ -303,7 +277,7 @@ Dark Dimensions 6: Shadow Pirouette / Темные измерения 6: Пир�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529677.jpg" />
 </div>
 
 
@@ -329,7 +303,7 @@ Total War: ROME II (2013) [Multi] (2.4.0/dlc) License CODEX [Emperor Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529535.jpg" />
 </div>
 
 
@@ -355,7 +329,7 @@ Paranautical Activity (2015) [En] (4.5.4.162119) License GOG [Deluxe Atonement E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529475.jpg" />
 </div>
 
 
@@ -381,7 +355,7 @@ Fairy Fencer F (2015) [En/Jp] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529390.jpg" />
 </div>
 
 
@@ -407,7 +381,7 @@ Descent - Silence of Mind (2017) [En] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529355.jpg" />
 </div>
 
 
@@ -433,7 +407,7 @@ Redeemer (2017) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529351.jpg" />
 </div>
 
 
@@ -459,7 +433,7 @@ Gas Guzzlers: Combat Carnage / Gas Guzzlers: Убойные гонки (2012) [R
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529327.jpg" />
 </div>
 
 
@@ -485,7 +459,7 @@ Hearts of Iron: Trilogy / День Победы: Трилогия (2002-2009) [E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529319.jpg" />
 </div>
 
 
@@ -511,7 +485,7 @@ Underhero (2018) [En] (4.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528957.jpg" />
 </div>
 
 
@@ -537,7 +511,7 @@ Dark Parables 11: The Swan Princess And The Dire Tree / Темные Притч�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528836.jpg" />
 </div>
 
 
@@ -563,7 +537,7 @@ Pac-Man Championship Edition 2 (2016) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528723.jpg" />
 </div>
 
 
@@ -589,7 +563,7 @@ DEAD RISING (2016) [Ru/Multi] (1.0.0.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528716.jpg" />
 </div>
 
 
@@ -615,7 +589,7 @@ Pyre (2017) [Ru/Multi] (1.50427) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528470.jpg" />
 </div>
 
 
@@ -641,7 +615,7 @@ Repentant (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528464.jpg" />
 </div>
 
 
@@ -667,7 +641,7 @@ Acting Lessons (2018) [En] (1.0.2.1) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528433.jpg" />
 </div>
 
 
@@ -678,6 +652,32 @@ Acting Lessons предлагает получить уроки актерско
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B79178492796DA51B1536D0D367A05E482F9A359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156163   (528400) от 06.08.2017
+
+Algotica - Iteration 1 (2017) [Ru/En] (1.0) Repack Covfefe
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алготика — это игра-приключение и одновременно пазл, посвященный обучению программированию с повествованием, разрушающим “четвертую стену”. В Алготике глубокая история, нетипичный геймплей, стиль и атмосферная музыка. Если вы хотели начать изучать программирование, но оно вам кажется слишком сложным, или просто не доходили руки, то эта игра — хорошая отправная точка (   Читать дальше...   )Тип издания: RepackРазработчик: Alexander KhoroshavinЖанр: Adventure, IndieЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57975DF606C5805713F6BFE4969D943714A01ACA
 ```
 
 https://mybot314.ru/tekegram_catalog/

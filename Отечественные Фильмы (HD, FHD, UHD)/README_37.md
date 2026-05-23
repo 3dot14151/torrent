@@ -1,81 +1,3 @@
-###  Публикация: 658757   (804992) от 20.05.2013
-
-Любовь в СССР (2012) Blu-Ray [1080p]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В основе сюжета - классический любовный треугольник. Сергей и Степан учатся в одном институте и оба влюблены в однокурсницу Людмилу. Чувство соперничества постоянно провоцирует их на участие в разных нелепых историях, в итоге благие намерения оборачиваются ссорами друг с другом и любимой девушкой. Особенно не везет Сергею. Он горяч, импульсивен, бесшабашен - полная (   Читать дальше...   )Жанр: МелодрамаРежиссер: Карен ШахназаровАктеры: Александр Ляпин, Лидия Милюзина, Егор Барановский, Иван Купреенко, Армен Джигарханян, Ольга Тумайкина, Янина КалгановаЯзык субтитров: НетПродолжительность: 01:31:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119773   (804788) от 29.03.2017
-
-С пяти до семи (2015) WEB-DL [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Он ждал Анну. В кафе. Полгода. С пяти до семи. Но пришла другая. Кафе стало местом их встреч. Он и Она. Их истории. Попытки освободиться от прежней любви и начать новую жизнь. Все придется решить здесь — за столиком кафе…Производство: Россия, Латвия, Amalgama StudioЖанр: Мелодрама, драма, детективРежиссер: Владимир ЩегольковАктеры: Дарья Мельникова, Александр Ильин мл., Дмитрий Муляр, Ирина Бутанаева, Амаду Мамадаков, Илзе Блауберга, Матин Умаров, Константин Шелестун, Иева Сеглиня, Эдгарс Озолиньш ...Перевод: Не требуется (Русский) (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B43701D482D69E0D135CE3907585628CDD9B884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010250   (803409) от 24.04.2016
-
-Любовь напрокат (2014) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-К преуспевающему бизнесмену Александру приезжает богатая родственница из Америки. 15 лет назад она дала ему начальный капитал и теперь хочет посмотреть, как он им распорядился, а также познакомиться с его семьей. Но проблема в том, что семьи у Александра нет: он ее выдумал, чтобы произвести хорошее впечатление на тетю. Если обман откроется, Александр может лишиться (   Читать дальше...   )Производство: Россия,К-12, Look Film.Жанр: Мелодрама, КомедияРежиссер: Вазген КаграманянАктеры: Елена Подкаминская, Дмитрий Миллер, Елена Валюшкина, Грант Каграманян.Продолжительность: 01:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190FA1685C797BD59B104DDF5995987053892CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199088   (802719) от 14.01.2018
 
 Portfolio (2015) WEBRip [H.264/720p-LQ]
@@ -84,7 +6,7 @@ Portfolio (2015) WEBRip [H.264/720p-LQ]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802719.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802458.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802444.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802080.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801941.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801510.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801321.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801316.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801152.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801077.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800715.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799998.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799976.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799962.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799275.jpg" />
 </div>
 
 
@@ -477,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799004.jpg" />
 </div>
 
 
@@ -503,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798906.jpg" />
 </div>
 
 
@@ -529,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798515.jpg" />
 </div>
 
 
@@ -555,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798506.jpg" />
 </div>
 
 
@@ -581,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798497.jpg" />
 </div>
 
 
@@ -607,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798371.jpg" />
 </div>
 
 
@@ -633,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798338.jpg" />
 </div>
 
 
@@ -659,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798336.jpg" />
 </div>
 
 
@@ -670,6 +592,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC52CD82A014A499653E87740F73AA4B009DDCB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507672   (798254) от 05.11.2021
+
+Питер.Love (2020) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798254.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о неуверенном в себе молодом человеке по имени Костя, который, подрабатывая таксистом, влюбляется в романтичную девушку Яну, но для того, чтобы завести с ней знакомство, ему необходимо набраться смелости. Главным препятствием на пути героя оказывается Макс - один из пассажиров, который уже успел пригласить Яну на свидание.Производство: РоссияЖанр: Короткометражный, мелодрамаРежиссер: Катя ВетроваАктеры: Вадим Бочкарев-Ковальский, Анастасия Квитко, Пётр Корнеев, Екатерина ЧерепановаСубтитры: ОтсутствуютПродолжительность: 00:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AA271DC40D3039C679AC6C1C026322DBB22354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507666   (798247) от 05.11.2021
+
+Все смотрят на тебя (2021) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Талантливая балерина-подросток принимает предложение своего парня о заработке в качестве вебкам-модели. Однако невинная детская затея оборачивается против них, как только об этом узнает сестра парня.Производство: Россия / Школа кино и телевидения «Индустрия»Жанр: Короткометражный, драмаРежиссер: Кузя ВасильеваАктеры: Кристина Корбут, Олег Савостюк, Глафира Голубева, Ирина Семиреченская, Мария ФедосоваСубтитры: ОтсутствуютПродолжительность: 00:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BDC5002ED625A512D84E3148600B7FCEBD55811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507664   (798179) от 05.11.2021
+
+Герда (2021) WEBRip [H.264/1080p-LQ]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лера днем изучает человечество и его потребности с помощью соцопросов, которые являются учебной практикой в институте, ночью — танцует в клубе, чтобы заработать деньги и прокормить себя и маму. Люди, которых она встречает, так же несчастны, как и ее семья. Ее отец недавно ушел к другой женщине, но постоянно приходит обратно, не в силах осознать собственный выбор. (   Читать дальше...   )Производство: Россия / Фонд «Кинопрайм», Централ Партнершип, Red Media, Русское возрождениеЖанр: ДрамаРежиссер: Наталья КудряшоваАктеры: Анастасия Красовская, Юра Борисов, Дарюс Гумаускас, Юлия Марченко, Мария Леонова, Мария Иванова (V), Татьяна Оквамо, Серафима Красникова, Мария Песоцкая, Софья АлександроваПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82278AEC20DD1E8B2089B74806E20779C0FAA9E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

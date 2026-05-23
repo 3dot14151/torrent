@@ -1,29 +1,3 @@
-###  Публикация: 1187489   (280117) от 28.11.2017
-
-Человек или робот? / Au Coeur des Robots (2014) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Мир будущего
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роботы стали частью нашей повседневности. Произошла настоящая революция, и теперь придётся решать, какую роль отвести машинам, похожим на нас внешне. Роль наших коллег? Друзей? Любимых? Появится ли у каждого из нас собственный робот-двойник? Получат ли роботы лицензию на убийство? А может быть, мы наблюдаем зарождение новой формы жизни? В роботизированном мире эволюция (   Читать дальше...   )Производство: Франция, Arte France, G.E.I.E & Légitime défenseЖанр: Документальный, научно-познавательныйРежиссер: Бруно Виктор-ПюжебеПеревод: Двуголосый закадровый, профессиональный (Кондор)Субтитры: отсутствуютПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E6302297B59D927EED71B7F94D550A48C0EE9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181224   (280115) от 28.11.2017
 
 Секретная война с наркотиками (История наркотиков) / Secret War on Drugs (2017) HDTVRip [H.264/720p-LQ] (4 серии из 4)
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280115.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280011.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ NGW. Выжить в дикой природе / Survive the Wild(2016) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279455.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2018) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279030.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278768.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Discovery. Эффект Карбонаро / The Carbonaro effect (2014) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278753.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278699.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278363.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ Discovery. Танк на Луне / Tank on the Moon (2008) PDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_278293.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ Discovery. Стальные парни / Steel Buddies (2014) HDTV [H.264/720p] 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278274.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277176.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276933.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ Discovery: Опасная миссия: Хаббл / Mission Critical: Hubble (2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276929.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ BBC. Повседневные чудеса  / Everyday Miracles (2014) HDTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276850.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ NG: Древние греки / The Greeks (2016) HDTVRip (Серии 1-3 из 3
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276271.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ History. Кругосветное путешествие Оззи и Джека 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274399.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274248.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ NGW: Потоп / The Flood (2018) HDTV [H.264/1080i-LQ] (серии 1-2)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274073.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ NG: Миссия полета к Солнцу / Mission to the Sun (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274064.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273237.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ Discovery: Эд Стаффорд: Выживший / Ed Stafford: Left for Dead 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273149.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ NGW: Голодное нападение / Striker (2007) HDTVRip [H.264/720p-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272974.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ BBC: Голубая планета / The Blue Planet (2001) BDRemux [H.264/1080p
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272873.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272347.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ NGW: Последний рай орангутанов / The Last Orangutan Eden 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271443.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ NGW: Последний рай орангутанов / The Last Orangutan Eden 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E5DBB5F4DAE6972E258CB011BB35FF27D54252C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337987   (271433) от 13.11.2019
+
+NG: Лики Власти / Icons of Power (2006) HDTV [H.264/1080i-LQ] (фильмы 4 из 4)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Екатерина Великая, Генрих VIII с Анной Болейн, Пётр I и Наполеон. Кровопролитные сражения, тайны дворцовых переворотов, расцвет и падение империй. Частная жизнь коронованных особ.Производство: США, National GeographicЖанр: Документальный, история, биографияРежиссер: Дон Кемплер, Мартен Прово, Даг ШульцПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 4x ~01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E30E40FE2560C0887F7B85EABC152D26383B7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

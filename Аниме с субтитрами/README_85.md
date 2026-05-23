@@ -6,7 +6,7 @@ Moonlight Mile 2nd Season - Touch down / Лунная миля 2 [2007, TV, 14] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331570.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Karakai Jouzu no Takagi-san 3 | Teasing Master Takagi-san 3 | Озорная Т�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329838.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Summer Time Render / Summer Time Rendering / Летний рендер / Лет�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329536.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Aoki Hagane no Arpeggio: Ars Nova | Arpeggio of Blue Steel | Мелодия во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328898.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kingdom 4 / Царство [TB-4] [2022, TV, 26] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328593.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Kanokon / Канокон [2008, ТВ, 12 серий + 12 sp] DVDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326926.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ One Piece 3D2Y: Ace no shi wo Koete! Luffy Nakama Tono Chikai | 3D2Y: Переж
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324409.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Tomie | Томиэ [2018, Special, 2 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323164.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Panda Kopanda: Amefuri Circus no Maki | Panda! Go, Panda!: Rainy Day Circus | Б
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322802.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Panda Kopanda | Panda! Go, Panda! | Большая панда и маленьк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322800.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Machikado Mazoku | The Demon Girl Next Door | Городская дьяволи�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322506.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Try Knights | Упорные рыцари [2019, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322495.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Bessatsu Olympia Kyklos | Экстра Олимпия Киклос | Олимп�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321542.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Mahou Sensei Negima! | Negima! | Волшебный учитель Нэгима!
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320744.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Meitantei Conan | Detective Conan | Детектив Конан [1996, TV, 810-8
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318454.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318428.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Hyakumannen Chikyuu no Tabi Bander Book | One Million-year Trip: Bander Book | �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318352.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Sora to Umi no Aida | Space Fish: Between the Sky and Sea | Между небо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317566.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Bakuman / Бакуман [ТВ-1] [2010, TV, 25 из 25] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317283.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Kimi ni Todoke / Reach You / Дотянуться до тебя [2009, TV, 25 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317281.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Kidou Keisatsu Patlabor (1990) | Mobile Police Patlabor - The New Files | Пол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317278.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Macross Zero | Макросс Зеро [2002, OVA, 5 эп.] BDRip 1080p Hi10P ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317185.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Kiseijuu: Sei no Kakuritsu | Parasyte: The Maxim | Паразит [2015, TV, 24]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317182.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Natsume Yuujinchou / Тетрадь дружбы Нацумэ (первый се
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317178.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Karas /  Crow /  Карас  [2005, OVA,  6 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317047.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Fumiko no Kokuhaku | Fumiko's Confession | Признание Фумико [2009
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316762.jpg" />
 </div>
 
 

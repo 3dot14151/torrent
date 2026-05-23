@@ -1,55 +1,3 @@
-###  Публикация: 1795865   (17372) от 22.05.2025
-
-Рёв волны / Silent Roar (2023) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Юный сёрфер Дондо пытается смириться с исчезновением своего отца-рыбака в море. Его выводит из оцепенения бунтарка Сас, которая не боится подбивать других на авантюры. Она предлагает парню сбежать с острова, чтобы найти свой путь через волны, верования и адский огонь.Производство: Великобритания / BBC Films, BFI, Screen Scotland, Young FilmsЖанр: драмаРежиссер: Джонни БаррингтонАктеры: Фиона Белл, Гари Ламонт, Чиненье Эзеуду, Барбара Пробст, Луис Маккартни, Элла Лили Хайланд, Виктория Белнавис, Андерс Хейуорд, Тип Каллен, Пабло РэйбоулдПеревод: Многоголосый профессиональный (Кириллица)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A7E84834BAA617AAE90742B8F83F8493D8FC18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795169   (17367) от 22.05.2025
-
-Девять королев / Nueve reinas / Nine Queens (2000) BDRip [AV1/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Матёрый аферист-кидала Маркос вытаскивает из передряги молодого коллегу по ремеслу и предлагает работать в паре. После нескольких мелких афер тандем решает провернуть крупное дело — продать богатому коллекционеру поддельные редкие марки, имеющие большую ценность.Производство: Аргентина / FX Sound, Industrias Audiovisuales Argentinas S.A, J.Z. & Asociados, Kodak Argentina S.A., Naya Films S.A., Patagonik Film GroupЖанр: драма, криминалРежиссер: Фабиан БьелинскиАктеры: Гастон Паульс, Рикардо Дарин, Летисия Бредисе, Игнаси Абадаль, Томас Фонци, Оскар Нуньес, Эльса Беренгер, Алехандро Авада, Лео Дисен, Селия ХуаресПеревод: Двуголосый профессиональный ("Инис", "Ульпаней Эльром"), Одноголосый любительский (Доцент)Язык озвучки: русский, испанскийСубтитры: русские, испанскиеПродолжительность: 01:55;43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E76BABD357EE3088B34A5954249D8574C040F18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798769   (17334) от 23.05.2025
 
 Атлас / Atlas (2024) UHD WEB-DLRip [AV1/1080p] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17334.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17325.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17283.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17196.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17192.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17190.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17169.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17168.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17154.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17048.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17022.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17019.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16994.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16960.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16956.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16955.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16952.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16950.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16940.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16860.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16854.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16852.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16850.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16845.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D050F7B1D72D7EFBC75AA952019224D7A0E5F5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799229   (16813) от 26.05.2025
+
+Учитель, обещавший море / El maestro que prometio el mar / The Teacher Who Promised the Sea (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16813.jpg" />
+</div>
+
+
+###  Подробнее
+
+1935 год. Молодой учитель Антони Бенайжес приезжает в провинцию Бургос, чтобы преподавать в деревенской школе. С помощью новаторского педагогического метода Антони вдохновляет своих учеников и дает обещание: показать им море, которого они никогда не видели. Но такой свободный и творческий подход не устраивает часть консервативно настроенных родителей.Производство: Испания / Filmax, Institut Català de les Empreses Culturals (ICEC), Instituto de la Cinematografía y de las Artes Audiovisuales (ICAA)Жанр: драма, биографияРежиссер: Патрисия ФонтАктеры: Энрик Окер, Лайа Коста, Луиза Гаваса, Рамон Агирре, Гаэль Апарисио, Альба Эрмосо, Николас Кальво, Антонио Мора, Мило Табоада, Хорхе РочаПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, испанскийСубтитры: Русские (Forced, Full), испанские (Full, SDH)Продолжительность: 01:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E0CE57529FEFD2E207D5382FBBC472B386B6D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795941   (16794) от 27.05.2025
+
+Как стать миллионером / The Luckiest Man in America (2024) WEB-DL [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Май 1984 года. Майкл Ларсон, безработный водитель грузовика с мороженым, становится участником телеигры Press Your Luck и одерживает самую длинную серию побед в истории передачи. Организаторам шоу предстоит понять, мужчина пришёл к победе с помощью везения или хитрости.Производство: США, Колумбия, Канада, Чили / Exemplary Films, Fabula, Jaguar BiteЖанр: триллерРежиссер: Самир ОливеросАктеры: Пол Уолтер Хаузер, Уолтон Гоггинс, Шамир Андерсон, Дэвид Стрэтэйрн, Брайан Джерати, Патти Харрисон, Мэйси Уильямс, Рики Рассерт, Дэвид Рисдаль, Шонетт Рене УилсонПеревод: Многоголосый профессиональный (HDrezka Studio, заКАДРЫ), авторский (А.Кашкин)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF3BD30531A7A1C723B8F962584BC28BAD22D80
 ```
 
 https://mybot314.ru/tekegram_catalog/

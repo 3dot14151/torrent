@@ -6,7 +6,7 @@ Tug Of War - Soulfire (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486815.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Tool - Fear Inoculum (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486683.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Herman Ze German - Take It As It Comes (2010) [FLAC|image +.cue]<Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486146.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Quiet Sun - Mainstream (1975) 1999, Expression Records  [WavPack|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486112.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Supertramp - Classics Volume 9 (1986) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486076.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Y Not 7 & Fly - Forever Love Hits vol.1-vol.2 (2010) [APE|image+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486064.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ D Sound - Kisember (2002) [FLAC|image +.cue]<Psychedelic Rock, Space Rock, Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486055.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Smokie - On The Wire (2004) [FLAC|Lossless|image + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485895.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Meat Loaf - Braver Than We Are (2016) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485892.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Willie Nile - New York At Night (2020) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485816.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Dave Matthews Band - Away From The World (2012) / RCA / [FLAC|Lossless]<Alternat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484872.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Jack White - Entering Heaven Alive (2022) [FLAC|Lossless|tracks + .cue] <Alterna
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484518.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ David Wallimann (Glass Hammer) - Evolving Seeds Of Glory (2016) [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484095.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Simon and Garfunkel - Bridge Over Troubled Water (1970) 1999, Columbia [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484070.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Mike Oldfield - Discovery (Deluxe Edition) (2016) Remastered 2CD[FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483445.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ King Crimson - Radical Action (To Unseat The Hold Of Monkey Mind) (2016) 3CD [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483299.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Freddie Mercury and Montserrat Caballe - Barcelona [Special Edition 3 CD] (2012)
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482412.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ White Spirit - Right Or Wrong (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482336.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Faust - Excerpts From The Rock Ballet (1996) [FLAC|image +.cue]<Melodic Rock, Ha
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482088.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Mike + The Mechanics - Silent Running: The Masters Collection (2018) 2CD [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482022.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ The Blue Hawaiians - Savage Night (1999) [FLAC|image +.cue]<Surf Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481966.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ David Gilmour - Rattle That Lock (Deluxe Edition) (2015) [FLAC|Lossless|WEB-DL]<
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481411.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Steve Thorne - Crimes and Reasons (2012) [APE|Lossless]<Progressive Rock/Crossov
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480755.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Knight Area - D-Day II - The Final Chapter (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480429.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ The Tea Party - The Edges Of Twilight (2015) 2CDs Deluxe Edition [FLAC|tracks]<P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479869.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Elvis Presley - 15 Original Albums & Bonus Tracks (2014) 10CD Box Set[FLAC|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479454.jpg" />
 </div>
 
 

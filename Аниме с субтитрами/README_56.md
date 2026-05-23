@@ -6,7 +6,7 @@ Lupin the Third: Mine Fujiko to Iu Onna / Lupin the Third: The Woman Called Fuji
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643045.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642723.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gyakuten Saiban: Sono "Shinjitsu", Igi Ari! Season 2 | Первоклассны�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642529.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Fushigi na Somera-chan / Magical Somera-chan / Волшебница Сомера
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641900.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Bermuda Triangle: Colorful Pastorale | Разноцветная пасторал
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640771.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Kimi no Iru Machi / Город в котором ты живешь [2012, OVA, 0
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_640738.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Fukigen na Mononokean: Tsuzuki | The Morose Mononokean II | Обитель мр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640631.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Asa made Jugyou Chu! / See Me After Class! / Дополнительные зан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640592.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640520.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Shingeki no Kyojin: The Final Season | Атака титанов [ТВ-4] [2020,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640365.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Ooya-san wa Shishunki! / Хозяйка квартиры — подросток 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639878.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Kekkai Sensen: Ou-sama no Restaurant no Ou-sama | Фронт кровавой б
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639700.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Drifters Special Edition | Скитальцы [2016, OVA, 1] DVDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639584.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Ultraman | Ультрамен [2019, ONA, 13 эп.] WebRip 720p HEVC 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638828.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Grimms Notes The Animation / Заметки Гримм [2019, TV, 12] HDTV 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638820.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Endro! / Эндро! [2019, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638819.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Date a Live III / Рандеву с Жизнью 3 [2019, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638818.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren`ai Zunousen / Kaguya-sama: Love 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638719.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Hakozume: Kouban Joshi no Gyakushuu | Police in a Pod | Девушки-поли�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638496.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Vanitas no Karte | The Case Study of Vanitas | Мемуары Ванитаса [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638488.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Onigiri / Онигири [2016, TV, 13 из 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638136.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Wagamama High Spec [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637940.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Melty Lancer | Melty Lancer: The Animation | Мелти Лансер [1999, OVA,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637757.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Robot Carnival | Карнавал роботов [1987, OVA, 9 эп.] DVDRip 480
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637431.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Kemono Friends 2 | Друзья-зверушки | Ушастые друзья [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636900.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Bubuki Buranki | BBK/BRNK | Бубуки/Буранки [2016, TV, 24 эп.] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636814.jpg" />
 </div>
 
 

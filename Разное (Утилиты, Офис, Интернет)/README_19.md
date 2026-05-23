@@ -6,7 +6,7 @@ Disable Nvidia Telemetry 1.1 Build 8 + Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468953.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Free Studio 6.6.39.707 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465094.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ardfry PSD Codec 1.7.0.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463755.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Apowersoft Streaming Video Recorder 6.4.6 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463305.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ SpaceSniffer 1.3.0.2 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461244.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ WinCDEmu 4.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457195.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AnyMP4 Screen Recorder 1.2.26 (DC 25.08.19) RePack (& Portable) by TryRooM [Mult
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456696.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VideoSolo Screen Recorder 1.1.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446174.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ StudioTools 26.0 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444997.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Smart Game Booster Pro 4.6.0.4905 (акция Comss) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444638.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ USBboot Installer 1.1 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444437.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ IObit Unlocker 1.3.0.11 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439651.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Screenshot Creator 3.0 Final [Русский, Английский]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_435302.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ English Trainer 6600.1 Portable [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433255.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ BB FlashBack Pro 5.11.0 Build 3807 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432957.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Product Key Explorer 4.0.1.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432241.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ ReGen - Password Generator 2015 2.3.2.0 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427061.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ XSplit Broadcaster 3.4.1806.2229 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419473.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ C-Organizer Professional 7.5 + Advanced Diary 5.5 Portable by Spirit Summer [Ru/
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415302.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Adrosoft Steady Recorder 3.4.1 RePack (& Portable) by TryRooM [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412580.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ KMSAuto Lite 1.7.3 Portable by Ratiborus [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407209.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Smart Install Maker 5.04 [Multi/Rus] Portable by punsh
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405710.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Debut Video Capture Pro 4.0.8 RePack by 78Sergey [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399291.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ H264 WebCam Deluxe 3.95 Final [Англ.]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_392407.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ MInstAll 16GB Portable-Soft 08.10.2017 by Bombokot [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391648.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Windows Sidebar for XP 6.0.6003.20103 [RUS] by 5.09.2010
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390729.jpg" />
 </div>
 
 

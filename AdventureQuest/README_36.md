@@ -1,29 +1,3 @@
-###  Публикация: 1044570   (564670) от 20.08.2016
-
-You Deserve (2016) [En/Es] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-You Deserve - игра в приключенческом жанре. Вы никогда не думали, что все, что вы делаете, возможно, вернется к вам назад? Группа подростков преследовала сокурсника из средней школы. В конце концов, молодой человек был не в состоянии больше выносить все эти издевательства и в конечном итоге решил покончить с собой. Кто за это ответит?Тип издания: RepackРазработчик: TGA CompanyЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA15E81667F96E94D09914C5C4028354CD3E860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152847   (563028) от 24.07.2017
 
 Reflecting Fate (2017) [En] (1.0) Repack Covfefe
@@ -32,7 +6,7 @@ Reflecting Fate (2017) [En] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563028.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Pilot Brothers 2 / Братья Пилоты 2: Дело о серийном м�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562857.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Dreamfall Chapters (2017) [Multi] (5.7.2.1/dlc) License CODEX [The Final Cut Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562743.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Preston Sterling (2016) [Ru/Multi] (1.1) License HI2U [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562722.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Pilot Brothers 3 / Братья Пилоты 3: Обратная сторона 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562719.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Door to Door (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560876.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Alter Cosmos (2018) [En/Pl] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560022.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Lost Eden (1995) [Multi] (1.0cs) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559260.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Firewatch (2016) [Ru/Multi] (1.09) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558364.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Rex Nebular and the Cosmic Gender Bender (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558051.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Conclusion (2016) [Ru/En] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557485.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Myst IV: Revelation (2004) [Multi] (1.03hf2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557172.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ The Free Ones (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557169.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Dreamfall Chapters: The Final Cut (2017) [En/Ge/Fr] (5.7.2.1) Repack R.G. Cataly
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556694.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Trek to Yomi (2022) [Ru/Multi] (1.007) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556321.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Forgotton Anne (2018) [Ru/Multi] (1.0) License PLAZA [The Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556304.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Forgotton Anne (2018) [Ru/Multi] (5.5.3) License GOG [Collector's Upgrade]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555629.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Blame Him (2019) [Ru/Multi] (1.04) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555270.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554963.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Botanicula (2012) [Ru/Multi] (1.2.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554073.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Toki (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553865.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Figment (2017) [Ru/Multi] (1.1.5/dlc) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553800.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (Build 2975-A/dlc) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553150.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Life is Strange 2 (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episodes 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550845.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Parvaneh: Legacy of the Light's Guardians (2016) [En] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550725.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Parvaneh: Legacy of the Light's Guardians - очень красочная игр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C22A685685FB44D66F3608C087F1A4DFEF2663F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237210   (550279) от 25.07.2018
+
+George's Memories (2018) [Ru/En] (1.0/upd1) License PLAZA [Episode 1]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550279.jpg" />
+</div>
+
+
+###  Подробнее
+
+George's Memories — это эпизодическая игра про воспоминания некого Джорджа. Интерактивный квест от первого лица, повествующий о жизни Джорджа — обычного мужчины средних лет, который не может разобраться со своим прошлым. Вам предстоит пройти вместе с ним путь от его детства до настоящего времени, окунуться в тайны прошлого и узнать о том, что Джордж скрывает от всех (   Читать дальше...   )Тип издания: LicenseРазработчик: TsurudeiraЖанр: Adventure (Interactive), Simulator, 1st Person, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987F17188BC71128A6D5E0A5D44C27320B17EB72
 ```
 
 https://mybot314.ru/tekegram_catalog/

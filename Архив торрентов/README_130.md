@@ -6,7 +6,7 @@ Rhinoceros 7 v7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025135.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Josh A - Fearless (2019) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025131.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Ashnikko - Hi, It's Me (2019) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025121.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Iamjakehill - Autumn Gloom (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Trap, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025107.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Ulysses 22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025106.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ PeaZip 7.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025101.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Firefox Browser ESR 78.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025094.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Vidmore Video Converter 2.1.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025085.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Firefox Browser 87.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025077.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Mozilla FireFox 87.0.0.7747 Portable by JolyAnderson [Multi/Ru] (авторск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025058.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Transcend Elite Data Management 4.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025053.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ MacMagic 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024957.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ DVD-Cloner 2021 v8.00.722 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024954.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ n-Track Studio Suite 9.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024953.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Grids for Instagram 6.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024948.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VisualDiffer 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024943.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024929.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Firefox Browser 78.9.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024917.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Crunchyroll v3.5.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024910.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Machine Gun Kelly - Hotel Diablo (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024908.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Avast Clear 21.2.6096.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024907.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Firefox Browser 87.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024901.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Wise Care 365 Pro 5.6.5.562 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024892.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Topaz DeNoise AI 3.0.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024889.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ InPixio Photo Maximizer Pro 5.2.7748 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024883.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Krita 4.4.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024873.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Snappy Driver Installer Origin R708/ Драйверпаки 19125 [Multi/Ru](Н�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978449.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mozilla Firefox Hybrid 18.0.2 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978377.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GIMP 2.8.4 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978345.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Simple Watcher (Простой наблюдатель) 1.6 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978341.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Actual Window Manager 7.4.2 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978335.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ TuneUp Utilities 2013 13.0.3020.7 Final [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978314.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Dr.Web Security Space 8.0.2.2040 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978309.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978307.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ TuneUp Utilities 2013 13.0.3020.7 Final RePack (& portable) by KpoJIuK [Русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978296.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ K-Lite Codec Pack 9.7.5 (Basic, Standart, Full, Mega, x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978272.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dr.Web Anti-Virus 8.0.2.2040 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978268.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Wireless Network Watcher 1.57 + Portable [Английский / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978257.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Avant Browser Ultimate 2016 build 2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978112.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Password Safe 3.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978109.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ MKVToolNix 8.8.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977885.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ YTD Video Downloader PRO 5.9.14.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977845.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977842.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ YoWindow Unlimited Edition 3S Build 142 Final Portable by KGS [Multi\Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977806.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ LibreOffice 6.4.0.3 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977647.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Luminar 4.1.1.5307 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977644.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Movavi Photo Editor 6.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977642.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Ditto Clipboard Manager 3.22.88.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977636.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Teorex Inpaint 5.0 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977594.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Unity3D Pro 5.3.1f1 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977591.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ AdminPE 2.9 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977583.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Ableton Live Suite 9.5 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977577.jpg" />
 </div>
 
 

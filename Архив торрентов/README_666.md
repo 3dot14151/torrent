@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905429.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Aiseesoft Data Recovery 1.2.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905413.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905389.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ O&O DiskImage Professional 16.5 Build 241 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905344.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ReviverSoft Driver Reviver 5.39.2.14 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905335.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Unreal Commander 3.57 Build 1496 + Portable + GraphXPackv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905332.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ BetterZip 3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905323.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Melodic Journeys - Japan Vol. 2 (mixed and compiled  by Dave Pineda) (2017)
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905322.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Black Anvil - 4 Albums (2008-2017) [FLAC|Lossless|image + .cue] <Blackened Thras
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905312.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ TinkerTool System 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905309.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Tooth Fairy 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905307.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ IObit Uninstaller Pro 11.0.1.14 Portable by Jooseng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905278.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ DP Animation Maker 3.5.00 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905274.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ CrystalDiskInfo 8.12.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905247.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ IcoFX 3.3 Portable by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905231.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ LosslessCut 3.39.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905228.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Sumatra PDF 3.3.12402 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905227.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ EZ CD Audio Converter 9.4.0.1 (x64) Portable by conservator [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905204.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Topaz Gigapixel AI 5.6.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905149.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Thomas Barquee - Missa (2002) [FLAC|Lossless|image + .cue] <New Age, World Fusio
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905127.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Return To The Classixx (2009) [MP3|128 - 320 (~206) kbps]<EBM / Industrial>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905126.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ SpeedyFox 2.0.28 Build 145 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905116.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Abora Recordings - Best of 2016 (Mixed by Ori Uplift, Receptive, & illithea
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905115.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ CCleaner Browser 80.0.3626.135 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905108.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905096.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Serial Box 02-2017 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905094.jpg" />
 </div>
 
 

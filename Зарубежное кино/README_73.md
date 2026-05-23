@@ -1,55 +1,3 @@
-###  Публикация: 1610203   (1042660) от 06.02.2023
-
-Один день / One Day / Eoneunal (2017) WEBRip ViruseProject [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-После смерти жены следователь из страхового агентства Кан-су медленно и мучительно возвращается к трудовым будням. Начальник даёт ему задание побыстрее разобраться с делом слепой женщины Ми-со, попавшей в аварию. Кан-су приходит в больницу, чтобы проверить лежащую в коме клиентку, и встречает её же живой и невредимой. Точнее, её дух, который способен видеть и слышать (   Читать дальше...   )Производство: Корея Южная / Invent StoneЖанр: драма, фэнтезиРежиссер: Ли Юн-гиАктеры: Ким Нам-гиль, Чхон У-хи, Чон Сон-гён, Лим Хва-ён, Пак Хи-бон, Чон Сун-вон, Ким Джон-хён, Ли Су-ин, Ли Сын-ён, Чон Ю-рим и др.Перевод: Профессиональный (многоголосый, закадровый) (ViruseProject)Язык озвучки: Русский, корейскийСубтитры: Русские, английские (отдельно)Продолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17E926431110C68D389C5A65BF11BF0150AB80D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610202   (1042652) от 06.02.2023
-
-Один день / One Day / Eoneunal (2017) WEBRip [H.264/1080p] ViruseProject [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-После смерти жены следователь из страхового агентства Кан-су медленно и мучительно возвращается к трудовым будням. Начальник даёт ему задание побыстрее разобраться с делом слепой женщины Ми-со, попавшей в аварию. Кан-су приходит в больницу, чтобы проверить лежащую в коме клиентку, и встречает её же живой и невредимой. Точнее, её дух, который способен видеть и слышать (   Читать дальше...   )Производство: Корея Южная / Invent StoneЖанр: драма, фэнтезиРежиссер: Ли Юн-гиАктеры: Ким Нам-гиль, Чхон У-хи, Чон Сон-гён, Лим Хва-ён, Пак Хи-бон, Чон Сун-вон, Ким Джон-хён, Ли Су-ин, Ли Сын-ён, Чон Ю-рим и др.Перевод: Профессиональный (многоголосый, закадровый) (ViruseProject)Язык озвучки: Русский, корейскийСубтитры: Русские, английские, японскиеПродолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE6160B08BA7CC46503D85B71A9C0F56788E98B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436809   (1042643) от 02.01.2021
 
 Осторожно, Кенгуру! / Die Kanguru-Chroniken (2020) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042643.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042620.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042607.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042590.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042586.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042578.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042575.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042570.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042520.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042497.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042494.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042468.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042462.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042451.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042450.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042425.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042422.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042418.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042417.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042416.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042408.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042403.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042401.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042395.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABFB38EE73E383902A1F4AC4CB13354554491ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610370   (1042393) от 07.02.2023
+
+Любимое время года / Ma saison preferee / My Favorite Season (1993) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эмили исполнилось 45. Она работает в нотариальной конторе. Обаятельна и привлекательна. Как кажется, у неё есть всё для счастья, но Эмили ничего и никого не хочет. Ей нужно, чтобы её полюбили, но может ли она любить сама? Антуан - брат Эмили. Ему 40. Он работает нейрохирургом в Тулузе. Антуан - убежденный холостяк. У него единственный интерес в жизни: изучение человеческого (   Читать дальше...   )Производство: Франция, D.A. Films, Les Films Alain Sarde, TF1 Films ProductionЖанр: драма, комедияРежиссер: Андре ТешинеАктеры: Катрин Денёв, Даниель Отой, Марта Вильялонга, Жан-Пьер Бувье, Кьяра Мастроянни, Кармен Чаплин, Энтони Прада, Мишель Моретти, Жак Ноло, Бруно ТодескиниПеревод: профессиональный многоголосыйЯзык озвучки: русский, францускийСубтитры: русские, английскиеПродолжительность: 02:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AADBF6C2CF4EBC1454CB95EB72D6F82C59A3730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437046   (1042389) от 03.01.2021
+
+Осторожно, Кенгуру! / Die Kanguru-Chroniken (2020) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марк — музыкант, живущий в заброшенной квартире в Берлине. Однажды раздается звонок в дверь, и он оказывается лицом к лицу с говорящим Кенгуру. Быстро убедив Марка, что вместе им будет гораздо веселее, Кенгуру без дальнейших церемоний переезжает в его холостяцкое жилье. С этого момента он начинает править жизнью Марка, задавая ему философские вопросы и доставляя (   Читать дальше...   )Производство: Германия / X-Filme Creative Pool, Zweites Deutsches Fernsehen (ZDF), TrixterЖанр: КомедияРежиссер: Дани ЛевиАктеры: Дмитрий Шаад, Розалия Томас, Аднан Марал, Фолькер Михаловски, Тим Сейфи, Кармен-Майя Энтони, Беттина Лампрехт, Хенри Хюбхен, Марк-Уве Клинг, Фред Аарон БлакеПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C211BCD346945511D44FCBE5134EB241C0C2E319
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1815163   (5582) от 28.08.2025
-
-Мультфильмы v288 Mod by clubtime2009 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Смотрите любимые Мультфильмы и Сказки онлайн прямо сейчас. Хотите всегда иметь доступ к анимационному контенту Мультфильмов и Сказок и получать новинки каждый день?Тип издания: AdfreeРелиз состоялся: 27.08.2025Разработчик: Мульт твПоддерживаемая ОС: Android / Android TV 5.0Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E773D5CC7566C0E544622B3E7E5DF805F1D45F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815165   (5540) от 28.08.2025
-
-Cat Scanner / Сканер породы кошек v22.2.15-G Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Приложение Cat Scanner надежно идентифицирует породу вашей кошки всего за несколько секунд! Помимо фотографии, вы также можете записать видео или загрузить изображение из своей галереи. Узнать кошку так же легко, как и получить! Несмотря на небольшой размер приложения, вы получите все возможности и сможете в любое время определить породу кошки или получить доступ (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.08.2025Разработчик: Siwalu Software GmbHПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA2F09C5C031E2C05C282EE40E83EB2987ED511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815168   (5524) от 28.08.2025
 
 Dog Scanner: Породы собак v22.2.15-G Mod by PieMods [Ru/Multi]
@@ -58,7 +6,7 @@ Dog Scanner: Породы собак v22.2.15-G Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5524.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Patephone / Патефон v14.8.2 Mod by OsitKP [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5261.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Revo Uninstaller Mobile v3.4.330G Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5242.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5200.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ Karing 1.2.3.857 (Pre-release) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5195.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ Photo Editor v11.9 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5146.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ GPS Эмулятор v3.07 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5025.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ WiFi Analyzer v6.3 (b101) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5017.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ Tricky Words / Хитрое слово: слова из букв v10.1.1 Mod by 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5011.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5005.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ TikTok Private Plus v41.5.5 Mod by TikTok + Plugin Update 2.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5001.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4996.jpg" />
 </div>
 
 
@@ -377,7 +325,7 @@ Smart AudioBook Player Pro v11.5.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4985.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4967.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ Photo Editor v11.9 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4936.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ Word Learn Languages v5.12 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4700.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4698.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ ElectroBox - Electronics v50 Mod by Viktor245 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4696.jpg" />
 </div>
 
 
@@ -533,7 +481,7 @@ Mock Locations (fake GPS path) v1.35.6 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4673.jpg" />
 </div>
 
 
@@ -559,7 +507,7 @@ Simple PDF Reader \ Простой PDF Reader v1.0.92 Mod by Alex.Strannik [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4563.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4560.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ Bazaart: Photo Editor & Graphic Design v3.3.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4536.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4531.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ MIUI-ify v1.10.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4481.jpg" />
 </div>
 
 
@@ -674,6 +622,62 @@ MIUI-ify обеспечивает плавную, быструю и естест
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:734D17D2060D545F411D284CD8D4693DE84A8BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816402   (4476) от 04.09.2025
+
+МТС Music v9.55.1 Mod by Alex.Strannik [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альтернатива классической Яндекс Музыке с точно такой же базой музыки, но с немного другим интерфейсом и поддержкой устаревающих устройств. В наличии обширный каталог списков под ваше настроение и разнообразных хитпарадов. Работает хорошо. МТС Music — это 65 миллионов треков, подкасты и радио для абонентов любых операторов.
+
+МТС Music без подписки это:
+• радио и (   Читать дальше...   )Тип издания: ModРелиз состоялся: 04.09.2025Разработчик: MTS PJSCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF84C0E08A9D222DFD3ABE21E3FE21370BEB6D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816396   (4475) от 04.09.2025
+
+ТВ+ Эфир: Цифровое телевидение v4.1.8 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4475.jpg" />
+</div>
+
+
+###  Подробнее
+
+TV+: Бесплатное Онлайн Телевидение
+Погрузитесь в мир бесплатного онлайн телевидения с приложением TV+. Насладитесь основными российскими телеканалами в HD качестве, а также региональным цифровым ТВ прямо на вашем телефоне. С TV плюс вы всегда на связи с любимыми передачами и шоу!Тип издания: ModРелиз состоялся: 02.09.2025Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8605A991C92142CD1CD78E724698F6056A6AD284
 ```
 
 https://mybot314.ru/tekegram_catalog/

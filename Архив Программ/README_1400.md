@@ -6,7 +6,7 @@ F-Secure Freedome VPN 2.55.431  RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326965.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ F-Secure Freedome VPN 2.55.431.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326964.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Skype 7.14.0.105 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326714.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Avira AntiVirus Free 2015 15.0.14.259 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326663.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Free Studio 6.5.11.1117 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326662.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TapinRadio Pro 1.72 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326595.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TapinRadio Pro 1.72 Repack by VandIT [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326593.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Skype 7.14.0.106 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326541.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Soft Organizer 5.02 RePacK by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326535.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Opera 33.0.1990.115 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326525.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ ReviverSoft Driver Reviver 5.3.2.28 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326523.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ SoftColor PhotoEQ 1.9.7 RePack (& Portable) by Dinis124-78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326474.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ DFX Audio Enhancer 12.012 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326469.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sandboxie plus 1.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326420.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Sandboxie 5.59.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326414.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ GameSave Manager 3.1.442.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326401.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Bandicam 2.4.1.903 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326397.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ IObit Driver Booster Pro 3.1.0.332 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326385.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ pdfFactory Pro 8.28 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326361.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ EssentialPIM Pro 11.1.6 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326358.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Emurasoft EmEditor Professional 22.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326357.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Google Chrome 106.0.5249.103 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326353.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ FinePrint 11.28 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326351.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Wise Disk Cleaner 10.9.3.809 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326347.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ TapinRadio 2.15.95.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326346.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Bandicam 6.0.3.2022 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326345.jpg" />
 </div>
 
 

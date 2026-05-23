@@ -6,7 +6,7 @@ Privacy Eraser Free 4.8.0 Build 1760 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987311.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AVG LinkScanner 2013.0.2897 13.0.2897 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987251.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ GTD Timer 2015 R10 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987241.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ FotoMorph 13.7 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987180.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ FotoMorph 13.7.2 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987175.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ YoWindow Unlimited Edition 3S Build 137 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987167.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Adobe Flash Player for Internet Explorer 20.0.0.270 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987156.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ KCleaner 2.6.5.67 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987146.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ WebBrowserPassView 1.70 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987095.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Acronis Backup Advanced Workstation / Server 11.5 Build 43994 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987086.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ FotoMix 9.0 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987073.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ YoWindow Unlimited Edition 3S Build 137 Final [Multi/Rus] Portable by KGS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987069.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Light Alloy 4.70 Build 1256 RC2 Portable [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987068.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Inno Setup 5.5.3 [Multi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987011.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Zoner Photo Studio X 19.1909.2.204 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986991.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Zoner Photo Studio X 19.1909.2.204 RePack by KpoJIuK [Ru/En] [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986985.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Maxthon 4.0.3.3000 RC [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986959.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ MAGIX Sound Forge Pro 13.0 Build 131 RePack by Diakov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986933.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ AVS Audio Converter 7.0.5.510 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986898.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Browser Password Decryptor 3.5 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986885.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ UltraUXThemePatcher 3.7.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986868.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ AI RoboForm Enterprise 7.8.6.5 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986834.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ AVG Anti-Virus Free 2013 13.0.2897 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986830.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ PreSonus - Studio One Professional 4.6.1.55987 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986823.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ ZWCAD 2019 SP2 v.2019.01.28 41803 x86 Portable by conservator [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986820.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Microsoft Visual C++ 2015-2019 Redistributable 14.25.28508.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986819.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Discovery. Законы акульего мира / The laws of Jaws (2018) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784192.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784181.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784180.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery. Ледяное золото / Ice Cold Gold (2014) HDTVRip [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777433.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery: Курс выживания с Беаром Гриллсом / Bear G
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777088.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: Золотая лихорадка / Gold Rush (2016) HDTVRip (сез�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777009.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery. Секреты подземелья / Secrets of the Underground (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776989.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery: Тесла. Рассекреченные архивы / Tesla's Death
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774890.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery: Тесла. Рассекреченные архивы / Tesla's Death
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774874.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery: Мир стволовых клеток со Стивеном Хоки
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774075.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772721.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Discovery. Шахты на Луне / Mining the Moon (2008) HDTVRip [H.264/720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771166.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Discovery. Эд Стаффорд: Игра на вылет / Ed Stafford: First 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769317.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767537.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Discovery: Экватор / Equator (2005) BDRemux [H.264/1080i] (серии 1-6
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766747.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766082.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Discovery. Техногеника. Гиперболоидные конструк
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765372.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765359.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Discovery: Остров с Беаром Гриллсом / The Island with Bear 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765274.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763116.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Discovery: Новый Мир. Метро будущего / Discovery: Next Worl
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760973.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Discovery: Через червоточину с Морганом Фримено�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759745.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Discovery. Беар Гриллс: Выбраться живым / Get Out Alive 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_758900.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Discovery. Американские гангстеры / American Gangsters (200
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757329.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Discovery. Чужая планета  / Alien Planet (2005) HDTVRip [H.264/720p-
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751641.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Discovery. Техногеника. Ту-144. Первый пассажирски
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749957.jpg" />
 </div>
 
 

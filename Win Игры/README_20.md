@@ -6,7 +6,7 @@ Dofamine (2020) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059336.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ChromaGun 2: Dye Hard (2026) [Ru/Multi] (0.1.908) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059335.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Half-Life: Alyx (2020) [Ru/Multi] (1.5.4/dlc) Repack FitGirl [VR, NoVR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059297.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BioShock Infinite (2013) [Ru] (1.0.1643565/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059265.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BioShock 2 Remastered (2016) [Ru] (Build 8552776) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059231.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack Wanterl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059224.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ High On Life 2 (2026) [Ru/Multi] (Build 21897943/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059211.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ High On Life 2 (2026) [Ru/Multi] (Build 21996152) Repack HardwareMining
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059210.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack Let'sРlay [Master 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059184.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ World of Outlaws: Dirt Racing 24 (2025) [En] (1.0) Scene Tenoke [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059183.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Escape from Yandere (2026) [Ru/En] (Build 21831506) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059182.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Havendock (2023) [Multi] (1.4.3f3.s-off/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059181.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Scene voices38 [Master Ass
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059168.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack FitGirl [Master Ass
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059151.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Grand Theft Auto IV (2008-2010) [Ru/En] (1.0.7.0/1.1.2.0) Repack R.G. Games [Com
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059124.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.1180.1) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059062.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Alan Wake Remastered (2021) [Ru/Multi] (34885/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059011.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Scott Pilgrim vs The World: The Game (2023) [Ru/En] (Build 10135169/dlc) Repack 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059008.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Dark Light (2020) [Ru/Multi] (1.1.0.13) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058961.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20251021 1503-330668/dlc) Repack Hardwar
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058932.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Perfect Pencil (2026) [Ru/Multi] (Patch 2) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058902.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Final Fantasy IV (4) (2014) [Ru/En] (1.0) License GOG [3D Remake]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058891.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Final Fantasy IX (9) (2016) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058890.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Final Fantasy VIII (8) - Remastered (2019) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058889.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Sector Unknown (2025) [Ru/Multi] (2.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058888.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Alan Wake Remastered (2021) [Ru/Multi] (1.33/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058864.jpg" />
 </div>
 
 

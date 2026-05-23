@@ -1,117 +1,3 @@
-###  Публикация: 1781470   (26695) от 23.02.2025
-
-Квартирник у Маргулиса. Radio Tapok (22.02.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-История проекта началась в 2016 году, когда музыкант Олег Абрамов начал перепевать иностранные песни на русском языке. Он настолько виртуозно укладывал смысл в мелодию и ритм, что вызывал восхищение у авторов оригинальных композиций. Широкий диапазон голоса позволял Абрамову исполнять творчество разных рок-групп от System of a Down и Metallica до Linkin Park и Twenty (   Читать дальше...   )00:00:05 Ермак
-00:07:06 Петропавловск
-00:13:11 Императрица
-00:18:23 Фрау Чёрная Смерть(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Рок, хэви-металЯзык озвучки: РусскийПродолжительность: 01:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A7A087C78A95EB59F4E25C8B5E8F1F4AE0FCED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782700   (25936) от 02.03.2025
-
-Квартирник у Маргулиса. Александр Ф. Скляр и «Ва-Банкъ» (01.03.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-«Ва-Банкъ» — московская рок-группа. Образована в 1986 году.
-За время своего существования группа экспериментировала в различных музыкальных направлениях. Начав с ритм-энд-блюза с элементами панка, позже стали играть жесткий хардкор, параллельно делая и акустические программы. В конце 90-х в альбоме «Нижняя тундра» группа попыталась ввести в свою музыку электронные (   Читать дальше...   )00:00:06 Модест The Best
-00:06:07 Кухня
-00:13:32 Провокация
-00:20:52 Крысы не бьют чечетку(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Rock, soft rock, ритм-энд-блюз, хардкорЯзык озвучки: РусскийПродолжительность: 01:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284423AC75315801AF943209C9305863D48BAE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771436   (25816) от 04.03.2025
-
-Солярис (1968) DVDRip [H.264] (серии 1-2 из 2)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одноименного романа известного польского писателя Станислава Лема. «Солярис» — телеспектакль в 2-х сериях. Малоизвестный ныне киноматериал, поскольку его полностью заслонил вышедший на несколько лет позже знаменитый фильм Андрея Тарковского (но как знать, не натолкнул ли Тарковского именно этот спектакль на мысль о своем фильме?). Однако, если не сравнивать (   Читать дальше...   )Производство: СССР / Центральное ТелевидениеЖанр: Телеспектакль, фантастика, драма, экранизацияРежиссер: Борис Ниренбург и Лидия ИшимбаеваАктеры: Василий Лановой, Антонина Пилюс, Владимир Этуш, Виктор Зозулин, Анатолий Кацынский, Вячеслав ДугинСубтитры: русскиеПродолжительность: 02:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02952C240EA179CCA62D70F9419FF3FC4ACE7AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782993   (25796) от 04.03.2025
-
-Кипелов - Концерт в ВТБ АРЕНА (13 июля 2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Крупнейший концерт группы "Кипелов" в Москве, приуроченный к 66-летию Валерия Кипелова, - бессменного лидера группы.01. Интро
-02. На распутье
-03. Дыхание тьмы
-04. Вавилон(   Читать дальше...   )Производство: Россия, КА "Мельница"Жанр: рок, симфоник-метал, хард-н-хевиРежиссер: Алексей Харьков, Евгений ОдинцовУчастники: солист  Валерий Кипелов, гитарист Вячеслав Молчанов, гитарист Андрей Голованов, бас-гитарист Алексей Харьков и барабанщик Александр МанякинСубтитры: отсутствуютПродолжительность: 02:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A077FE99ACF78EC6646F1CFDF6883DE06A80BA26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788098   (23096) от 29.03.2025
 
 Цезарь и Клеопатра (1979) DVDRip
@@ -120,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23096.jpg" />
 </div>
 
 
@@ -147,7 +33,7 @@ eRa: The Live Experience 2025 (2025) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23090.jpg" />
 </div>
 
 
@@ -178,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22205.jpg" />
 </div>
 
 
@@ -204,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21666.jpg" />
 </div>
 
 
@@ -230,7 +116,7 @@ STAYC - GPT (On the Spot) (2024) UHDTVRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21260.jpg" />
 </div>
 
 
@@ -256,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21009.jpg" />
 </div>
 
 
@@ -283,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21003.jpg" />
 </div>
 
 
@@ -310,7 +196,7 @@ Lady Gaga на фестивале Coachella 2025 / Lady Gaga at Coachella Festiv
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20926.jpg" />
 </div>
 
 
@@ -338,7 +224,7 @@ Lady Gaga на фестивале Coachella 2025 / Lady Gaga at Coachella Festiv
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20921.jpg" />
 </div>
 
 
@@ -365,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20862.jpg" />
 </div>
 
 
@@ -395,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20857.jpg" />
 </div>
 
 
@@ -424,7 +310,7 @@ Jennie, Dua Lipa - Handlebars (2025) WEBRip [H.265/2160p] [AI Remaster]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20815.jpg" />
 </div>
 
 
@@ -450,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20066.jpg" />
 </div>
 
 
@@ -479,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19781.jpg" />
 </div>
 
 
@@ -505,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19002.jpg" />
 </div>
 
 
@@ -531,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18706.jpg" />
 </div>
 
 
@@ -560,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18360.jpg" />
 </div>
 
 
@@ -586,7 +472,7 @@ Scooter - Live in Moscow (2000) VHSRip [H.264/1080p-LQ] [hand made upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18093.jpg" />
 </div>
 
 
@@ -615,7 +501,7 @@ Scooter - Live at Rock Am Ring festival (2022) WEB-DL [H.265/2160p] [hand made u
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18087.jpg" />
 </div>
 
 
@@ -644,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17974.jpg" />
 </div>
 
 
@@ -673,7 +559,7 @@ Gyeongree - Cherry (2024) WEBRip [H.265/2160p] [60 fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17884.jpg" />
 </div>
 
 
@@ -699,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17785.jpg" />
 </div>
 
 
@@ -713,6 +599,116 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFCCDCE32E19045C7E551FC56E5F09389C97A893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798084   (17691) от 20.05.2025
+
+Валерия - Ураган (2025) WEBRip [H.264/1080p/1440/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера клипа. Валерия - Ураган (Official Music Video)Производство: Россия | Valeriya & Prigozhin Production, Hana Road ProductionЖанр: ПопРежиссер: Артемий ШульгинПродолжительность: 00:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F2269705533F409EFD54B53F6FF61F7813FC33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798565   (17378) от 22.05.2025
+
+Квартирник у Маргулиса. Проект «Горшенёв» (12.04.2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Горшенёв — музыкант, композитор и автор слов — одна из знаковых фигур в российской рок-музыке. В этом году ему исполняется 50 лет и значимой частью юбилейного года станет квинтэссенция всего его творческого пути. Проект «Горшенёв» — своего рода дань памяти ушедшему из жизни лидеру группы «Король и Шут» и старшему брату Алексея — Михаилу. Коллектив был основан (   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: РокЯзык озвучки: РусскийПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300FF8A56EA269872C7DD9D657E43E4A9312AA68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798600   (17015) от 25.05.2025
+
+Щелкунчик Большой театр (2018) HDTVRip [AV1/2160p] [50 fps, handmade upscale AI]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17015.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Щелкунчик» Петра Ильича Чайковского – самая новогодняя из всех сказок.
+А балет Юрия Григоровича самый новогодний из всех «Щелкунчиков».
+С первых тактов музыки, с первой снежинкой, летящей над сценой, зрителей неизбежно накрывает предвкушение настоящего праздника.
+Девочки в нарядных платьицах, мальчики с сабельками, чудесные игрушки Дроссельмейера – и, наконец, под (   Читать дальше...   )Производство: Россия, Большой театрЖанр: балет, музыкаРежиссер: Юрий ГригоровичУчастники: Мари - Маргарита Шрайнер,  Щелкунчик-принц - Семён Чудин,  Советник суда Дроссельмейер - Денис Савин,  Мышиный король - Александр ВодопетовСубтитры: отсутствуютПродолжительность: 02:20:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0B6B665401E60F234A38AE66F5DAA140D727D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798990   (16970) от 25.05.2025
+
+Квартирник у Маргулиса. Группа «Нееет, ты что» (24.05.2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа «Нееет, ты что» была образована в Махачкале в 2020 году. Ее название олицетворяет первую мысль слушателей при знакомстве с нетипичной для Дагестана музыкой коллектива. Их творчество — это сплав джаза, фанка, хауса, хип-хопа и электроники с россыпью локальных отсылок и сленга в текстах. Благодаря самобытному стилю и звучанию, за короткий срок «Нееет, ты что» (   Читать дальше...   )00:00:01 Нишуу
+00:05:55 Но
+00:11:44 Дэмиладе
+00:19:35 1,2,3(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Инди-поп, джаз, фанк, хаус, хип-хопЯзык: РусскийПродолжительность: 01:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777C5727FE3301F1AFE5BA7A579F6DE4D7B1529A
 ```
 
 https://mybot314.ru/tekegram_catalog/

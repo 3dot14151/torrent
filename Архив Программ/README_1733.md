@@ -6,7 +6,7 @@ Ableton - Live Suite 11.2.11 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200887.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Topaz Photo AI 1.2.8 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200886.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ ALLPlayer 8.9.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200885.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Adobe Acrobat Pro 23.001.20093.0 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200877.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v6 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200876.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Adobe Bridge 2023 13.0.3.693 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200867.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Adobe Photoshop 2023 24.3.0.376 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200853.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ PC HelpSoft Driver Updater 6.3.939 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200845.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VSDC Video Editor Pro 8.1.3.459 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200836.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Vivaldi 5.7.2921.65 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200834.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ CPU-Z 2.05.1 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200833.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Far Manager 3.0.6116 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200823.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Windows 11 (v22h2) x64 PRO by KulHunter v4 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200812.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ AnyDesk 7.1.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200798.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ ReNamer Pro 7.5 + Standalone (Portable) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200788.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ MAGIX Vegas Pro 20.0 Build 370 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200786.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Adobe Acrobat Pro 23.001.20093.0 (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200773.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Tor Browser Bundle 12.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200755.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Ashampoo Burning Studio 24.0.3.27 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200751.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ MemTest86 10.3 Build 1000 Pro by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200746.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Extended GodMode 1.0.2.17 (DC 2023-03-17) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200739.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ WinTools.net Premium 23.4.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200735.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ AIDA64 Extreme Edition 6.88.6400 RePack by ivandubskoj [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200731.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Waves Ultimate 2023.03.26 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200729.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.88.6400 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200727.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Psiphon 3 build 178 (27.03.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200723.jpg" />
 </div>
 
 

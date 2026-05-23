@@ -1,29 +1,3 @@
-###  Публикация: 1358339   (963943) от 12.02.2020
-
-Интернет Контроль Сервер 7.0.1 [x86, amd64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Отечественный интернет-шлюз Интернет Контроль Сервер — это единое решение для комплекса задач, возникающих при организации локальной сети. В их числе контроль и обеспечение безопасности пользования интернетом, фильтрация контента, организация учета трафика, разграничение прав доступа для пользователей. Мы собрали в решении все функции, которые могут пригодиться. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98ECEB6B5624AF5E2112BB74D885AA1048007BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 746730   (963603) от 18.01.2014
 
 BackBox Linux 3.13 (Анализ безопасности, хакинг) [i386, amd64] 2xDVD
@@ -32,7 +6,7 @@ BackBox Linux 3.13 (Анализ безопасности, хакинг) [i386, 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963603.jpg" />
 </div>
 
 
@@ -62,7 +36,7 @@ ArchLinux 2013.02.01 [i686 + x86_64] (1xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962599.jpg" />
 </div>
 
 
@@ -90,7 +64,7 @@ Mageia 4 RC [i586, x86-64] 7xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962432.jpg" />
 </div>
 
 
@@ -124,7 +98,7 @@ Q4OS 1.4.6 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961958.jpg" />
 </div>
 
 
@@ -152,7 +126,7 @@ Debian GNU/Linux 8.3.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960879.jpg" />
 </div>
 
 
@@ -180,7 +154,7 @@ KNOPPIX 7.6.1 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960763.jpg" />
 </div>
 
 
@@ -206,7 +180,7 @@ Debian GNU/Linux 8.3.0 Jessie [amd64] 3xDVD, 2x update DVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959529.jpg" />
 </div>
 
 
@@ -234,7 +208,7 @@ ROSA Desktop Fresh (KDE + Plasma) R7 [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959496.jpg" />
 </div>
 
 
@@ -262,7 +236,7 @@ SolusOS 1.3 (Debian + Gnome) [x86, amd64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958520.jpg" />
 </div>
 
 
@@ -290,7 +264,7 @@ BackBox Linux 4.5 [Анализ безопасности, хакинг] [i386, a
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958189.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Tor Browser 2.3.25-4 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957534.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Debian GNU/Linux 8.3.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957104.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Window Maker Live  0.95.7-2 (Легкий дистрибутив) [i386, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957090.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Debian GNU/Linux 6.0.7 [amd64, x86-64] (10xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956510.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ Debian GNU/Linux 8.3.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955689.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ Tor Browser 5.5 [анонимный доступ в сети] [х86, x64] (bundl
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955673.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ Debian GNU/kFreeBSD 6.0.7 [amd64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955286.jpg" />
 </div>
 
 
@@ -511,7 +485,7 @@ Debian GNU/Linux 6.0.7 [i386] (10xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954954.jpg" />
 </div>
 
 
@@ -539,7 +513,7 @@ Edubuntu 14.04 Alpha II (Ubuntu для школ и вузов) [i386, amd64] 2xD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954300.jpg" />
 </div>
 
 
@@ -567,7 +541,7 @@ Linux Mint 17.1 Rebecca KDE [32bit, 64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952821.jpg" />
 </div>
 
 
@@ -595,7 +569,7 @@ Parted Magic 2020.02.23 [i686/amd64] 1xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947646.jpg" />
 </div>
 
 
@@ -621,7 +595,7 @@ Red Hat Enterprise Linux 6.4 [i386] (DVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946976.jpg" />
 </div>
 
 
@@ -649,7 +623,7 @@ Red Hat Enterprise Linux 6.4 [x86-64] (DVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946883.jpg" />
 </div>
 
 
@@ -677,7 +651,7 @@ Slackware 14.2 Beta2 [x32, x64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945011.jpg" />
 </div>
 
 
@@ -705,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944870.jpg" />
 </div>
 
 
@@ -718,6 +692,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1A5E590867F21903A96A1F38247427D91E6B0F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 626767   (942695) от 06.03.2013
+
+MKVToolNix v6.1.0 ('Old Devil') for Ubuntu 12.04 ('Precise Pangolin')
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942695.jpg" />
+</div>
+
+
+###  Подробнее
+
+MKVToolnix - функциональный набор инструментов для работы с видео-файлами MKV Matroska. Очень полезная программа, позволяет добавлять/убирать звуковые дорожки, субтитры, склеивать/резать файлы. Все очень быстро и понятно. Поддерживаются такие типы видео потоков: AVI, Ogg/OGM, и RealVideo. MKVToolnix - специальный аудио/видео контейнер, похожий на AVI, хранящий в себе огромное количество информации. Формат MKV - открытый проект Матрешка (Matroska), призванный создать единый стандарт мультимедийных контейнеров на ПК. Его особенность, открытость кода, что позволяет совершенствовать данный формат любому программисту мира, а также команде программистов. Формат MKV стал необычайно распространен в последнее время, благодаря своим возможностям и, в частности, преобладанием функций по сравнению с AVI.Язык интерфейса: MulTi/Русский
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

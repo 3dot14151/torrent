@@ -6,7 +6,7 @@ Teekyuu 6 | Теннис 6 [2015, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707587.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Teekyuu 2 | Теннис 2 [2013, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707585.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Usakame | Кролик и черепаха [2016, TV, 12 из 12 + 1 SP из 1] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707583.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Teekyuu | Теннис [2012, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707579.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Teekyuu 7 | Теннис 7 [2016, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707576.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Fukigen na Mononokean | The Morose Mononokean | Обитель мрачного 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707572.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Teekyuu 8 | Теннис 8 [2016, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707533.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Teekyuu 9 | Теннис 9 [2017, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707522.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Blend S | Садистская смесь [2017, TV, 12 из 12] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707517.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Iriya no Sora, UFO no Natsu | Sky of Iriya, Summer of UFO | Небо Ирии, �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707035.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Project K: Missing Kings | К: Пропавшие короли [2014, Movie] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706741.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Shigatsu wa Kimi no Uso / Your Lie in April / Твоя апрельская ло
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706394.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Soushin Shoujo Matoi | Matoi the Sacred Slayer | Матой: Изгоняюща�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706385.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Short Peace: Buki yo Saraba | Gambo | Hi no Youjin | Tsukumo [2012-2013, MV, 4 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705829.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Taiho Shichau zo: Second Season / You're Under Arrest Second Season / Вы ар�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704613.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Koutetsujou no Kabaneri | Kabaneri of the Iron Fortress | Кабанери из 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704473.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Nora | Twinkle Nora Rock Me! | Нора | Сверкающая Нора: Без 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704117.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Hello!! Kin`iro Mosaic | Hello!! Golden Mosaic | Привет!! Золотая �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703837.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Yumeiro Patissiere / Dream-Colored Pastry Chef / Великолепный Кон
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703648.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Sakura Quest | Квест на фоне сакуры [2017, TV, 25 из 25] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703540.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703100.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Omoide no Marnie / When Marnie Was There / Воспоминания о Марн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702756.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Glass no Kamen / The Glass Mask / Стеклянная маска [ТВ-1] [1984
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702748.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Yama no Susume: Second Season | Encouragement of Climb: Second Season | В го�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701942.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Endride | Эндрайд | Скиталец Эндры [2016, TV, 24 из 24] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701578.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Nyan Koi! / Nyankoi! / Кошачьи Прихоти! [2009, TV, 12] BDrip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700601.jpg" />
 </div>
 
 

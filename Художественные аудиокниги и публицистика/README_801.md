@@ -1,83 +1,3 @@
-###  Публикация: 1667664   (176049) от 09.10.2023
-
-Фридрих Незнанский | Марш Турецкого. Похищение казачка (2023) [MP3, Андрей Паньшин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Аналитик Волжского управления ФСБ обещал передать заместителю Генерального прокурора Меркулову информацию о коррумпированности своего руководства и… исчез. Теперь его ищут и волжская спецслужба, опасающаяся разоблачения, и Генпрокуратура – Меркулов отправляет в провинцию Александра Турецкого. Цель визита: инкогнито пройтись по следам секретного доклада, выяснить (   Читать дальше...   )Жанр: ДетективИздательство: ЛитРес: чтецПродолжительность: 09:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31266B0C893BDAFBD084FA82542F9C94171D48FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595217   (176044) от 04.12.2022
-
-Борис Акунин | Приключения Эраста Фандорина (Книга 9). Любовник Смерти (2008) [MP3, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Смерть - одна из героинь романа, получившая свое прозвище по двум причинам. Во-первых, она несколько раз была на волоске от гибели, но каждый раз оставалась жива и невредима. А во-вторых, все ее кавалеры погибали вскоре после того, как начинали за ней ухаживать. Девушка со страшным прозвищем Смерть так понравилась жителю Хитровки Сеньке Скорикову, что он решается (   Читать дальше...   )Жанр: Современная проза, детективПродолжительность: 12:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780104B36E082450B0C79F637619449A5A702A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667724   (176041) от 09.10.2023
-
-Михаил Шолохов | Они сражались за Родину (2023) [MP3, Александр Дунин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Михаил Александрович Шолохов (1905—1984) – один из наиболее значительных писателей русской советской литературы, обладатель Нобелевской премии.
-
-В настоящую книгу вошли главы из романа «Они сражались за Родину». Будучи военным корреспондентом во время Великой Отечественной войны, Шолохов собирал материал от непосредственных участников событий и опирался на собственные (   Читать дальше...   )Жанр: Проза, Военный романИздательство: ЭксмоПродолжительность: 09:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0AEDF417D3552070E5B0FA4A32320375A9738C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595091   (176030) от 04.12.2022
 
 Роберт Асприн | Холодные финансовые войны (2022) [MP3, Сергей Оробчук]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176030.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176012.jpg" />
 </div>
 
 
@@ -141,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176006.jpg" />
 </div>
 
 
@@ -167,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175977.jpg" />
 </div>
 
 
@@ -193,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175976.jpg" />
 </div>
 
 
@@ -221,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175952.jpg" />
 </div>
 
 
@@ -247,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175950.jpg" />
 </div>
 
 
@@ -276,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175937.jpg" />
 </div>
 
 
@@ -302,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175930.jpg" />
 </div>
 
 
@@ -328,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175925.jpg" />
 </div>
 
 
@@ -356,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175924.jpg" />
 </div>
 
 
@@ -382,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175911.jpg" />
 </div>
 
 
@@ -408,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175904.jpg" />
 </div>
 
 
@@ -437,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175896.jpg" />
 </div>
 
 
@@ -463,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175885.jpg" />
 </div>
 
 
@@ -492,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175881.jpg" />
 </div>
 
 
@@ -518,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175870.jpg" />
 </div>
 
 
@@ -544,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175869.jpg" />
 </div>
 
 
@@ -570,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175845.jpg" />
 </div>
 
 
@@ -596,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175836.jpg" />
 </div>
 
 
@@ -622,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175810.jpg" />
 </div>
 
 
@@ -650,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175762.jpg" />
 </div>
 
 
@@ -676,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175760.jpg" />
 </div>
 
 
@@ -689,6 +609,90 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82CF1A1F23AD2C5AB27803A69BF7F6324EBC5959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667668   (175733) от 09.10.2023
+
+Павел Вяч | Претендент (Книга 7). Воля рода (2023) [MP3, Вадим Пугачев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Твой клинок поет песнь победы?
+Род процветает?
+Старые долги розданы?
+Порог ждет Претендента на трон, но кто сказал, что дорога будет проста? Особенно, если идёшь путем Чести.(   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастикаИздательство: ЛитРес, АвторПродолжительность: 09:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FBC6CF07AC22282E29EF687BCD33F8E2772DAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667774   (175725) от 09.10.2023
+
+Роман Афанасьев | Падение Прайма (Книга 2). Голоса Мёртвых (2023) [MP3, Дмитрий Поляков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прайм столица Союза Систем, одна из крупнейших держав Обитаемой Зоны, заселенной выходцами с древней Земли. Но почему война неудержимо ползет к границам Союза, почему в ней участвуют никому не известные корабли и почему на аварийных волнах слышится шепот умирающих в ночи – «не подпускайте их близко».
+Военные усиливают флот, разведка отправляет особую команду на задание, (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, Космическая фантастикаИздательство: ЛитРес: чтецПродолжительность: 09:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F0850628057651A363960B5621566E28BAAA50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429722   (175714) от 07.12.2020
+
+Майкл Бут | Почти идеальные люди. Вся правда о жизни в «Скандинавском раю» (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весь мир сходит с ума по «Хюгге», но так ли идеальна скандинавская философия? Читайте честную книгу о настоящих скандинавах: вы узнаете правду об их жизни и поймете, почему Скандинавские страны стали такими успешными в экономическом и социальном отношении.
+
+Английский журналист Майкл Бут прожил в скандинавских странах более 10 лет и пришел к выводу, что в мире слишком (   Читать дальше...   )Жанр: Зарубежная публицистикаПродолжительность: 13:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9C587E5D98673972D2610E7875D04DE4275575
 ```
 
 https://mybot314.ru/tekegram_catalog/

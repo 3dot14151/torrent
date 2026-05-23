@@ -6,7 +6,7 @@ Jetbrains IntelliJ IDEA Ultimate 2024.1.4 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52420.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Jetbrains WebStorm 2024.1.5 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52393.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ JetBrains CLion 2024.1.4 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52378.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Imagine 1.5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52368.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FreeFileSync 13.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52357.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ JetBrains GoLand 2024.1.4 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52353.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ JetBrains DataGrip 2024.1.4 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52350.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Glary Utilities Pro 6.11.0.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52291.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ iZotope - Ozone 11 Advanced 11.1.0 VST 3, AAX, NKS (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52279.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Serif Affinity Photo 2.5.3.2516 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52278.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ FabFilter - Total Bundle 2024.05.30 VST, VST 3, AAX, CLAP (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52273.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Serif Affinity Publisher 2.5.3.2516 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52260.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Stellarium 24.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52251.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52250.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Vit Registry Fix Pro 14.9.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52162.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Reg Organizer 9.85 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52144.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Topaz Video AI 5.1.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52115.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Soft Organizer Pro 10.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52074.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Reg Organizer 9.85 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52070.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Firefox Browser 127.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52033.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ OneCommander Pro 3.85.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52032.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Adobe Photoshop Lightroom Classic 2024 13.4.0.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51996.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v19 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51981.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v19 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51974.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Cent Browser 5.1.1130.128 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51961.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Google Chrome 126.0.6478.127 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51959.jpg" />
 </div>
 
 

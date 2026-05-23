@@ -6,7 +6,7 @@ Notepad++ 6.7.9.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615790.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NXPowerLite Desktop 6.2.12 Portable by Killer000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615789.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Flash Player 18.0.0.194 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615779.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Flash Player 18.0.0.194 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615775.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AusLogics BoostSpeed 8.0.0.0 DC 23.06.2015 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615718.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ESET NOD32 4.x/3.x (x32 x64) Offline Update 11828 (июнь 2015) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615717.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ ESET NOD32 | ESET Endpoint 7.0/6.x/5.x (x32 x64) Offline Update 11828 (июнь 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615713.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Mozilla Firefox 48.0 beta 10 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615679.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ NVIDIA GeForce Desktop 353.30 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615655.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Dr.Web Security Space 10.0.1.6180 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615646.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ CyberLink PowerDVD Ultra 15.0.1804.58 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615641.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ K-Lite Codec Pack Update 14.2.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615622.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ VLC Media Player 2.2.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615534.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Kinza Browser 4.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615526.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Mozilla Firefox ESR 52.8.1 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615514.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Mozilla Firefox Quantum ESR 60.0.2 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615503.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Opera 53.0.2907.99 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615407.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Telegram Desktop 1.3.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615399.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ PrivaZer 3.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615382.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Air Explorer Pro 1.10.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615272.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ StartIsBack++ 2.6.3 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615214.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ DVDFab 8.1.9.6 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_615186.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Mail.Ru Агент 6.0.5754 Final [Multi/Rus] RePack by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_615184.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_615181.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Comodo Dragon 20.1.1.0 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_615177.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ AVS Video Converter 9.3.1.588 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615161.jpg" />
 </div>
 
 

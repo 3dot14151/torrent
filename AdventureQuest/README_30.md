@@ -1,29 +1,3 @@
-###  Публикация: 1136121   (676484) от 21.05.2017
-
-Old Man's Journey (2017) [Ru/Multi] (1.0.0) License
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Old Man’s Journey - это приключенческая игра с головоломками и внутренним поиском, рассказывающая историю о жизни, потере, примирении и надежде. Войдите в прекрасный и солнечный рукотворный мир, а затем отправляйтесь в настоящее путешествие, наполненное веселыми и ненавязчивыми головоломками. Графический рассказ о самых важных моментах жизни, разбитых мечтах и меняющихся (   Читать дальше...   )Тип издания: LicenseРазработчик: Broken RulesЖанр: Adventure, Indie, 3rd PersonЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9340B850B23568A541C4D398183C5E5C9201BBAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136154   (676178) от 21.05.2017
 
 Old Man's Journey (2017) [Ru/Multi] (1.0.0) Repack R.G. Механики
@@ -32,7 +6,7 @@ Old Man's Journey (2017) [Ru/Multi] (1.0.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676178.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Nightfall: Escape (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675703.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Everybody's Gone to the Rapture / Хроники последних дней (20
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671552.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ D: The Game (1996) [En/Fr/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671211.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Late Shift (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670525.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Sound of Drop - fall into poison (2015) [Ru/Multi] (1.0) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670136.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Awakened (2016) [En/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669907.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Awakened (2016) [En/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669882.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Désiré (2016) [Ru/Multi] (1.03) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668424.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667952.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Full Throttle Remastered (2017) [Ru/En] (1.1.879806) Repack R.G. Механик�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667379.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Alone in the Dark: The New Nightmare (2001) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666937.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Mages of Mystralia (2017) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666317.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Subaeria (2018) [Multi] (2.0.46r) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665889.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Contrast (2013) [Ru/En] (11736) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665829.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Subaeria (2018) [Multi] (2.0.46r) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665771.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Lake Ridden (2018) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664670.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_664441.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Black Dahlia (1998) [En] (1.10) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664230.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0upd1) License GOG [Epis
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663565.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Dreamfall Chapters (2014-2016) [Ru/Multi] (5.4.1.1) License GOG [Special Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661840.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Dark Fall 3: Lost Souls (2009) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661714.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ RiME (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660917.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Batman - The Telltale Series (2016) [Ru/En] (1.0.0.1) Repack xatab [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660609.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ RiME (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659812.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ RiME (2017) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07BE907C263B50489E0279F9542A5040A2BFB7A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139818   (658556) от 03.06.2017
+
+Secret Doctrine (2017) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всегда ли мы точно знаем куда везет нас поезд метро? Куда бы он нас ни вез, но маршрут мы выбираем сами. Обыкновенный путь домой превращается для героя этой истории в череду необычных приключений.Тип издания: RepackРазработчик: Lama14KulanЖанр: Adventure (Puzzle), 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56481E06840157619BEC706E433F272F0DABBB25
 ```
 
 https://mybot314.ru/tekegram_catalog/

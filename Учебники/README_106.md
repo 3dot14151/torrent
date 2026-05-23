@@ -1,134 +1,3 @@
-###  Публикация: 1347426   (151749) от 23.12.2019
-
-А.С. Кутузов | Введение в функциональный анализ (2020) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для преподавателей и студентов направления (специальности) «Прикладная математика и информатика». Может быть использовано для проведения практических занятий и организации самостоятельной работы студентов. Текст приводится в авторской редакции.Жанр: МатематикаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F959811EF0E1E85F8B46663C55230E02277E7928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270490   (151712) от 22.12.2018
-
-В.М. Буре и др. | Методы прикладной статистики в R и Excel (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии излагаются как основные разделы классического курса математической статистики, так и дополнительные разделы, не входящие в основной курс, но имеющие широкое применение на практике. В книгу включены такие разделы, как статистическое оценивание параметров, методы построения точечных оценок параметров и доверительных интервалов, проверка статистических (   Читать дальше...   )Жанр: Компьютерная литература, статистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68C5CED0132DBC17174BCEAC0BB9F80A39494FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347420   (151653) от 23.12.2019
-
-Александр Львовский | Отличная квантовая механика. Учебное пособие и Решения к учебному пособию (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Наряду с традиционным материалом, охватываемым курсом квантовой механики (состояния, операторы, уравнение Шрёдингера, атом водорода), в книге предлагается глубинное обсуждение таких концепций, как гильбертово пространство, квантовое измерение, запутанность и декогеренция. Эти концепции имеют решающее значение для понимания квантовой физики и ее связи с макроскопическим (   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB5CC49C34A11813FC033CF993DD8BF34D70A186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677422   (150747) от 17.11.2023
-
-Е.А. Кунавина, Т.Р. Кочулева | Анализ нефти и нефтепродуктов (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основные физико-химические показатели нефтепродуктов, а также традиционные и современные методы их определения. Приведены и описаны приборы и оборудование, используемые при анализе нефти и нефтепродуктов.
-Для студентов, обучающихся по специальности 04.05.01 «Фундаментальная и прикладная химия» и направлению подготовки 04.03.01 «Химия». Может быть полезно (   Читать дальше...   )Жанр: ХимияИздательство: Инфра-инженерияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96074B0DD49AEEFAC4107B8751D49C50AC63A2BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677621   (150498) от 18.11.2023
-
-С.А. Бахвалова, В.А. Романюк | Основы моделирования и проектирования радиотехнических устройств в Microwave Office (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Изложены начальные сведения о работе с программой Microwave Office. Описана методика моделирования и проектирования электрических схем СВЧ. Приведены примеры составления схем, их оптимизации, расчета характеристик и определения параметров. Рассмотрен порядок моделирования различных линейных устройств: фильтров, резонансных цепей, усилителей. Представлены методики (   Читать дальше...   )Жанр: Компьютерная литература, радиотехникаИздательство: Солон-ПрессФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF578B983B2998EAE02286DB7D1441054A367C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677541   (150365) от 18.11.2023
 
 В.А. Сафонов, М.А. Чоба | Коррозия и защита металлов (2023) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150365.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149899.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149459.jpg" />
 </div>
 
 
@@ -216,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149272.jpg" />
 </div>
 
 
@@ -242,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149215.jpg" />
 </div>
 
 
@@ -268,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149213.jpg" />
 </div>
 
 
@@ -294,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149150.jpg" />
 </div>
 
 
@@ -321,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149056.jpg" />
 </div>
 
 
@@ -347,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148994.jpg" />
 </div>
 
 
@@ -373,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148898.jpg" />
 </div>
 
 
@@ -399,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148877.jpg" />
 </div>
 
 
@@ -426,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148827.jpg" />
 </div>
 
 
@@ -452,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148733.jpg" />
 </div>
 
 
@@ -479,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148516.jpg" />
 </div>
 
 
@@ -505,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148253.jpg" />
 </div>
 
 
@@ -531,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148037.jpg" />
 </div>
 
 
@@ -558,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148000.jpg" />
 </div>
 
 
@@ -584,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147597.jpg" />
 </div>
 
 
@@ -610,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147561.jpg" />
 </div>
 
 
@@ -636,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147424.jpg" />
 </div>
 
 
@@ -663,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147303.jpg" />
 </div>
 
 
@@ -674,6 +543,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9C60A7F50D91D87DC4072408360D6554EAE0FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969522   (147268) от 27.12.2015
+
+Н.И. Медведюк, П.В. Суслов | Колхозный кузнец (1959) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является учебным пособием для подготовки колхозных кузнецов с квалификацией слесаря, жестянщика и медника. Она содержит основные сведения об организации колхозной кузницы, материалах, оборудовании и техлологии кузнечного, слесарного, жестяницкого и медницкого дела.Жанр: УчебникФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2263448CB5E282C676E12D08DFA1623FA55619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271883   (147267) от 25.12.2018
+
+Г.Н. Хубаев (ред.) | Информатика (2010) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие разработано для студентов экономических и иных вузов, обучающихся по экономическим специальностям. Написано в соответствии с требованиями Государственного образовательного стандарта по дисциплине «Информатика». Содержит базовые вопросы дисциплины: теоретические основы информатики, компьютерные технологии обработки информации, основы работы пользователя (   Читать дальше...   )Жанр: ИнформатикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9B8069523817508BD251AD55FF8F3274DC4DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271447   (147100) от 25.12.2018
+
+М.П. Трухин | Моделирование сигналов и систем. Сетевые модели (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147100.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии приведены методология и технология компьютерного моделирования систем с помощью сетевых моделей. Рассмотрены теоретические и практические вопросы приложений формализма транспортных сетей, сетей Петри и E-сетей, а также нейронных сетей для разработки и анализа математических моделей сложных систем, в том числе в среде MATLAB.
+Учебное пособие предназначено (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5DC5F398FDD40F672C09AE00DD08BC5645173C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271570   (147002) от 25.12.2018
+
+В.Г. Коберниченко | Основы цифровой обработки сигналов (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведено краткое введение в необходимый математический аппарат и основные понятия цифровой обработки сигналов. Рассмотрены модели и преобразования дискретных и цифровых сигналов. Особое внимание уделено алгоритмам быстрого преобразования Фурье и их применению при цифровом спектральном анализе. Рассмотрены методы описания, классификации и методика проектирования (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A846FB55DFCE1A700752B7FBF7354F2CFA279B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969427   (146928) от 27.12.2015
+
+С.А. Тишкова, Г.П. Стефанова | Практикум решения физических задач (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержит задачи-проблемы по курсу общей физики и частные методы их решения. Задачи носят практическую направленность. Предусмотрены тесты по всем разделам курса общей физики.
+Предназначено для студентов, обучающихся по направлению «Физико-математическое образование» (бакалавр).Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42BF53BD3CDBD902F865F7C125CE08A23826177
 ```
 
 https://mybot314.ru/tekegram_catalog/

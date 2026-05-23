@@ -1,55 +1,3 @@
-###  Публикация: 1447516   (1031757) от 13.02.2021
-
-Ловец снов / Dreamcatcher (2003) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Джонси, Генри, Пит и Бивер. Двадцать лет назад они были просто мальчишками, проживающими в одном небольшом городке штата Мэн, – детьми, нашедшими в себе достаточно мужества, чтобы героически ответить на детскую жестокость. Награда за спасение странноватого мальчика по имени Даддитс совершенно неожиданно пришла к ним в виде сверхъестественных сил, связавших всех пятерых (   Читать дальше...   )Производство: США, Канада / Castle Rock Entertainment, Village Roadshow Pictures, NPV EntertainmentЖанр: ужасы, фантастика, триллер, драмаРежиссер: Лоуренс КэзданАктеры: Морган Фримен, Томас Джейн, Джейсон Ли, Дэмиэн Льюис, Тимоти Олифант, Том Сайзмор, Донни Уолберг, Майки Хоулкамп, Рис Томпсон, Джакомо БессатоПеревод: Дублированный, многоголосый, двухголосый, авторскийСубтитры: Русские (форсированные, полные), английскиеПродолжительность: 02:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835DE602117383C7803FCAEAD64EC9911B26335C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620655   (1031751) от 21.03.2023
-
-Любовь с первого поцелуя / Eres tu / Love at First Kiss (2023) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-16-летний подросток Хавьер больше всего на свете мечтает встретить настоящую любовь. Но каждый раз ему мешает его особая способность: во время поцелуя он получает возможность предсказать, как закончатся эти отношения. Из-за этого Хавьер обычно прекращает отношения до того, как они смогут навредить его счастливому образу жизни. Ситуация меняется, когда однажды подросток (   Читать дальше...   )Производство: США, Испания / Zeta StudiosЖанр: мелодрама, комедияРежиссер: Алауда Руис де АсуаАктеры: Альваро Сервантес, Сильвия Алонсо, Горка Очоа, Пилар Кастро, Сусанна Гомес, Элизабет Ларена, Ninton Sánchez, Паула Муньос, Фабиа КастроПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, испанскийСубтитры: английские, русские (forced, full), украинскиеПродолжительность: 01:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA48D0932D941F12D4ED5D1928D6F53ECA38EBA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620435   (1031749) от 21.03.2023
 
 Монстр в лесу / Во все глаза / All Eyes (2022) WEB-DL [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031749.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031748.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031741.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031738.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031735.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031719.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031718.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031717.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031716.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031710.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031708.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031699.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031652.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031636.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031630.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031602.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031597.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031581.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031579.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031569.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031568.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031567.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031566.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031564.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:469593D9E1F3747A676A2566E9F011A191372048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447249   (1031560) от 14.02.2021
+
+Утойя. Выстрелы Брейвика (Утойя, 22 июля) / Utoya 22. juli (2018) BDRip [H.264/720p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031560.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 июля 2011 года пятьсот молодых людей, присутствовавших в летнем лагере на норвежском острове Утёйа, подверглись нападению вооружённого правого экстремиста Андерса Брейвика. В объективе камеры — 19-летняя Кайя, которая здесь проводит время со своей младшей сестрой Эмили. Сёстры ссорятся, потому что Эмили не нравится в лагере, но внезапно раздаётся первый выстрел.Производство: Норвегия / Paradox Film 7, ParadoxЖанр: Триллер, драмаРежиссер: Эрик ПоппеАктеры: Андреа Бернцен, Александр Холмен, Сольвейг Колен Биркеланд, Бреде Фристад, Элли Рианнон Мюллер Осборн, Йенни Свенневиг, Ингеборг Энес, Сорош Садат, Ада Эйде, Мэриан ГьердсбаккПеревод: Многоголосый профессиональный (iTunes, СВ Студия)Субтитры: Русские, английскиеПродолжительность: 01:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D74B8DE1B96C5686ADD3238BE513665FF503A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440549   (1031557) от 14.02.2021
+
+Простая формальность / Una pura formalita (1993) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный писатель Оноф попал в полицейский участок. У него провал в памяти, он не может вспомнить последние часы, но именно они важны для допрашивающего его комиссара. Тот как будто знает, что произошло что-то страшное, и всеми силами старается заставить подозреваемого вспомнить это. Вопрос за вопросом, улика за уликой направляют Онофа к раскрытию собственной тайны, (   Читать дальше...   )Производство: Италия, Франция / Cecchi Gori Group, Tiger Cinematografica, Film Par FilmЖанр: детектив, триллер, драма, криминалРежиссер: Джузеппе ТорнатореАктеры: Жерар Депардье, Роман Полански, Серджо Рубини, Никола Ди Пинто, Тано Чимароза, Паоло Ломбарди, Мария-Роза Спаньоло, Альберто Сирони, Джованни Морриконе, Махди КрайемПеревод: Многоголосый профессиональныйСубтитры: русские, итальянские, английскиеПродолжительность: 01:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D815A8A4372ED666241172BCEA5A224749A69690
 ```
 
 https://mybot314.ru/tekegram_catalog/

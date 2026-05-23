@@ -6,7 +6,7 @@ Media Player Classic Home Cinema 1.8.6 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672125.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hard Disk Sentinel Pro 4.00.11 Build 5237 Beta [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672088.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cacheman 10.0.1.5 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672072.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ WebBrowserPassView 1.80 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672055.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ FastStone Image Viewer v7.0 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672031.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Microsoft Visual Studio 2017 Community 15.9.9 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672025.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ FastStone Image Viewer 7.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672021.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ DivX Plus 8.2.3 Build 1.8.6.18 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671983.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Reg Organizer 5.45 Final  RePack (& portable) by KpoJIuK [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671979.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ SSD-Z 16.07.01 Beta Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671972.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ AutoRuns 13.52 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671970.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Wise Care 365 Pro 4.22.407 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671962.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Ashampoo WinOptimizer 14.00.02 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671959.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Norton Security with Backup 22.7.0.76 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671956.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.8.6 + portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671931.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671924.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Red Giant Trapcode Suite 15.1.1 RePack by PooShock [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671917.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Windows 7 Professional VL SP1 (x86-x64) [2in1] by ivandubskoj (22.03.2019) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671915.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.03.17 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671911.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Reg Organizer 5.45 Final [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671879.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ The Foundry NUKE STUDIO 10.0v3 + HIERO 10.0v3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671845.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ AVG Internet Security 2016 16.91.7688 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671841.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ AVG AntiVirus 2016 16.91.7688 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671840.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Dr.Web Security Space 11.0.3.6220 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671838.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ AdwCleaner 5.201 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671834.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ IP-TV Player 0.28.1.8845 DC 01.07.2016 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671733.jpg" />
 </div>
 
 

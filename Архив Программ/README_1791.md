@@ -6,7 +6,7 @@ Microsoft .Net Framework 08.11.22 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189576.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Zoom Player MAX 17.1 Build 1710 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189574.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1 Build 16 RePack by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189566.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PowerISO 8.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189562.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Acrobat Reader 2023.006.20320.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189558.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ StartAllBack 3.5.4 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189557.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Acrobat Pro 2023.006.20320 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189554.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ PowerISO 8.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189549.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows 7 Enterprise SP1 x64 Rus by OneSmiLe [11.11.2022]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189548.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Foxit PDF Reader 2023.2.0.21408 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189533.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.92.6600 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189531.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ HDCleaner 2.037 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189375.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Viber 18.8.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189368.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ PrivaZer (Donors) 4.0.58 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189360.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2934 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189357.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Viber 18.8.0.4 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189354.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Sumatra PDF 3.5.15494 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189342.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Mozilla Thunderbird 115.2.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189341.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Telegram Desktop 4.9.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189339.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Privacy Eraser Free 5.41.0 Build 4581 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189338.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Firefox Browser 117.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189336.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ AIMP 5.10 Build 2412 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189335.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Firefox Browser ESR 115.2.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189319.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.5.0 Stable + Portable + Standa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189309.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ DesktopOK 11.09 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189302.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Google Chrome 116.0.5845.188 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189295.jpg" />
 </div>
 
 

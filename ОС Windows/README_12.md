@@ -6,7 +6,7 @@ Microsoft Windows 11 x64 Release by StartSoft 03-2021 [Ru/En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811525.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows XP Professional 5.1.2600.2158 SP2 (x86) Retail (X12-89963 / X12-55674) [
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806451.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.288 (Updated October 2021) О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805699.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Windows 10.0.17763.1217 Version 1809 (May 2020 Update) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801485.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Microsoft Windows 10.0.18363.836 Version 1909 (May 2020 Update) - Оригина
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801479.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Microsoft Windows 10.0.18363.836 Version 1909 (May 2020 Update) - Оригина
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801371.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1217 (Updated May 2020) Ори
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801366.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Windows Server, Version 2004 (10.0.19041.264) (May 2020 Update) - Оригина
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801352.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Microsoft Windows 10.0.19041.264 Version 2004 (May 2020 Update) - Оригина
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800737.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Microsoft Windows 10.0.19041.264 Version 2004 (May 2020 Update) - Оригина
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799792.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Microsoft Windows 10 x64 Release by StartSoft 04-2021 [Ru/En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799762.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Microsoft Windows 10 Enterprise LTSC 2019 Release by StartSoft 06-07-08 2021 [Ru
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798330.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Microsoft Windows 10 Multiple Editions 10.0.15063.0 Version 1703 (Updated March 
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792998.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Windows 8.1 with Bing (SL, Core, Pro) Dallas_page 6.3.9600.17031.AMD64FRE.WINBLU
 >>Сборки Windows 8
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792000.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Microsoft Windows 10.0.19044.1288, Version 21H2 - Оригинальные об�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791251.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Microsoft Windows 10 Enterprise 2021 LTSC, Version 21H2 - Оригинальны
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791228.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Microsoft Windows 10.0.19042.1348, Version 20H2 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790770.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Microsoft Windows 10.0.19041.1348, Version 2004 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790763.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Microsoft Windows 10.0.19043.1348, Version 21H1 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790742.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Microsoft Windows 10.0.19042.1348, Version 20H2 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790733.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Windows Server, Version 20H2 (10.0.19042.1348) (Updated November 2021) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790730.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Microsoft Windows 10.0.19041.1348, Version 2004 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790729.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Microsoft Windows 11 [10.0.22000.318], Version 21H2 (Updated November 2021) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790718.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.350 (Updated November 2021) �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790716.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Microsoft Windows 10 IoT Enterprise, Version 21H2 - Оригинальные о�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790705.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Microsoft Windows 11 IoT Enterprise [10.0.22000.318] (Updated November 2021) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790699.jpg" />
 </div>
 
 

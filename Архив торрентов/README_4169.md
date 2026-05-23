@@ -6,7 +6,7 @@ Van Morrison & The Chieftains - Irish Heartbeat (1988) [FLAC|Lossless|tracks + .
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164444.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Wondershare Filmora 9 v9.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164443.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Feeder 4 v.4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164432.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ EdgeView 3 v.3.8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164427.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ PhotoScape X Pro 4.1.1 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164426.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Topaz Video AI for Mac 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164425.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Ashampoo Burning Studio 21.2.0.39 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164415.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VueScan Pro 9.7.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164398.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Big Sur Cache Cleaner 16.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164396.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Native Instruments Maschine 2 v2.14.6 STANDALONE, VSTi, AUi [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164395.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Tone2 - Saurus 3.0.0 STANDALONE, VSTi (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164385.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Battery Health 3 v1.0.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164381.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sync Folders Pro 4.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164376.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Tone2 - Electra 2.8.0 STANDALONE, VSTi (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164372.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Bootstrap Studio 5.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164367.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Native Instruments Traktor Pro Plus 3 for Mac v.3.10.1.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164363.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ HWiNFO 7.65 Build 5255 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164360.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ SuperDuper! 3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164357.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ iStatistica 6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164353.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Easy Data Transform 1.44.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164349.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Q-Dir 7.99 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164346.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Things 3 v3.13.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164340.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Apeaksoft Android Toolkit 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164338.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ DCommander 3 Premium v3.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164335.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ iStatistica Pro 5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164333.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ ApowerREC 1.5.3.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164330.jpg" />
 </div>
 
 

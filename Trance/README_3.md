@@ -6,7 +6,7 @@ VA - Trance Party 2023 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043959.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Activa - Origins (2023) Expanded Edition [MP3|320 Kbps] <Trance, Progressive, El
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043940.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Alveda Trance Hits 2023 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043755.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Subculture (Mixed by John O'Callaghan) (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043087.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Victor Special Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042792.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - High Voltage 2022 Year Mix (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042191.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Top 10 January 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042187.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - HTE200 (Mixed by Lab4 & Nick The Kid) (2023) [MP3|320 Kbps] <Trance, Uplift
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041883.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 December (2020) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041194.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Menno De Jong - Collected Works (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041189.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - NaHiM Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041178.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - The Sound Of 2023 Mix 2: Seoul (2023) [MP3|320 Kbps] <Trance, Progressive, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041173.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - A State of Trance: Year Mix (Mixed by Armin van Buuren) (2020) [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041107.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Han Beukers Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Upl
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040947.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Kiyoi & Eky Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Upl
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040945.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - DreamLife Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplif
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040944.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Best Of FSOE Fables (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040943.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Best Of FSOE Parallels (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040936.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Henry Moe Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplif
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040935.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Danny Oh Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplift
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040932.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - Best Of FSOE (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040930.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Black Hole Recordings - Best Of (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040913.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Sahara Universe 2022 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040602.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Dream Dance Vol. 90 (2021) 3CD [MP3|320 Kbps] <Trance, Progressive, Dance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040298.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Best Of Trancer (Mixed by Nick Turner) (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040160.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - The VERSE Uplifting Trance Journey 2020 (2021) [MP3|320 Kbps] <Trance, Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040156.jpg" />
 </div>
 
 

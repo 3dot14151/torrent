@@ -6,7 +6,7 @@ Path Finder 2155 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234352.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Omni Downloader 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234349.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Omni Toolbox 1.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234342.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SyncBird Pro 3.9.7[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234336.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Athentech Perfectly Clear Video for Mac 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234328.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Wondershare Recoverit for Mac 12.0.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234299.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NCH DreamPlan Plus 8.09 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234295.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ TechSmith Camtasia 2022 Studio 2022.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234262.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ PCDJ DEX PRO 3.20.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234252.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Magic Sort List 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234226.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Integrity Plus 12.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234223.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ FinalShot 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234216.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ File List Export 2.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234208.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ A Better Finder Rename 11 v11.47 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234204.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Typora for Mac 1.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234171.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ AnyMP4 Data Recovery 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234166.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Cisdem Video Converter 7.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234159.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Folder-Factory 7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234145.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Aiseesoft Mac Data Recovery 1.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234131.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Pro Microphone: Audio Recorder 1.4.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234121.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Professional Recorder & Editor 6.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234105.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Capture One 23 Pro 16.2.0.112 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234084.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Xliff Editor 2.9.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234071.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ DxO PhotoLab 6 ELITE Edition 6.6.0 (build 50) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234070.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Barcode 2.5 beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234062.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ ColorWell 7.3.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234052.jpg" />
 </div>
 
 

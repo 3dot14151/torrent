@@ -1,29 +1,3 @@
-###  Публикация: 1772443   (31281) от 11.01.2025
-
-Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.5.55.748x) Repack Let'sРlay
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Игра Oceanhorn сочетает в себе захватывающую историю, поразительную 3D-графику и увлекательный игровой процесс, чтобы подарить тебе незабываемое приключение. Расправь паруса и отправляйся навстречу приключениям! Вырасти из мальчика в легендарного героя. Ты просыпаешься и находишь письмо от отца. Он ушёл. Единственные зацепки для разгадки тайны - его старый дневник (   Читать дальше...   )Тип издания: RepackРазработчик: Cornfox & Brothers Ltd.Жанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15EAF6DB61BF038532D8F60C75639CFA4AFA9B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772481   (31272) от 11.01.2025
 
 4 Rush Together / Все вместе, вперед! (2025) [Ru/Multi] (1.0.0) Repack Pioneer
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31272.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Case of the Golden Idol (2022) [Ru/En] (2.0.5/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31253.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31251.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Teardown (2022) [Ru/Multi] (20241204/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31229.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate / Черепашки-ниндзя:
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31221.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Dungeon Defenders: Going Rogue (2022) [En] (0.9.34625EA) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31219.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Shadows of the Damned: Hella Remastered (2024) [Ru/Multi] (Build 15991776) Repac
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31217.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Undead Realm: Ego (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31214.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Construction Simulator 3 (2024) [Ru/Multi] (0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31213.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Amenti (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31212.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ FREEDOM WARS Remastered (2025) [Multi] (1.0/dlc) Repack FitGirl [Contribution Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31209.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Exsys (2020) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31208.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Beyond Hanwell (2024) [Ru/En] (1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31205.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Marko: Beyond Brave (2024) [Ru/Multi] (1.09) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31198.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31192.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31186.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31184.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31174.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Dropsy (2015) [Ru/Multi] (1.5) License GOG [Warm Damp Hug Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31163.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Raccoon Roller (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31145.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Construction Simulator 2 US (2018) [Ru/Multi] (0.9) License GOG [Pocket Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31140.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31117.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Redundant (2025) [Ru/Multi] (build 16931999) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31113.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31110.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Bloodstained Ritual of the Night (2019) [Ru/Multi] (1.06/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31095.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Bloodstained: Ritual of the Night - это игровой опыт ориент�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDB5E0CA3EB70259EAB7AEE97DCA8170F8753E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773091   (31090) от 13.01.2025
+
+Megaloot (2024) [Ru/Multi] (1.14) Repack Pioneer
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31090.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом мире существует загадочная башня, которая воспроизводит самые разные объекты из других реальностей, создавая неопределенное пространство, наполненное монстрами, странными существами, людьми и лутом. Вы оказались в этой реальности, и здесь начинается Ваш путь. Войдя в башню, Вы оказываетесь в жестких битвах, требующих ценных предметов лута - брони, магических (   Читать дальше...   )Тип издания: RepackРазработчик: axilirateЖанр: Казуальные игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8B55C61489B3824719F4B8677584E222692451
 ```
 
 https://mybot314.ru/tekegram_catalog/

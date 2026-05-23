@@ -6,7 +6,7 @@ Sinister - The Carnage Ending (2012) Limited Edition [FLAC|Lossless]<Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987064.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Therion - 6CD Japan Edition (1995-2004) [WavPack|Lossless]<Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986870.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Atheist - Elements (1993) [WavPack|Lossless]<Progressive Death / Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986254.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ Sascha Paeth's Masters Of Ceremony - Signs Of Wings (2019) [WavPack|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986223.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Seven Spires - Solveig (2017) [FLAC|Lossless|tracks + .cue] <Symphonic Metal, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986170.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Sister Sin / Liv Sin - 7 albums, 8CD (2003-2019) Discography [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985953.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Running Wild - 9CD Japan Edition (1987 - 1998) Japan Edition [WavPack|Lossless]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985541.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Edenbridge - The Grand Design (2006) [FLAC|Lossless|image + .cue] <Sympho Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984983.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Ensiferum - Victory Songs (2007) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984980.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Breaking Benjamin - Aurora (2020) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984975.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Ironsword - Servants of Steel (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984823.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Mechina - Progenitor (2016) [FLAC|tracks|WEB-DL]<Industrial, Symphonic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984596.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Centurian - Contra Rationem (2013) Scene [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984523.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Meshiaak - Mask Of All Misery (2019) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983632.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Wastelands - Until the End of Time (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983627.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Konvent - Puritan Masochism (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983623.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Temperance - Viridian (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983615.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Scream Of Death - Visible Sins (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983521.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Tool - 8 albums, 10CD (1992-2019) [FLAC|Lossless|image + .cue] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983371.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Evanescence - Greatest Hits (2008) [FLAC|Lossless]<Gothic Metal, Alternative>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982391.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ White Ward - Futility Report (2017) [FLAC|Lossless|tracks + .cue] <Atmospheric B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982357.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ White Ward - Origins (2016) Сompilation [FLAC|Lossless|Web-DL|tracks] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982356.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Fear My Thoughts - Vulcanus (2007) [FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982287.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Burning in Hell - 2 альбома (2004 - 2006) Discography Japan [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982081.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ Rocka Rollas - Pagan Ritual (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982078.jpg" />
 </div>
 
 
@@ -750,7 +750,7 @@ Kuni - Rock (2011) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982072.jpg" />
 </div>
 
 

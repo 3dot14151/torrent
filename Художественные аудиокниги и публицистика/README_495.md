@@ -1,82 +1,3 @@
-###  Публикация: 1051704   (528982) от 13.09.2016
-
-Айзек Азимов | Космические течения (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роман Айзека Азимова относится к циклу о Галактической империи, куда также входят книги «Звёзды как пыль» и «Камешек в небе». Действия сюжета происходит во времена перехода Трантора из региональной державы в государство, контролирующее всю Галактику. К этому времени Трантор контролирует половину обитаемых миров. Независимая планета Сарк эксплуатирует планету Флорина, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 03:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE65911C927526AC521AA5240CEE4A79E87D7FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558942   (528862) от 22.06.2022
-
-Мартин Ибон  | Ane Cestero (Книга 1). Танец тюльпанов (2021) [MP3, Александр Дунин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Самый красивый цветок может вдохновить на самые ужасные преступления. Популярную журналистку Герники сбил поезд, идущий на Урдайбай. Пострадавшая была привязана к стулу, а в руках у нее был нежный цветок – тюльпан, яркий и насыщенный, какой трудно найти в середине осени.
-Тщательно подготовленная сцена транслировалась в прямом эфире через Фэйсбук. И тысячи людей Герники (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыПродолжительность: 17:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DD95E31168AE3CB1EF04FD86B370F072E64854A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558838   (528861) от 22.06.2022
-
-Антон Чехов | В родном углу (2021) [MP3, Джахангир Абдуллаев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Донецкая дорога. Невеселая станция, одиноко белеющая в степи, тихая, со стенами, горячими от зноя, без одной тени и, похоже, без людей. Поезд уже ушел, покинув вас здесь, и шум его слышится чуть-чуть и замирает наконец… Около станции пустынно и нет других лошадей, кроме ваших…»Жанр: КлассикаПродолжительность: 00:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ABE4BF1C1C2090F20895E42EDA84B61D0A9F1E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558877   (528854) от 22.06.2022
 
 Эльетт Абекассис | Сокровище храма (2021) [MP3, Андрей Леонов]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528854.jpg" />
 </div>
 
 
@@ -113,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528838.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528803.jpg" />
 </div>
 
 
@@ -166,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528801.jpg" />
 </div>
 
 
@@ -192,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528795.jpg" />
 </div>
 
 
@@ -218,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528791.jpg" />
 </div>
 
 
@@ -244,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528755.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528748.jpg" />
 </div>
 
 
@@ -296,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528740.jpg" />
 </div>
 
 
@@ -322,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528732.jpg" />
 </div>
 
 
@@ -350,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528652.jpg" />
 </div>
 
 
@@ -376,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528623.jpg" />
 </div>
 
 
@@ -405,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528573.jpg" />
 </div>
 
 
@@ -431,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528514.jpg" />
 </div>
 
 
@@ -457,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528396.jpg" />
 </div>
 
 
@@ -483,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528372.jpg" />
 </div>
 
 
@@ -509,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528237.jpg" />
 </div>
 
 
@@ -535,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528221.jpg" />
 </div>
 
 
@@ -563,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528186.jpg" />
 </div>
 
 
@@ -589,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528169.jpg" />
 </div>
 
 
@@ -615,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528161.jpg" />
 </div>
 
 
@@ -641,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528135.jpg" />
 </div>
 
 
@@ -667,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528130.jpg" />
 </div>
 
 
@@ -678,6 +599,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0814BE4B832A3F16F2FE13A9A8511C4458D250B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052217   (528077) от 14.09.2016
+
+Пер Валё, Май Шёвалль | Полиция, полиция, картофельное пюре! (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528077.jpg" />
+</div>
+
+
+###  Подробнее
+
+В романе «Полиция, полиция, картофельное пюре!» Мартину Беку и его коллегам придется расследовать дерзкое убийство финансового воротилы, торговавшего по всему миру оружием и недвижимостью. Преступление совершено во время банкета в шикарном ресторане. Каждый, кто сидел за столом с жертвой, желал ей смерти.
+Но пистолет оказался в руках малоприметного человека, спокойно (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241EC78065243709DA46DF60C4FDF9EABE5A785D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051757   (528074) от 14.09.2016
+
+Том Харпер | Секрет покойника (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святой равноапостольный император Константин навсегда изменил мир, сделав христианство господствующей религией Римской империи. Но даже у святых есть секреты, особенно у тех, кто наделен неограниченной властью. Спустя столетия тайны мертвых возвращаются из тьмы забвения, чтобы преследовать живых. Современным грешникам и святым, убийцам и миротворцам предстоит выяснить (   Читать дальше...   )Жанр: Исторический детективПродолжительность: 15:25:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969BF2A7602D4A4E1FD08365705FFD5A873C23DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052109   (528066) от 14.09.2016
+
+Артуро Перес-Реверте | Танго старой гвардии (2016) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое танго? Пары, элегантно скользящие по паркету дорогих отелей? Вызов, дерзко брошенный в дымном кабаке Буэнос-Айреса? Или признание, с которого начинается история длиной в сорок лет? Каждый герой нового романа Артуро Переса-Реверте отвечает на этот вопрос по-своему и в свое время. Но для каждого из них встреча с этим легендарным танцем станет роковой, ведь (   Читать дальше...   )Жанр: Историческая литература, Современная зарубежная литература, Психологическая проза, Любовная драмаИздательство: СоюзПродолжительность: 17:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D7CECE9F72BE71216670C1BD1F32FC4B17C1A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

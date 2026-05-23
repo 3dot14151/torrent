@@ -1,312 +1,3 @@
-###  Публикация: 1583716   (205826) от 15.10.2022
-
-CodeWithMosh, Mosh Hamedani | The Ultimate C++ Series (2022) WEB-DL [Part 1-3] [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Learn to write C++ code with confidence
-C++ is the language of choice for video games, embdded systems, IoT devices, high-performance apps, operating systems, database management systems, compilers, and so on. It's also the father of many languages like C#, Java, and JavaScript.
-With so many uses, it's one of the best languages to learn these days.
-The problem is: (   Читать дальше...   )Производство: CodeWithMoshЖанр: ВидеокурсЯзык озвучки: EnglishПродолжительность: 11:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC601F83F64FD93C23EB91F6D14767D901CE3413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616940   (205811) от 05.03.2023
-
-Lectoroom, Елена Базанова | Зимний этюд акварелью. Вид на реку (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Как можно писать такой пейзаж на пленэре и в студии, какие технические секреты есть в арсенале акварелистов – все это вы узнаете на этом занятии.
-Нашей задачей будет запечатлеть в акварельном этюде очарование зимнего заснеженного состояния природы и ощущение новогодне-рождественских каникул и, конечно, получить навыки работы с акварелью и вдохновиться для самостоятельного (   Читать дальше...   )Производство: LectoroomЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 04:51:46Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:264DA211256354FEDD37A1AAE80F6D154135E444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583929   (205743) от 16.10.2022
-
-Денис Ваннусов | Курс по расчёту железобетонного каркаса в Лире САПР 2016. Многоуровневый Паркинг (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Преимущества курса:
-Основан на реальном объекте
-Здание имеет 10 этажей в высоту. Большие пролёты до 8,1 метров, что вызывает необходимость в использовании дополнительных конструктивных мероприятий (как вариант: капители).
-Цена ниже, чем у других курсов в интернете. При этом курс даёт практические навыки при расчётах реальных объектов, а не сводится к изучению функционала (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:49:53Реклама: Присутствуют сторонние наложения и вставки в видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D05CCBD978B23523554934AC2E0491333D288B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567930   (205579) от 05.08.2022
-
-Udemy, Victory 3D, Corazon Bryant | Female Game Character Creation in Blender Complete Worklow (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе, мы создадим игрового персонажа полностью в Blender.
-Я также покажу вам, как создать сексуальное платье, туфли, ожерелье и другие аксессуары, чтобы наш персонаж был готов к балу.
-Что касается волос, я покажу вам, как создать систему частиц, а затем использовать их для карточек волос. Карточки для волос - очень важная часть процесса создания игры, и на (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 40:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0A6D14408B1CEF59344AC73547414DBECE5A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568021   (205540) от 06.08.2022
-
-Global Digital Space, Алексей Лукацкий | Как обеспечивать кибербезопасность в условиях спецоперации (2022) CamRip [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-GlobalDigitalSpace запускает цикл лекций с Алексеем Лукацким.
-Мы решили посвятить его вопросам кибербезопасности в условиях спецоперации.
-Алексей подробно ответит, приведет примеры и разъяснения к основным вопросам:
-— С чем мы боремся.(   Читать дальше...   )Производство: Global Digital SpaceЖанр: ВидеолекцииЯзык озвучки: РусскийПродолжительность: 05:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C501CF18048539EDA5EEA98306FF986A543C76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570330   (205480) от 16.08.2022
-
-The Gnomon Workshop, Nick Reynolds | Creating Props for Games (2017) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Создание ассетов для игр постоянно совершенствуется и становится более интуитивным. Разбив весь процесс на простые секции, мы можем сосредоточиться на самых важных составляющих творческого процесса, при этом не вредя общему ходу работы и оставаясь открытыми для возможных улучшений вплоть до запекания финальных версий карт. В этом введении в создание пропов для игр, (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: 3D моделированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 15:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C75C40D5E0BA87F266CBD08AED3C11BCBFCFC45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570107   (205477) от 16.08.2022
-
-The Gnomon Workshop, Kristin Farrensteiner | Creating Creature Hair & Fur Grooms in Houdini (2021) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы научитесь эффективно работать с волосами персонажей и существ в Houdini, используя передовые методы художника по волосам и шерсти в ILM Кристин Фарренштайнер. Кристин фокусируется на фотореалистичной модели кошки, чтобы поделиться своей коллекцией техник создания различных стилей коротких, средних и длинных волос или меха. Продемонстрированные рабочие (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: ВидеоурокЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 08:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9DD00D94A085B4ACDD4E056D8407D19725C025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570423   (205443) от 17.08.2022
-
-Udemy, Ben Tristem, Sam Pattuzzi | Unreal Engine Blueprint Game Developer: Learn Visual Scripting (2020) PCRec [EN, RU / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Делайте игры без программирования. Unreal используется командами AAA класса в таких играх, как Fortnite.
-Узнайте, как создавать игры без написания кода с использованием Unreal Engine 4 и Blueprints. Мы начнем этот курс с начального уровня, поэтому вам не понадобится предварительный опыт или знания Unreal Engine 4 или разработки игр.
-За первые 100 минут этого курса (   Читать дальше...   )Производство: UdemyЖанр: Разработка игрЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 10:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68842553E74FB7D3E3CDA1FFC1494C846699637C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570462   (205429) от 17.08.2022
-
-Skill Cup, Максим Ильяхов, Родион Скрябин | Бренд-медиа, блоги и контент-маркетинг (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Сделать всё это хорошо — сложно
-Стоит — дорого
-Поэтому появился этот курс — он поможет запустить блог или бренд-медиа легче и дешевле.
-А еще этот курс ответит на вопросы:(   Читать дальше...   )Производство: Skill CupЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 21:06:24Реклама: Присутствуют наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CFC65F20DB2991880B4372DC3F566D4DD0A790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572625   (205395) от 27.08.2022
-
-Deutsch Online | Большой грамматический интенсив В1 по немецкому языку (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Иностранные языки (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Разбираем самые важные грамматические темы уровня В1 и закрепляем на практике.
-6 видеосеминаров по грамматике по 150 минут каждый:
-Темы:
-1. Придаточные предложения.(   Читать дальше...   )Производство: Deutsch OnlineЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 15:00:17Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E34E968DC1F40D540D2B1D97B5AA665E797139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572626   (205393) от 27.08.2022
-
-Deutsch Online | Большой грамматический интенсив A2 по немецкому языку (2022) WEB-DL [RU, AD]
-
->>Обучающие видеоматериалы
->>Иностранные языки (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Прокачайте язык в доступном формате. Занимайтесь в своем темпе, где угодно и когда удобно. Разбираем самые важные грамматические темы уровня А2 и закрепляем на практике.
-6 видео семинаров по грамматике по 150 минут каждый:
-
-Темы:(   Читать дальше...   )Производство: Deutsch OnlineЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 15:23:08Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED14B765CF78CA9859E0F29CA4D7757C6D33BFD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572263   (205383) от 27.08.2022
 
 Cubebrush, Marc Brunet | Ultimate Career Guide: 3D Artist Part 1-7 (2018) PCRec [EN, RU]
@@ -315,7 +6,7 @@ Cubebrush, Marc Brunet | Ultimate Career Guide: 3D Artist Part 1-7 (2018) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205383.jpg" />
 </div>
 
 
@@ -341,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205379.jpg" />
 </div>
 
 
@@ -368,7 +59,7 @@ Udemy, Grim Future Studio | Unreal Engine - базовый курс №2. От �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205306.jpg" />
 </div>
 
 
@@ -397,7 +88,7 @@ Udemy, Nexttut, Nikolay Naydenov | Male Character Creation in Zbrush (2019) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205288.jpg" />
 </div>
 
 
@@ -424,7 +115,7 @@ ArchDialog | 99 летних вебинаров для дизайнеров ин
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205156.jpg" />
 </div>
 
 
@@ -453,7 +144,7 @@ Zero To Mastery Academy (ZTM), Daniel Bourke | PyTorch for Deep Learning (2022) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205109.jpg" />
 </div>
 
 
@@ -480,7 +171,7 @@ Udemy, Ali Ncir | Blender 2.8 and Substance Painter - 3D Modeling Game Assets (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204934.jpg" />
 </div>
 
 
@@ -507,7 +198,7 @@ O’Reilly, Valaxy Technologies | DevOps Complete Course (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204927.jpg" />
 </div>
 
 
@@ -535,7 +226,7 @@ Udemy, Jose Moreno | Blender & Substance - Modeling and Texturing Videogame Prop
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204925.jpg" />
 </div>
 
 
@@ -562,7 +253,7 @@ Udemy, Victor Deno | Blender: Ultimate Game Art Creation Guide (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204867.jpg" />
 </div>
 
 
@@ -589,7 +280,7 @@ YouTube, Rachel | Scifi Hardsurface Glove Time-Lapse in Blender 2.9 (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204855.jpg" />
 </div>
 
 
@@ -615,7 +306,7 @@ Gumroad, Rachel | Modeling a Scifi Helmet in Blender 2.8 (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204854.jpg" />
 </div>
 
 
@@ -642,7 +333,7 @@ Udemy, Sime Bugarija | Complete Blender beginner workflow for Cinematic animatio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204828.jpg" />
 </div>
 
 
@@ -670,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204825.jpg" />
 </div>
 
 
@@ -699,7 +390,7 @@ TutorOnline, Василий Рустамович | Курс по высшей м
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204778.jpg" />
 </div>
 
 
@@ -713,6 +404,300 @@ TutorOnline, Василий Рустамович | Курс по высшей м
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC40B2C71004045E0CFD878DFFA982369533B8B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586297   (204768) от 26.10.2022
+
+Skillshare, Harry Jones | Blender 3D for Beginners: Create a 3D Vaporwave Animation (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204768.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом уроке я расскажу вам о простом и удобном для начинающих процессе создания анимации в стиле Vaporwave (Вейпорвейв) в Blender.
+Vaporwave - это одновременно музыкальный и визуальный жанр художественного произведения. Визуальная эстетика определяется как включающая ранние интернет-изображения, веб-дизайн конца 1990-х, глитч арт и киберпанковские тропы, а также (   Читать дальше...   )Производство: SkillshareЖанр: 3D моделирование, АнимацияЯзык озвучки: АнглийскийПродолжительность: 02:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD2F32C377C3144169F55F2073D29EF87B1A709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586289   (204764) от 26.10.2022
+
+Adrian Cantrill | AWS Certified Solutions Architect - Professional (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204764.jpg" />
+</div>
+
+
+###  Подробнее
+
+🚨 LAST UPDATE : April 2022 🚨 - General Lesson updates (s3, account setup, ORG) and UI fixes.
+Enhance your skills - become a professional level Solutions Architect and pass the AWS SA Pro Exam
+** MAJOR UPDATE ** AWS have announced a new version of the SA Professional Exam (SAP-C02). The first day to sit this exam is November 15th 2022, registrations (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 71:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7CA89025EC1FA045C8C382AC621CB430A91C09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586994   (204654) от 28.10.2022
+
+Udemy, GameDev.tv Team, Ben Tristem и др. | RPG Core Combat Creator: Learn Intermediate Unity C# Coding (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Role Playing Games can be complex to create, with many interacting gameplay systems. We make it easy for you! Learn, step-by-step, how to make the foundations of any good RPG combat system - from scratch.
+In this course we're focusing on the core of any great RPG, giving your players a fun combat moment in a well crafted level, based upon a solid game design, built (   Читать дальше...   )Производство: Udemy, GameDev.tv TeamЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 27:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC902ECD449B3DFBBE4D6C009AEE94735F5B6EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601590   (204624) от 01.01.2023
+
+Udemy, MA Applied Linguistics & DELTA, James Castleden | IELTS Step-by-step | MASTERING ALL SKILLS 7+ (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Иностранные языки (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пошаговая инструкция - это комплексный курс, посвященный совершенствованию ваших навыков аудирования, чтения, письма и разговорной речи для получения отличных результатов на экзамене IELTS. Вы откроете для себя сотни советов и приемов, а также умные, редко используемые методы, которые помогут вам в достижении ваших целей - некоторые студенты поднялись с 6,0 до 8,5 (   Читать дальше...   )Производство: Udemy, MA Applied Linguistics & DELTAЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 73:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48A2F37065EFFE2BEE4E5B9110BC54926DBA01E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601741   (204594) от 02.01.2023
+
+Udemy, Kevin Nguyen | JavaScript & LeetCode | The Interview Bootcamp (2019) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите * все * лучшие практические приемы / техники для решения этих надоедливых проблем с собеседованием, чтобы вы могли получить работу своей мечты!
+Вы готовитесь к следующему собеседованию по программированию, но не знаете с чего начать? Или вы ищете краткое, простое для понимания учебное пособие со всем, что вам нужно знать? Или вы ищете мощное преимущество (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 04:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FB767921E81525773C87307F2958364E7A7CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601896   (204582) от 02.01.2023
+
+Udemy, Keino Campbell, Esq. | TOEFL iBT (26+) Complete Preparation Course! (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Иностранные языки (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Do you want an overall score of 100+ on the TOEFL iBT? Are you ready to successfully prepare for the Revised TOEFL iBT Exam?
+We have the TOEFL iBT course for you!
+We do not teach a surface-level course that tells you the basics of the exam. To truly break down and simplify the questions for you so that the test becomes easy requires the depth of explanation we give. (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 50:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A636E65828513F59A1E64ED6C2BC0C1346B2FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601684   (204567) от 02.01.2023
+
+Udemy, Piotr Jura | Master NestJS - The JavaScript Node.js Framework (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204567.jpg" />
+</div>
+
+
+###  Подробнее
+
+NestJS — один из самых современных фреймворков Node.js. Этот курс научит вас всему, что вам нужно знать, чтобы начать работать как можно скорее! Не дайте себя обмануть другими более длинными курсами, которые в основном содержат больше пуха и болтовни, чем любые содержательные уроки. Я больше всего ценю ваше время, и слежу за тем, чтобы каждая минута курса была наполнена (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 07:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B3994C30B4A7DF88766AB3876BD8A1C334BB1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602085   (204528) от 03.01.2023
+
+Frontendmasters, Steve Kinney | React Performance (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204528.jpg" />
+</div>
+
+
+###  Подробнее
+
+React это быстро! Да. Но любое приложение, которое растет, начинает разрабатывать свои собственные пограничные случаи, которые требуют от нас выполнения детективной работы для достижения максимальной производительности. Мы рассмотрим некоторые распространенные ловушки приложений React, как их диагностировать и как измерить эффективность ваших решений. Вы узнаете, (   Читать дальше...   )Производство: FrontendmastersЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB753EF5AC50FAE99C99F2A250DDB5B61965FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602069   (204521) от 03.01.2023
+
+ardanlabs.com, Miki Tebeka | Practical Go Foundations (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204521.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом вводном курсе рассматриваются такие темы, как строки, REST API, обработка ошибок, тестирование, сортировка и многое другое! Идеально подходит для инженеров, которые только начинают свой путь в Go. Этот курс поможет вам ознакомиться с основными понятиями языка программирования Go. Благодаря лекциям и упражнениям вы узнаете об основных концепциях, необходимых (   Читать дальше...   )Производство: ardanlabs.comЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 13:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91DB653AEAE59000FE0E053FE8534DF31AF33BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602189   (204513) от 04.01.2023
+
+Udemy, iwayQ Technology | Project in DevOps: Jenkins CI/CD for Kubernetes Deployments (2020) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ищете современную архитектуру микросервисов для комплексного решения Jenkins CI/CD для автоматизации развертывания приложений? Тогда вы в правильном месте!! Я пользуюсь этой возможностью, чтобы предоставить вам современную интеграцию инструментов DevOps  с полной презентацией архитектуры.
+Инструменты DevOps, используемые для демонстрации практического занятия в рамках (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 04:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B8854AB06A28E983DF0483921601BF9AB6C896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602105   (204497) от 04.01.2023
+
+Udemy, Laith Harb | Docker and Kubernetes - The Complete Developers Guide (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204497.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе мы проведем вас от новичка в Docker и Kubernetes до готового к работе инженера. Этот курс наполнен диаграммами и практическими примерами, чтобы вы могли по-настоящему глубоко понять и использовать Docker и Kubernetes. Мы будем контейнеризовать пять проектов, каждый из которых будет становиться все более и более сложным. Нам нужно закончить этот курс, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 12:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA9E8FF1403C3B7392C1D07189F6D20A3FE963C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

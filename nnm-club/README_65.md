@@ -1,188 +1,3 @@
-###  Публикация: 1869796   (1068473) от 
-
-Михаил Атаманов | Стратег из ниоткуда (Книга 2) (2026) [MP3, Иван Чабан]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Первая попытка Тимофея легализоваться в мире Элаты, куда его призвали насильно, закончилась смертью и болезненным уроком, что не стоит дерзить сильным мира сего, пока сам ты слаб и неизвестен. Герой этот урок усвоил. И начал строить своё собственное государство из того, что имеется под рукой. А под рукой у Тимофея оказались орки - дикие, кровожадные и плохо управляемые. (   Читать дальше...   )Жанр: Попаданцы в магические миры, Боевое фэнтезиИздательство: 1С-ПаблишингПродолжительность: 10:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645D835FEDBFD047C48643EE804FB4BB9C1FFCB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869797   (1068472) от 
-
-Firefox Browser 150.0.2 [Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E465A15DD19B2D88988D439FA64B5FF3B76EF6FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869798   (1068471) от 
-
-Visual Studio Code 1.119.0 + Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Code – визуальный редактор кода от компании Майкрософт. Это мощный программный продукт на смотря на свою легкость, разработчикам удалось сделать его достаточно функциональным и полезным. Редактор отлично понимает jаvascript, TypeScript или Node.js, но при необходимости, возможности программы могут быть существенно расширены за счет быстрой установки (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476342D5934686A89B128EC43C612586FEC7EE7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869803   (1068470) от 
-
-Полицейский гонщик / Poliziotto sprint (1977) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Полицейскому Марко начальство никак не желает выделить скоростную машину, а его старенькая модель не может выжимать большие скорости, из-за чего в большинстве случаев преступникам удаётся удрать, а сам полицейский не раз попадает в аварии. Во время одной из таких погонь машина Марко переворачивается, и погибает напарник. Далее следует служебное расследование и увольнение (   Читать дальше...   )Производство: Италия / Cleminternazionale CinematograficaЖанр: драма, криминал,боевикРежиссер: Стельвио МассиАктеры: Маурицио Мерли, Лилли Карати, Джанкарло Сбраджа, Анджело Инфанти, Глауко Онорато, Орацио Орландо, Гаэтано Балестрьери, Розарио БореллиПеревод: любительский одноголосый (Horror Maker)Язык озвучки: русский, итальянскийСубтитры: английскиеПродолжительность: 01:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A452725E9E19BF5BD10C0D86DC07C3E4F32657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869804   (1068469) от 
-
-Testament - Practice What You Preach (2026 Remastered) (1989) Remastered, 2026, Nuclear Blast [FLAC 24/96|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Practice What You Preach (04:55)
- 02. Perilous Nation (05:51)
- 03. Envy Life (04:17)
- 04. Time Is Coming (05:26)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDAA4C62F21AD649999197E1F84CCE97FF323645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869802   (1068468) от 
-
-K-Lite Codec Pack 19.7.0 Mega / Full / Standard / Basic [En]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C830462A88DB82FFF91004C0984BFD30423F8A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869801   (1068467) от 
-
-K-Lite Codec Pack Update 19.7.0 [En]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C299C0CBFBC0B556137C229DB3C5298ABC4C0FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869805   (1068466) от 
 
 Андреас Грубер | Ангельская мельница (2008) [FB2, EPUB, MOBI]
@@ -191,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068466.jpg" />
 </div>
 
 
@@ -218,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068465.jpg" />
 </div>
 
 
@@ -244,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068464.jpg" />
 </div>
 
 
@@ -270,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068463.jpg" />
 </div>
 
 
@@ -296,7 +111,7 @@ Brave Browser 1.90.121 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068462.jpg" />
 </div>
 
 
@@ -323,7 +138,7 @@ Sumatra PDF 3.7.18428 Pre-Release + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068461.jpg" />
 </div>
 
 
@@ -350,7 +165,7 @@ QontrolPanel 1.15.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068460.jpg" />
 </div>
 
 
@@ -378,7 +193,7 @@ Mp3tag 3.34.1 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068459.jpg" />
 </div>
 
 
@@ -404,7 +219,7 @@ Teorex FolderIco 9.1.1 RePack [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068458.jpg" />
 </div>
 
 
@@ -432,7 +247,7 @@ Opera GX 131.0.5877.36 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068457.jpg" />
 </div>
 
 
@@ -458,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068456.jpg" />
 </div>
 
 
@@ -484,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068455.jpg" />
 </div>
 
 
@@ -510,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068454.jpg" />
 </div>
 
 
@@ -536,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068453.jpg" />
 </div>
 
 
@@ -562,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068452.jpg" />
 </div>
 
 
@@ -589,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068451.jpg" />
 </div>
 
 
@@ -616,7 +431,7 @@ Wen Chao Gong | Чернокнижник в Мире Магов (The Plagiarist)
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068450.jpg" />
 </div>
 
 
@@ -644,7 +459,7 @@ Capcom Sound Team - PRAGMATA Original Soundtrack (2026) [FLAC|Lossless|WEB-DL|tr
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068449.jpg" />
 </div>
 
 
@@ -673,7 +488,7 @@ VA - Музыка Победы (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068448.jpg" />
 </div>
 
 
@@ -687,6 +502,205 @@ VA - Музыка Победы (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D21C56C38A2A6D56C6F657CE16C89B82A10CE5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869176   (1068447) от 
+
+VA - Музыка Победы. Часть 2 (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Баста - Тёмная ночь (2:59)
+02. Антон Токарев и Асия - Эхо любви (2:57)
+03. Loc-Dog - Нам нужна одна победа (3:00)
+04. Владимир Пресняков - Пора в путь дорогу (2:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE312E65145D48FC79AF31E3D62818085577E9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869173   (1068446) от 
+
+VA - Музыка Победы. Часть 2 (2026) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Баста - Тёмная ночь (2:59)
+02. Антон Токарев и Асия - Эхо любви (2:57)
+03. Loc-Dog - Нам нужна одна победа (3:00)
+04. Владимир Пресняков - Пора в путь дорогу (2:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775DE8A15F74729CAB49552A272B046850202982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869621   (1068445) от 
+
+Коллектив авторов | Большая энциклопедия (1900—1909) (Энциклопедия Южакова) [23] (1900-1909) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068445.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Большая энциклопедия» под редакцией С. Н. Южакова — российская универсальная энциклопедия, выпущенная книгоиздательским товариществом «Просвещение» (Санкт-Петербург) совместно с Библиографическим институтом (Лейпциг, Вена). При составлении энциклопедии в качестве образца использовался немецкий словарь Мейера.
+
+Энциклопедия была напечатана в типолитографии товарищества (   Читать дальше...   )Жанр: Исторический, научно-популярныйЯзык: Язык русский, дореформенный.Издательство: «Просвещение» (Санкт-Петербург)Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A067D85B70404E57E6E48F9DF6A7E8FE53C45A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869822   (1068444) от 
+
+VA - Ori Uplift - Uplifting Only Episode 691 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. André Wildenhues Feat. Stacey Jay – Dare to Dream (Intro Mix)
+02. Simonic – Back to Life
+03. Illitheas – Heaven ArisesЖанр: Trance, Uplifting TranceПродолжительность: 02:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33FAB109F038ACD687C99062DC42AE5D6DC0775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869821   (1068443) от 
+
+VA - Armin van Buuren - A State Of Trance 1276 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leon Bolier – Trouble
+02. Armin van Buuren & Skytech – She A Freak
+03. Armin van Buuren & Andrew Bayer ft. Fiora – Serendipity
+04. Adam Beyer & Mark Reeve – Love Within(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D72E3AC4077555044E9279B67B79ED02BC4FDB38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869749   (1068442) от 
+
+Кирилл Жданов | Правила бесконфликтного общения. 52 простых приема, чтобы отразить словесную агрессию и наладить лю (2026) [MP3, Алексей Кизуб]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстро осадить грубияна. Уверенно выиграть спор. Выторговать более выгодные условия у человека, который изначально не собирался уступать. Все это становится достижимым, если освоить простые способы защиты личных границ.
+Эта книга — практический «зал тренировок» для тех, кто хочет прокачать навыки антиагрессии. Кирилл Жданов — коуч и эксперт по ораторскому мастерству, (   Читать дальше...   )Жанр: ПсихологияИздательство: БомбораПродолжительность: 04:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9077BC17D0EDA3BF1D8ACD6BAB732ACAE23D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869288   (1068441) от 
+
+Коллектив авторов | Журнал Развѣдчикъ / Разведчик [1889 - 1917, PDF, RUS] [26] (1889-1917) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый в России частный военный журнал.
+
+Выходил с 1889 по 1917 годы. В раздаче представлена подшивка за 26 лет существования журнала, начиная с 5-го года издания, то есть, с 1892 по 1917 гг. Номера с 82 по 1414-й. Первые четыре года отсутствуют, поскольку представляли собой ещё не журнал, а товарный листок склада товарищества Березовского.
+(   Читать дальше...   )Жанр: Исторический, научно-популярныйЯзык: Язык русский, дореформенный.Издательство: Типография Тренке и ФюсноФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38855731ED8FE2E681D24AD83E0A4DF3933FC227
 ```
 
 https://mybot314.ru/tekegram_catalog/

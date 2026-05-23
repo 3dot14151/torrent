@@ -1,29 +1,3 @@
-###  Публикация: 1720570   (57643) от 04.05.2024
-
-Lunar Lander Beyond (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Lunar Lander Beyond - насыщенный событиями космический симулятор, где вы отправитесь исследовать бескрайние просторы Вселенной. Компания «Пегас» назначила именно вас капитаном корабля, чтобы вы возглавили готовящуюся экспедицию. Суть проста: добраться до места назначения, выполнить ряд поручений и вернуться назад, но во время похождений вы то и дело будете сталкиваться (   Читать дальше...   )Тип издания: RepackРазработчик: Dreams UncorporatedЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405EFE8A9D5FB4F86A8200314C4EB1AB74C7FF88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720638   (57618) от 04.05.2024
 
 Crossroads 4: Fatal Truths / Перекрёсток 4: Роковые истины (2024) [Ru] (1.0) Unofficial [Collector’s Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Crossroads 4: Fatal Truths / Перекрёсток 4: Роковые истин
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57618.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Dark City 9: Amsterdam / Мрачный город 9: Амстердам (2024) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57607.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.6) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57551.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Tales from Candleforth (2024) [Multi] (1.08) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57441.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Internet Cafe Evolution (2024) [Multi] (1.2.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57431.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Golf With Your Friends (2020) [Ru/Multi] (258/dlc) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57358.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.6) Scene FAiRLiGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57253.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Divinity Chronicles: Journey to the West (2023) [Multi] (1.14.20b/dlc) Scene Ten
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57118.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57108.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Expansion - Europa Universalis IV: Domination (2023) [Multi] (1.37.0/dlc) Scene 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57103.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Gift (2024) [Ru/Multi] (1.0) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57102.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57065.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Last Train Home (2023) [Ru/Multi] (1.0.0.32413) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57054.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ the Dwarf (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57043.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Phantom Fury (2024) [Ru/Multi] (17384) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57020.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ MEGATON MUSASHI W: WIRED (2024) [Multi] (3.0.2/dlc) Repack FitGirl [Deluxe Editi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56943.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Gone Home (2013) [Ru/Multi] (2020-01-28) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56939.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Ira (2023) [Multi] (1.0.10) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56921.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Strongloween: The Escape (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56915.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Bridge Curse 2: The Extrication / Проклятый мост 2: Эваку�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56911.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Battle vs Chess (2011) [Ru/Multi] (1.2/dlc) License GOG [Grandmaster Premium Edi
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56904.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ City Legends 4: The Witness in the Rye (2024) [Multi] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56895.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Hand In Hand (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56894.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Alba: A Wildlife Adventure (2020) [Ru/Multi] (0.90) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56893.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Savant - Ascent REMIX (2023) [Ru/Multi] (1.2a03) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56829.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Savant - Ascent REMIX предлагает отправиться в захва�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8851D3E8DFDE54F67A2EB2EAC78AE7E80FF50837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722589   (56804) от 12.05.2024
+
+Mists of Noyah (2022) [Multi] (1.0.2) Scene Razor1911
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игрок оказывается в заброшенной крепости, которую разрушили вследствие войны в Mists of Noyah. Геймеру предстоит заняться исследованием близлежащих территорий, чтобы восстановить форт, где скрыто много опасностей. Пиксельная адвенчура предполагает поиск обитателей крепости, которым удалось спастись, артефактов и сражения с демонами ночью. Потеря здания означает проигрыш. (   Читать дальше...   )Тип издания: SceneРазработчик: PyxeraliaЖанр: Экшены, Инди, Ролевые игрыЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E08C87B0BAFBF185163BCB0DB6411FA4539F58
 ```
 
 https://mybot314.ru/tekegram_catalog/

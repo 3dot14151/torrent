@@ -1,57 +1,3 @@
-###  Публикация: 1576163   (208145) от 13.09.2022
-
-exFAT/NTFS for USB by Paragon 3.6.0.1 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Ваш Android не распознаёт подключенный к нему USB-носитель? Вероятно, файловая система внешнего накопителя не поддерживается устройством.
-Установите приложение Microsoft exFAT/NTFS for USB by Paragon Software, чтобы монтировать систему внешнего USB-накопителя и управлять файлами прямо с вашего Android-устройства.
-Приложение интегрировано с поставщиком документов (   Читать дальше...   )Тип издания: ProРелиз состоялся: 26 авг. 2022 г.Разработчик: Paragon Technologie GmbHПоддерживаемая ОС: Android: 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D855847B4998A69629E213DD54D37C8F843663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648723   (208143) от 24.07.2023
-
-XFolder File Manager / XFolder - Файловый менеджер 1.4.5.1 Mod by Mixroot, maxi123444 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-XFolder File Manager - отличный представитель категории файловых менеджеров. С его помощью пользователи могут действовать в универсальном ключе, как на мобильном гаджете, так и на ПК или облачном хранилище, перемещая файлы как им нужно. Удобный интерфейс помогает быстро понимать то, что и в каком объёме находится в папках, перемещать выбранное, создавать файлы, просматривать (   Читать дальше...   )Тип издания: ProРелиз состоялся: 15.07.2023Разработчик: InShot Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40DF12073102B5703F8D51357A1AAB556991D954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576507   (208127) от 14.09.2022
 
 Стрелка. Автономная GPS навигация 1.0.28b [Ru]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208127.jpg" />
 </div>
 
 
@@ -87,7 +33,7 @@ Pawxy: Fast VPN & Browser 1.4.3 Mod by ANiK555 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208056.jpg" />
 </div>
 
 
@@ -113,7 +59,7 @@ Always on Edge 8.0.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208005.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ Total Commander 3.42d Mod by cvvar00 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207948.jpg" />
 </div>
 
 
@@ -165,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207893.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207856.jpg" />
 </div>
 
 
@@ -217,7 +163,7 @@ BetterSleep: Сон и Медитация 23.10.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207852.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ Mi Band 7 Циферблаты 1.1.0 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207838.jpg" />
 </div>
 
 
@@ -269,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207836.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ Garmin: TopoActive Middle East & Central Asia 2023 [En/Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207742.jpg" />
 </div>
 
 
@@ -322,7 +268,7 @@ SD Maid v5.5.10 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207650.jpg" />
 </div>
 
 
@@ -348,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207634.jpg" />
 </div>
 
 
@@ -374,7 +320,7 @@ NYMF: Арт-проект Ню Фотографии 1.5.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207612.jpg" />
 </div>
 
 
@@ -400,7 +346,7 @@ FamilyGo: семейный геолокатор v5.0.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207608.jpg" />
 </div>
 
 
@@ -426,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207531.jpg" />
 </div>
 
 
@@ -452,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207457.jpg" />
 </div>
 
 
@@ -478,7 +424,7 @@ YMusic - YouTube Music Player & Downloader Mod by ANiK555 3.7.22.1156 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207240.jpg" />
 </div>
 
 
@@ -504,7 +450,7 @@ Words - Учи иностранные языки v5.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206998.jpg" />
 </div>
 
 
@@ -530,7 +476,7 @@ Delight VPN Mod by DEXUNPACKER 6.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206931.jpg" />
 </div>
 
 
@@ -556,7 +502,7 @@ Voice v4.0.16 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206419.jpg" />
 </div>
 
 
@@ -585,7 +531,7 @@ Lingua GO: Экранный переводчик, более 108 языков v1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206394.jpg" />
 </div>
 
 
@@ -612,7 +558,7 @@ Pro Pool 2022 v1.50 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206380.jpg" />
 </div>
 
 
@@ -638,7 +584,7 @@ Super Sound v2.4.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206372.jpg" />
 </div>
 
 
@@ -664,7 +610,7 @@ Secure VPN－Безопаснее, быстрее 3.0.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206333.jpg" />
 </div>
 
 
@@ -677,6 +623,58 @@ Secure VPN шифрует ваше интернет-соединение, что
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:976CDF6310FE0E7892A8C57D37BE46FF98348CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653501   (206211) от 16.08.2023
+
+Aurora - Poweramp Skin 8.9 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aurora - это красочный скин для Poweramp v3. Вы можете изменить практически все, чтобы Poweramp выглядел минималистичным, прозрачным и потрясающим. Этот скин также поддерживает Material You Dark and Light (только для Android 12 и выше). По сравнению с Luminous и Luminous Black, этот скин имеет несколько более спокойные акцентные цвета и разнообразие цветов фона, (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 09.08.2023Разработчик: Mixified PixelПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3032E092B78F7FB94C56AA4B733FEB8938F4910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653499   (206157) от 16.08.2023
+
+Luminous Black - Poweramp Skin 8.9 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Luminous Black – это современный черный скин для Poweramp v3. Вы можете изменить практически все, чтобы Poweramp выглядел минималистичным, прозрачным и потрясающим. Этот скин также поддерживает Material You (только для Android 12 и выше). По сравнению с Aurora и Luminous, этот скин имеет более яркие акцентные цвета и различные варианты черного цвета фона, такие как (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 09.08.2023Разработчик: Mixified PixelПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6782D777684A8C5075130B10AD581BC9769C26
 ```
 
 https://mybot314.ru/tekegram_catalog/

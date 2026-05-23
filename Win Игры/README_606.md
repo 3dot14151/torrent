@@ -1,29 +1,3 @@
-###  Публикация: 1819219   (1709) от 21.09.2025
-
-Dead Reset (2025) [Ru/Multi] (1.0.2) Repack Other s
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Хирург Коул Мейсон был похищен и доставлен на подводный объект, чтобы прооперировать пациента и извлечь из него ужасное паразитирующее существо. Dead Reset - это пропитанный кровью интерактивный ужастик, в котором каждая смерть приближает вас к истине.Тип издания: RepackРазработчик: Dark Rift Horror, Wales InteractiveЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D9A92FFFF1FA1FE599FB7CD3B700CC182E1CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819324   (1705) от 21.09.2025
 
 For The King II (2023) [Ru/Multi] (1.8.8/dlc) Repack FitGirl [Deluxe Edition]
@@ -32,7 +6,7 @@ For The King II (2023) [Ru/Multi] (1.8.8/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1705.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1704.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Greedland (2025) [Ru/Multi] (1.0.02) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1703.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.22358) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1690.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ TRAIL OUT (2022) [Ru/Multi] (5.0/dlc) Repack FitGirl [Complete]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1673.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Lawn Mowing Simulator (2021) [Ru/Multi] (1.0.15.0/dlc) Repack FitGirl [Complete 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1664.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Ravenswatch (2023) [Ru/Multi] (1.03.01.00.26879/dlc) Repack Other s [Supporter E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1651.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1648.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Bad Cheese (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1647.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ BeamNG.drive (2015) [Ru/Multi] (0.37.2.0.18718) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1539.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Hell is Us (2025) [Ru/Multi] (1.3.36.43556/dlc) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1533.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3781977) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1514.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ FATE: Reawakened (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1512.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Echoes of the End (2025) [Ru/Multi] (1.05) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1507.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ City Game Studio: a tycoon about game dev (2019) [Ru/Multi] (1.24.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1409.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Do No Harm (2025) [Ru/Multi] (1.2.1) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1407.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1405.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.04.08/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1402.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Orcs Must Die! Deathtrap (2025) [Ru/Multi] (2.1.1/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1401.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ POSTAL: Brain Damaged (2022) [Multi] (1.10.4/dlc) License GOG [Connoisseur Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1400.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Ctrl Alt Ego (2022) [Ru/Multi] (1.5.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1397.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack West4it [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1389.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.09.22.07.56/dlc) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1385.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Hell Clock (2025) [Ru/Multi] (1.0.3 HF4/dlc) Repack Let'sРlay [Supporter Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1384.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2014.013.003.009.008/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1383.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFE2CEDBBB6DC734295776C1CE030833D966BE08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809240   (1380) от 23.09.2025
+
+Star Valor (2022) [Ru/Multi] (2.2.2e/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Star Valor - космическая игра в жанре экшен-РПГ, где вы управляете собственным кораблём и собственной судьбой. Исследуйте огромный процедурно генерируемый мир, начав с самых низов, и станьте самым известным человеком в галактике. Но во вселенной, где человечество влачит существование под пятой почти истребивших его пришельцев, богатство и власть никому не даются (   Читать дальше...   )Тип издания: RepackРазработчик: Rafael BurgosЖанр: Экшены, Инди, Ролевые игрыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15CD3C7B898FA0DDD6546BAB71F695908943F176
 ```
 
 https://mybot314.ru/tekegram_catalog/

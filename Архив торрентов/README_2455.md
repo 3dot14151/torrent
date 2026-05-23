@@ -6,7 +6,7 @@ Computer Desktop Wallpapers Collection (27.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504972.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nature Wallpapers (24.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504971.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nature Wallpapers (23.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504970.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ David Salvans - Montseny (1994) [MP3|320 кб/с]<New age, Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504968.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Desktop wallpapers (25.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504967.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Landscapes HD Wallpapers (22.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504966.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Landscapes HD Wallpapers (25.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504965.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Nature Wallpapers (28.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504938.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Computer Desktop Wallpapers Collection (23.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504937.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Nature HD Wallpapers (22.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504936.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Computer Desktop Wallpapers Collection (26.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504935.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Design and interior of the wallpaper (22.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504934.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Nature Wallpapers (21.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504933.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Best HD Wallpapers Pack (25.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504932.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Design and interior of the wallpaper part.2 (22.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504931.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Neosis - Neosis (2012) [MP3|320 кб/с]<Progressive Math Death, Modern Cyber Me
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504930.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Desktop wallpapers (23.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504929.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Landscapes HD Wallpapers (23.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504928.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Desktop wallpapers (27.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504927.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Design and interior of the wallpaper (21.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504926.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Computer Desktop Wallpapers Collection (28.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504925.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Design and interior of the wallpaper (24.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504924.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Design and interior of the wallpaper (23.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504922.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Design and interior of the wallpaper (25.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504919.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Landscapes HD Wallpapers (21.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504918.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Design and interior of the wallpaper (27.08.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504917.jpg" />
 </div>
 
 

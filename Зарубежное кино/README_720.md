@@ -1,55 +1,3 @@
-###  Публикация: 787804   (735935) от 18.05.2014
-
-Роковая страсть / Иммигрантка / The Immigrant (2013) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1921 г. Эва с сестрой Магдой покидают родную Польшу в поисках Земли обетованной, которой им представляется Нью-Йорк. По прибытии Магду, заболевшую туберкулезом, помещают в карантин. Одинокая и растерянная Эва попадает в сети бесстыдного сутенера Бруно. Чтобы спасти сестру она готова на все жертвы и соглашается стать проституткой. Появление иллюзиониста Орландо, двоюродного (   Читать дальше...   )Производство: США | Worldview Entertainment, Keep Your Head, Kingsgate FilmsЖанр: Драма, МелодрамаРежиссер: Джеймс ГрэйАктеры: Марион Котийяр, Хоакин Феникс, Джереми Реннер, Гленн Флешлер, Анджела Сарафян, Дагмара Доминчик, Гэбриел Раш, ДиДи Люкс, Илья Волох, Энтони КоронеПеревод: Многоголосый закадровый, профессиональный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский x2, АнглийскийПродолжительность: 01:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6924D06B31550F2FA645850218B7E7256AD3D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787721   (735934) от 18.05.2014
-
-Джек Райан: Теория хаоса / Jack Ryan: Shadow Recruit (2014) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Рядовой аналитик ЦРУ Джек Райан приезжает в Москву, чтобы решить простую задачу: ему нужно проверить операции компании, принадлежащей миллиардеру Виктору Черевину. Но все усложняется, когда Райана пытаются убить. Теперь он вынужден защищаться с оружием в руках, вспоминая армейские навыки и неожиданно для себя оказываясь в роли настоящего спецагента. На помощь Джеку (   Читать дальше...   )Производство: США, РоссияЖанр: Боевик, Триллер, Криминал, ДетективРежиссер: Кеннет БранаАктеры: Крис Пайн, Кира Найтли, Кеннет Брана, Кевин Костнер, Алек Утгофф, Джемма Чан, Петер Андерссон, Елена Великанова, Нонсо Анози, Колм Фиор ...Перевод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, Aнглийский (Forced, Full, SDH, SDH-Colored)Продолжительность: 01:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:646661969736AC11C8387812DCEE7E202FE94107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 787820   (735933) от 18.05.2014
 
 Академия вампиров / Vampire Academy (2014) BDRip [720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735933.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735928.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735927.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735926.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735923.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735921.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735913.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735909.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735907.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735904.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735902.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735867.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735856.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735844.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735826.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735823.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735817.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ CODA: Ребёнок глухих родителей / CODA (2021) BDRip [H.264/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735804.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735802.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735798.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735794.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735791.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735788.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735779.jpg" />
 </div>
 
 
@@ -667,6 +615,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79025DA9E850E43D1FF0CA3FFA8D46857DF80363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523375   (735778) от 30.01.2022
+
+Танкистка / Tank Girl (1995) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будущее после экологической катастрофы. В результате вода стала источником жизни в прямом смысле слова, так как ее было очень мало и на всех не хватало. А заправляет всем корпорация «Вода-Энергия-Власть».
+Ренегаты воровали воду и воевали со злодеями. Среди ренегатов была и остроумная, красивая и отвязная девушка Ребекка, у которой на всё готов ответ. Её близких и (   Читать дальше...   )Производство: США / Image Comics, Trilogy Entertainment GroupЖанр: Фантастика, Боевик, КомедияРежиссер: Рейчел ТэлалейАктеры: Лори Петти, Айс-Ти, Наоми Уоттс, Дон Харви, Джефф Кобер, Рег Э. Кэти, Скотт Коффи, Малкольм МакДауэлл, Стэйси Линн Рэмсойер, Энн КьюсакПеревод: Многоголосый профессиональный, двухголосый профессиональный, авторскийСубтитры: русские, английские (полные, для слабослышащих), немецкие, французские, испанские, итальянские, португальские (европейские, бразильские), болгарские, венгерские, голландские, датские, иврит, индонезийские, китайские, корейские, норвежские, польские, румынские, сербские, турецкие, урду, финские, хорватские, чешские, шведские, эстонскиеПродолжительность: 01:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D47E87218507245D75D02828A65FEF82A880A0E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527873   (735775) от 30.01.2022
+
+CODA: Ребёнок глухих родителей / CODA (2021) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глостер, штат Массачусетс. Семья глухих ведёт рыболовный бизнес. 17-летняя Руби, единственный слышащий член семьи, помогает глухим родителям и брату в рыбной ловле. В школе она присоединяется к местному хору, где понимает, что любит петь. Руководитель хора убеждает её подумать о музыкальной школе, и теперь девушка вынуждена выбирать между семьей и новой мечтой... (   Читать дальше...   )Производство: США, Франция, Канада, Vendome Pictures, Pathé Films, Picture Perfect FederationЖанр: драма, музыкаАктеры: Эмилия Джонс, Эухенио Дербес, Фердия Уолш-Пило, Трой Коцур, Марли Мэтлин, Дэниэл Дюран, Джон Фиоре, Лонни Фармер, Кевин Чэпмен, Эми ФорсайтПеревод: дублированный (Невафильм (Apple TV+))Субтитры: русские (надписи  и места без перевода; полные SDH), английские SDHПродолжительность: 01:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E44FE67B5DD2DF9F1AC30DCA444F924A79452A
 ```
 
 https://mybot314.ru/tekegram_catalog/

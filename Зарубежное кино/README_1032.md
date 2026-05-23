@@ -1,55 +1,3 @@
-###  Публикация: 1306716   (555398) от 06.06.2019
-
-Во имя спасения / Den blomstertid nu kommer (2018) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Человечество подверглось таинственному нападению, которому невозможно противостоять. Разрушены дома, мосты и дороги. Люди не могут найти укрытие от неведомой угрозы. Армия оказывается бессильной, поэтому жителям приходится спасаться самостоятельно. Их ожидает мрачное будущее, где единственной целью становится борьба за выживание. Теперь действует принцип — беги или (   Читать дальше...   )Производство: Швеция / Crazy PicturesЖанр: Фантастика, боевик, триллер, мелодрамаРежиссер: Виктор ДанеллАктеры: Кристоффер Нурденрут, Лиза Хенни, Йеспер Баркселиус, Пиа Хальворсен, Магнус Сандберг, Кристер Керн, Карин Бертлинг, Ульрика Бэкстром, Алексей Манвелов, Ингве ДалбергПеревод: Дублированный (iTunes)Субтитры: Русские (форс), Шведские (SDH), английские (полные)Продолжительность: 02:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531633A06B686E772449627EA24EE08A942E5169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306810   (555388) от 06.06.2019
-
-Клятва / Pledge (2018) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Первокурсники Этан, Джастин и Дэвид всеми силами стараются улучшить свою репутацию, мечтая стать членами престижного студенческого братства. Когда все популярные ученические сообщества отказывают главным героям, им неожиданно улыбается удача: маленькое и закрытое братство предлагает им членство в клубе, которое дает эксклюзивный доступ к миру ярких вечеринок, проходящих (   Читать дальше...   )Производство: США, BoulderLight Pictures, Stag PicturesЖанр: Ужасы, ТриллерРежиссер: Дэниэл РоббинсАктеры: Джеймс Уотсон, Джо Галлахер, Филлип Андре Ботелло, Джеки Тейлор, Мерритт Мэттью Чейз, Джессика Пиментел, Камерон Копертуэйт , Зак Уэйнер, Тим Винчис, Эмеральд Толлер, Джин Калелло, Макс Шустер, Бренда Монкс, Элла Джордан, Мелани Ротман, Эрика Бузер, Аарон Далла Вилла, Закари БёрдПеревод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: АнглийскийПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEEE7F2DD09B64BA7DC0FAB6D025861D146E18B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306866   (555385) от 06.06.2019
 
 Удивительный мир Марвена / Welcome to Marwen (2018) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555385.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555326.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555309.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555293.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555283.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555280.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555258.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555161.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555134.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555120.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555118.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554956.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554955.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554946.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554944.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554784.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554776.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554775.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554624.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554617.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554585.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554579.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554551.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554550.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F70C05CD4B976483C5614A40921401DE9934A8E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307667   (554544) от 11.06.2019
+
+Сирано. Успеть до премьеры / Edmond (2018) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Декабрь 1897 года, Париж. Эдмону Ростану нет и тридцати, а у него двое детей, которых надо кормить и одевать. Прошло уже два года, как он не может ничего написать. В отчаянии он обещает своему патрону принести новую грандиозную и уморительную пьесу в стихах. Обрадованный патрон назначает дату премьеры. Проблема в том, что у Эдмона пока есть только одно название. (   Читать дальше...   )Производство: Франция, Бельгия / Légende Films, Gaumont, France 2 CinémaЖанр: Драма, комедия, историяРежиссер: Алексис МихаликАктеры: Тома Соливерес, Оливье Гурме, Матильда Сенье, Том Либ, Люси Бужена, Элис де Ланкесэ, Клементин Селарье, Игорь Готсман, Доминик Пинон, Симон АбкарянПеревод: Многоголосый профессиональный (iTunes)Субтитры: отсутствуют.Продолжительность: 01:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05268BFD7BBCD59882D146401AF0A0C948D4705A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307778   (554541) от 11.06.2019
+
+Антиквариат / Antiquities (2018) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Уолт узнает о смерти отца, он возвращается в родной город, чтобы узнать больше о том, кем был один из его родителей. Мужчина даже устраивается на работу в местный магазин торгующий антиквариатом. В новом сумасшедшем мире он встречает Элли, которая оказывается самой нормальной и практичной женщиной в округе. Уолт очарован новой знакомой, однако тот хаос, что (   Читать дальше...   )Производство: США / Mortuus Pater PicturesЖанр: КомедияРежиссер: Дэниэл КэмпбеллАктеры: Эшли Грин, Мэри Стинберген, Микейла Уоткинс, Эндрю Дж. Уэст, Майкл Глэдис, Натали Кэнердей, Ингрид Хаас, Трой Хоган, Дженнифер Пирс Матус, Грэм ГордиПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC13CFDCEC40F62CD93D1E85379687B692B2313
 ```
 
 https://mybot314.ru/tekegram_catalog/

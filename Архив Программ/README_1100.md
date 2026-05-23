@@ -6,7 +6,7 @@ FinePrint 8.32 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487335.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Acronis True Image 2016 19.0.5620 + Media Add-ons [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487325.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Topaz Labs Photoshop Plugins Bundle 2015 (31.08.2015) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487323.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Acronis True Image 2016 19.0.5620 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487321.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ DAEMON Tools Pro Advanced 6.2.0.0496 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487317.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Office 2016 Standard 16.0.4432.1000 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487306.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Topaz DeNoise AI 2.2.8 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487280.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VirtualBox 4.1.22.80657 Final + PortableAppZ + Extension Pack [MULTi / Русс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487279.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VirtualBox 4.2.0 RC4 80667 + Extension Pack [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487274.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wondershare Video Converter Ultimate 6.0.0.18 Portable by Maverick [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487257.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Topaz Sharpen AI 2.1.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487250.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ DAEMON Tools Pro Advanced 6.2.0.0496 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487194.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Bongiovi Acoustics DPS Audio Enhancer 1.2.4 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487193.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Microsoft Windows Server 2016 Technical Preview 3 (10.0.10537) [En] WZT
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487192.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ TeamViewer 11.0.66695 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487173.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Topaz Sharpen AI 2.1.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487133.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Topaz DeNoise AI 2.2.8 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487130.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Topaz Mask AI 1.3.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487124.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Topaz A.I. Gigapixel 5.1.4 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487117.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Brave Browser 1.13.82 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487116.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Universal Extractor by gora 1.6.1.64 + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487100.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Qip Infium 2.0.9040 (Grey Pack) [Lite Version] v1.0 + Portable [русский +
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487046.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Qip Infium 2.0.9040 (Grey Pack) [Mini Version] v1.0 + Portable [русский +
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487039.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ FileZilla 3.50.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487033.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Topaz Video Enhance AI 1.5.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487030.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Microsoft Edge 85.0.564.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487026.jpg" />
 </div>
 
 

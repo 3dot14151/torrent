@@ -6,7 +6,7 @@ United Plugins & JMG Sound - Transmutator 2.5 VST, VST3, AAX (x86/x64)
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431678.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Roland - Jupiter 4 1.00 VSTi 3 (x64) RePack [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429568.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sixth Sample & Integraudio - Deelay 1.0.3 VST 3 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427438.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Plogue - Chipspeech 1.767 STANDALONE, VSTi, VSTi3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427290.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PSPaudioware - PSP stompFilter 1.2.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421200.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Overloud - REmatrix 1.2.11 Standalone, VST, VST 3, AAX (x86/x64) + Expansions Li
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421192.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Lennar Digital Sylenth1 v2.2.1 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420349.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ MakeMusic Finale 25.1.0.182 [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418020.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Loopmasters - Khords 1.0.4 VSTi (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416360.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Loopmasters - Bass Master 1.1.3 VSTi (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416236.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Spectral Plugins - Pancz 1.1.2 VST, VST 3, AAX (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414610.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Cool Record Edit Deluxe 9.8.0 [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412291.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Sound Normalizer 6.9 Portable by Baltagy [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410708.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ QuikQuak - Pitchwheel 5.0.3 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410222.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Auburn Sounds - Graillon 2 2.6.0 VST, VST 3, AAX (x86/x64) RePack by BTCR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407389.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Steinberg WaveLab LE 7.2.1 (build 600) [Англ.]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406848.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ MusicLab - RealGuitar 3.0.0 R2R [English]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406265.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ SyncerSoft Urban Nexus 1.0 VSTi [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404160.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ CoolUtils Total Audio Converter 5.3.0.235 RePack by KpoJIuK [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387403.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ iZotope - Vocal Doubler 1.00 VST, VST3, AAX (x86/x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385228.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ AudioEase - Altiverb 7 XL v7.2.8 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384168.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Glitchmachines - Hysteresis 1.3.0 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383758.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Unfiltered Audio - Needlepoint 1.0.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383754.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Accusonus - Regroover Pro 1.7.8.2 VSTi, AAX (x86/x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383381.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ WAVDSP - Fusion Intelligence 1.0.0  VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379346.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ W.A Production - InstaChord 2 2.0.4  VSTi, VSTi3, AAX (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379239.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Rockets - Space Rock: Greatest Hits (5CD Box Set) (2014) [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622515.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Frank Migliorelli and The Dirt Nappers - The Things You Left Behind (2019) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622507.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tony Carey - The Boystown Tapes Reissued (2006) [FLAC|image+.cue]<Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622120.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Reign of Kindo - 3 альбома, 1 EP (2007 - 2013) [FLAC|Lossless]<Indie,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_622037.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Bill Wyman - Back To Basics (2015) [FLAC|Lossless]<Rock, Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621901.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ The Beatles - Abbey Road (1969) Remastered, Stereo /Parlophone, Toshiba EMI/ [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621551.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Diana Rein - Long Road (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621160.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Tim Montana and The Shrednecks - Tim Montana and The Shrednecks (2016) feat. Bil
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621001.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Rock Ballads - The Most Beautiful Classic Rock Songs (2004) [FLAC|Lossless]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_620549.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Heart Rock vol.1 (1989) 2CD[FLAC|tracks + .cue]<Soft Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620119.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Heart - Magazine (1978) Reissue, 1995, Gema Special Markets [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619988.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ The Brian Jonestown Massacre - Don't Get Lost (2017) [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619821.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Roy Orbison - Anthology (2013) 3CD [FLAC|Lossless|image + .cue] <Classic Rock, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619089.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Status Quo - The Very Best (1994) Unofficial Release [APE|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618979.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Suzi Quatro - Back To The... Spotlight (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618304.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Zingale - Peace (1977) 2015, Belle Antique [FLAC|Lossless|image + .cue] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618230.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Visitors - 2 Albums (1977-1981) [FLAC|Lossless|image + .cue] <Eclectic Prog, Spa
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617286.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Planestrider - A Light Through The Dim (2022) [FLAC|Lossless|WEB-DL|tracks] <Sto
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616721.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ The Light In The Ocean - The Pseudo - Scientific Study of Oceanic Neo - Cryptid 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616717.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Houston - III (2017) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616705.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ The Light In The Ocean - Deep Reef Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616699.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Darkher - The Buried Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Oc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616673.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Colosseum - Restoration (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616664.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ The Marlboro Men - It Ain't a Hunting Party Till Something Gets Broken (2022) [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616537.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ Billy Joel - 50 Years of the Piano Man (1973) Remaster, 2022, Columbia Records [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616393.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ Elton John - Reg Strikes Back (1988) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616205.jpg" />
 </div>
 
 

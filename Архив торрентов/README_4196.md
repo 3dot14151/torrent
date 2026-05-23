@@ -6,7 +6,7 @@ StartAllBack 3.6.16 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160511.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160510.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AOMEI Backupper Technician Plus 7.3.3 (06.11.2023) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160506.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DefenderKiller 1.4/11.0.1 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160500.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ QLab 5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160481.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Deckset 2.0.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160479.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Dash 7.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160478.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Print to PDF Pro for Mac 4.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160475.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Marked 2 - Markdown Preview 2.6.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160474.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ DxO ViewPoint 4 for Mac v.4.11.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160470.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ JixiPix Artista Impresso Pro 1.8.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160463.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ DxO FilmPack 7 for Mac v.7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160460.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Sublime Text 4.0 Build 4164 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160458.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ BBEdit 14.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160444.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Eassiy Data Recovery for Mac 5.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160442.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Topaz Video AI for Mac 4.0.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160440.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Speedtest от Ookla 5.2.1 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160436.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ TweakNow WinSecret Plus! 4.9.13 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160434.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Radiant Photo 1.1.2.334 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160425.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Light Image Resizer 6.1.9 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160424.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Sketch 99 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160423.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ DxO PureRAW 3 for Mac v.3.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160422.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Mozilla Thunderbird 115.4.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160420.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Path Finder 2163 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160417.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ RegCool 1.347 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160414.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Firefox Browser 119.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160413.jpg" />
 </div>
 
 

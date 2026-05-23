@@ -1,29 +1,3 @@
-###  Публикация: 1379503   (221428) от 20.11.2020
-
-True Fear: Forsaken Souls (2018) [Ru/Multi] (2.0.3) License GOG [Part 2]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение высоко оценённого хоррор приключения, прославившегося своей историей и атмосферой ужасающей тайны. Холли Стоунхаус шла по следу из хлебных крошек. Наконец, она прибывает в лечебницу Дарк Фоллс и узнаёт, что кто-то уже был здесь до неё, кто-то ждал её. Но теперь Холли - не просто зритель, а то, что следует за ней - не просто тень. Теперь это настоящая (   Читать дальше...   )Тип издания: LicenseРазработчик: GoblinzЖанр: Adventure, CasualЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1D96218F0678833EA6DBCF32EBD6B8E3C843A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578684   (221085) от 22.10.2022
 
 Garden Simulator (2022) [Multi] (1.0.6.3) License GOG
@@ -32,7 +6,7 @@ Garden Simulator (2022) [Multi] (1.0.6.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221085.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Hard West 2 (2022) [Ru/Multi] (1.0.2.0.4192) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220990.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Christmas Stories 7. Alice's Adventures / Рождественские исто�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220940.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Silly Polly Beast (2025) [Ru/Multi] (1.01) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220632.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Fear the Dark Unknown (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220471.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Dark Moon (2025) [Ru/Multi] (Build version 2025-10-29) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220442.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220284.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Lake Ridden (2018) [En] (1.5.1505) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220225.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Princess Of Tavern / Принцесса таверн (2016) [Ru] (1.0.3) Unoffic
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220161.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Guest (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220157.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Haunted Legends 9: Faulty Creatures / Легенды о призраках 9: Н
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220068.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Contract with the Devil / Контракт с Дьяволом (2015) [Ru] (1.0)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220044.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ ArcRunner (2023) [Ru/Multi] (1.1.0.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220014.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Sonority (2022) [Ru/Multi] (1.6.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219988.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Queen's Wish 2: The Tormentor (2022) [En] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219952.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Christmas Stories 8: Enchanted Express (2019) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219934.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Dreamfall Chapters (2016) [ui/sub/res] (5.2) Unofficial Well-DING! Team & ZoG Fo
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219654.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Cabela's Big Game Hunter: Pro Hunts (2014) [En] (1.0) License RELOADED
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219640.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License GOG [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219631.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Exoplanet: First Contact (2016) [En] (0.15.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219469.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Forest (2014) [En] (0.51b) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219448.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Inside (2016) [Ru/Multi] (1.0/u10) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219426.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Lucius III (2018) [Ru/Multi] (0.181213182603.a) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219121.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Paranoia: Happiness is Mandatory (2019) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219032.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Fairy Godmother Stories 3: Little Red Riding Hood / Сказки Феи-Крёс
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218093.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Fairy Godmother Stories 3: Little Red Riding Hood / Сказки Феи-Крёс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22CCECCDB3572D45C6870BFA2764623BE24A4C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343358   (217973) от 06.12.2019
+
+Darkness and Flame 4: Enemy in Reflection / Тьма пламени 4: Враг в отражении (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сила Пламени восстановлена, Алиса и ее друзья сбежали из Темной Армии. В поисках места для отдыха они останавливаются на странной поляне и позволяют себе расслабиться ... Однако, в этом новом враждебном мире нельзя терять бдительность ни на минуту. И расплата за небрежность не займет много времени ... Алиса оказывается втянутой в битву со злом, которое старше самой (   Читать дальше...   )Тип издания: UnofficialРазработчик: Five-BN GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDD2ACDC70DB0CB53E001A360CA25B4EDB815D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Autodesk AutoCAD Architecture 2020 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601518.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Daum PotPlayer 1.6.54871 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601240.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EximiousSoft Banner Maker 5.37 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601237.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Vivaldi 1.0.212.3 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601232.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Allavsoft Video Downloader Converter 3.14.7.6400 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601160.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Bigasoft Video Downloader Pro 3.14.7.6396 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601158.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Macgo Windows Blu-ray Player 2.15.4.2001 RePack (& Portable) by AlekseyPopovv [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601140.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ LibreOffice 4.4.4 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601134.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Ultra Adware Killer 5.9.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601092.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Coolmuster Android Assistant 4.1.11 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601090.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ EssentialPIM Pro 6.52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601082.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ LibreOffice 5.0.0 RC2 + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601075.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Calibre 2.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601073.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Novicorp WinToFlash Professional 0.9.0038 RC2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601071.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Windows Repair (All In One) 3.2.3 Pro + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601066.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ The Bat! Professional Edition 6.8.8 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600991.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Comodo IceDragon 38.0.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600990.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Icaros 3.0.0 Beta 2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600982.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ MediaHuman YouTube Downloader 3.9.9.71 (3004) RePack (& Portable) by 9649 [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600949.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ FileZilla Server 1.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600944.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ CyberLink AudioDirector Ultra 12.4.2730.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600907.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ XYplorer 23.00.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600900.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ XYplorer 23.00.0200 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600888.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ USB Secure 2.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600878.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ The Bat! Professional 6.8.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600874.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600871.jpg" />
 </div>
 
 

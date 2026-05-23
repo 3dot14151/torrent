@@ -6,7 +6,7 @@ SteerMouse 5.1 R2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691542.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Default Folder X 5.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691540.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BlueHarvest 6.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691416.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ IINA 0.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691412.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Dreamfall Chapters SE Reborn v.2.0.22 (2014) [Ru/En] [OS X Wineskin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_691386.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Coda 2.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691171.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Blocs 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691165.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ PDF Expert 2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691131.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ MacX Video Converter Pro 6.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691077.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Dying Light: The Following Enhanced Edition (2015) [Multi] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690957.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ UctoX 2 v2.9.2 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690858.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Oka Unarchiver PRO 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690851.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Music Tag Editor Pro 6.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690849.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ TransData: Internet Data Speed 2.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690847.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Omni Recover 3 v3.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690846.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Cover Desk 1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690845.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Priime Styles 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690765.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ NCH DreamPlan Plus 7.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690741.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ SoundSource 5.3.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690739.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ MaxCommander 2.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690731.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Color UI 2.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690727.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ uDock 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690725.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Permute 3 v3.8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690721.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Comic Life 3 v3.5.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690719.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Blocs 2.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_690658.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Omni Toolbox 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690634.jpg" />
 </div>
 
 

@@ -1,47 +1,3 @@
-###  Публикация: 576859   (363744) от 17.11.2012
-
-VA - Plexus Relax Sector (2011-2012) [MP3|320 кб/с]<Chill Out, Ambient, Psy Chill, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Stereobaza - Chessboard (5:18)
-02. Int.Elect - When Day Becomes Night (6:46)
-03. Tim Katsman - Fo (3:14)
-04. Apheliont - Mirage To Reality (6:42)
-05. CJ Sailplane - Era (4:16)
-06. Germind - I Hate Love (5:02)
-07. Seaman - Feel The Sunrise (6:24)
-08. Нулев0й - Половины (4:06)
-09. Sober Spring - Abso Botly (6:05)
-10. VTibn - Stratospheric Uverture (6:05)01. Sober Spring - Lottery Ring (3:44)
-02. Igor Leontyev - Lala (3:56)
-03. Rassolodin - Overnight Journey (5:02)
-04. Ryb - Kseno (7:02)
-05. Soulalive - Butterflies (3:53)
-06. By RAgIN - Our Beautiful World (3:01)
-07. DJ Ger-Man - Spring (5:41)
-08. Plu-Ton - Ocean Of Sadness (5:50)
-09. Azonius - Пыль (4:05)
-10. Tenth Cloud - Cirrus Cloud (3:39)(   Читать дальше...   )Жанр: Chill Out, Ambient, Psy Chill, Downtempo, LoungeПродолжительность: 00:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0E1394861789633BC7207DD9CF53F95AA1D0F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951194   (363663) от 29.10.2015
 
 VA - Extra Trance: Bonus [01] (2015) [MP3|320 кб/с]<Trance>
@@ -50,7 +6,7 @@ VA - Extra Trance: Bonus [01] (2015) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363663.jpg" />
 </div>
 
 
@@ -79,7 +35,7 @@ VA - The World's Greatest 80s Anthems, 2CD (2018) [MP3|320 Kbps] <Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363622.jpg" />
 </div>
 
 
@@ -111,7 +67,7 @@ VA - Fow Above: Electro House Edm Mix (2019) [MP3|320 Kbps] <Electro House, Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363595.jpg" />
 </div>
 
 
@@ -140,7 +96,7 @@ VA - Technobird: Selection Of Electronic Music (2019) [MP3|320 Kbps] <Techno, El
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363589.jpg" />
 </div>
 
 
@@ -169,7 +125,7 @@ VA - MAXI. Лучшие хиты для убойной вечеринки (2012)
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363554.jpg" />
 </div>
 
 
@@ -204,7 +160,7 @@ VA - High Atmosphere: Spirit Of Techno Music (2019) [MP3|320 Kbps] <Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363546.jpg" />
 </div>
 
 
@@ -233,7 +189,7 @@ VA - Самые популярные осенние песни (2012) [MP3|320 �
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363532.jpg" />
 </div>
 
 
@@ -268,7 +224,7 @@ VA - DubStep - Pro V.4 (2012) [MP3|320 кб/с]<DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363531.jpg" />
 </div>
 
 
@@ -303,7 +259,7 @@ VA - Autumn Dance (2015) [MP3|320 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363481.jpg" />
 </div>
 
 
@@ -332,7 +288,7 @@ VA - New Italo Disco 2 (2015) [MP3|320 кб/с]<Italo Disco, Eurodisco, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363473.jpg" />
 </div>
 
 
@@ -361,7 +317,7 @@ VA - MTV Ballads (2005) [MP3|192 - 224 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363472.jpg" />
 </div>
 
 
@@ -390,7 +346,7 @@ VA - Wild Love: Romantic Collection (2018) [MP3|320 Kbps] <Pop, Rock, Blues>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363448.jpg" />
 </div>
 
 
@@ -419,7 +375,7 @@ VA - New Disco Funky Mode (2019) [MP3|320 Kbps] <Disco, Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363396.jpg" />
 </div>
 
 
@@ -448,7 +404,7 @@ VA - Rap Constellation: The New Concert (2019) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363392.jpg" />
 </div>
 
 
@@ -477,7 +433,7 @@ VA - Alive And Free: Grand Hip-Hop Collection (2019) [MP3|320 Kbps] <Hip-Hop, Ra
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363390.jpg" />
 </div>
 
 
@@ -506,7 +462,7 @@ VA - Европа Плюс Включи Весь Мир! Часть 12 (2012) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363213.jpg" />
 </div>
 
 
@@ -541,7 +497,7 @@ VA - Beatport Vocal Tranceю Electro Sound Pack #188 (2020) [MP3|320 Kbps] <Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363191.jpg" />
 </div>
 
 
@@ -570,7 +526,7 @@ VA - Hot Jazz in Denmark Vol.3 (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363180.jpg" />
 </div>
 
 
@@ -599,7 +555,7 @@ VA - Defiled: Hardcore Collection (2020) [MP3|320 Kbps] <Hardcore, Metal, Hard R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363163.jpg" />
 </div>
 
 
@@ -628,7 +584,7 @@ VA - Music For Everyone - Chillstep & Dubstep Vol.5 (2017) [MP3|320 Kbps] <Chill
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363162.jpg" />
 </div>
 
 
@@ -657,7 +613,7 @@ Milli Vanilli - Good Songs (2015) [MP3|256-320 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363096.jpg" />
 </div>
 
 
@@ -686,7 +642,7 @@ VA - The Official UK Top 40 Singles Chart 16.10.2020 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363021.jpg" />
 </div>
 
 
@@ -715,7 +671,7 @@ VA - Exotic Chillout Sounds (Vol.02) (2020) [MP3|320 Kbps] <Chillout, Downtempo,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363020.jpg" />
 </div>
 
 
@@ -744,7 +700,7 @@ VA - Euronics Big Room Electro House (2020) [MP3|320 Kbps] <Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363016.jpg" />
 </div>
 
 
@@ -773,7 +729,7 @@ VA - Don't Stop The Melody (2020) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363014.jpg" />
 </div>
 
 
@@ -787,6 +743,35 @@ VA - Don't Stop The Melody (2020) [MP3|320 Kbps] <Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6E23CF9F2F1AEB4DE4F764A4AE1C619D689436D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176718   (362996) от 25.10.2017
+
+VA - По волне моей памяти: Том 11 (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ефрем Амирамов - Молодая  4:32
+02.  Лев Лещенко - Белая береза  3:25
+03.  Алла Пугачёва - Ленинград (Памяти Лидии Клемент)  3:10
+04.  Вахтанг Кикабидзе - Цыганочка  3:19(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF21A5E0A8C5A8A208F3DDCEE349DCCFA0D93825
 ```
 
 https://mybot314.ru/tekegram_catalog/

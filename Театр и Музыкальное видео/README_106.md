@@ -1,114 +1,3 @@
-###  Публикация: 961336   (298805) от 02.12.2015
-
-АукцЫон - В Багдаде всё спокойно (Live) (1987/2015) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-V Фестиваль Ленинградского рок-клуба. Ленинградский Дворец Молодёжи, 06 июня 1987 года. Впервые издающаяся съёмка этого концерта помещена на DVD издания. Судьба видео, включённого в издание, - запутанная и почти детективная история. В ходе работы издательство «ГЕОМЕТРИЯ» разместило в сети Интернет объявление о поиске записи. Она была найдена в США и переправлена (   Читать дальше...   )01. Пролог
-02. Путь в Джинистан
-03. Банзай
-04. Водяная дисциплина(   Читать дальше...   )Производство: ГеометрияЖанр: КонцертПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387258F4FCDAE1F93EB351B96874EDCE0E152EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334032   (298734) от 27.10.2019
-
-Квартирник НТВ у Маргулиса. Группа Сурганова и Оркестр (26.10.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На свой сольный квартирник в гости к Евгению Маргулису пришла певица, автор песен и скрипачка Светлана Сурганова. Она рассказала о неизданном сольном альбоме, работе в театре и о том, что она делает во время поездок за рулем. Вместе со своей группой певица исполнила всеми любимые хиты «Мураками», «Весна», «Белая песня» и новые композиции.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B5308711432228008326B351EE2FC9ADAF0041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317716   (298646) от 27.10.2019
-
-Дом окнами в поле (1979) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-По одноименной пьесе Александра Вампилова.
-Нерешительность и застенчивость сельского учителя Третьякова мешает ему объясниться в любви заведующей молочной фермой колхоза Астафьевой. Не понимая, что его любовь взаимна, Третьяков намерен уехать из села. Однако героиня сама приходит ему на помощь…Производство: СССР / Главная редакция литературно-драматический программ ЦТЖанр: Телеспектакль, короткометражный, мелодрама, экранизацияРежиссер: Геннадий ПавловАктеры: Станислав Любшин, Ирина КупченкоСубтитры: ОтсутствуютПродолжительность: 00:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9799C8E995ACE457709BFBD5A84690E16153EF42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184597   (298529) от 18.11.2017
-
-Black Sabbath - The End (Live In Birmingham) (2017) BDRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Запись последнего концерта в истории BLACK SABBATH, состоявшегося 4 февраля в зале "Genting Arena" в Бирмингеме (Англия), издана лейблом Eagle Vision 17 ноября под названием "The End". На концерте в крайне эмоциональной атмосфере звучали такие хиты как "Iron Man", "Paranoid", "War Pigs" и мн. др. Также для выступления (   Читать дальше...   )01. Black Sabbath
-02. Fairies Wear Boots
-03. Under The Sun / Every Day Comes And Goes
-04. After Forever(   Читать дальше...   )Производство: Eagle VisionЖанр: Hard RockПродолжительность: 01:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D836FF04C43789EAF0EDBDF571E499B3E344D851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055609   (298479) от 27.10.2019
 
 Рональд Харвуд - Костюмер (1987) DVDRip (2 части) (Театр имени М.Н. Ермоловой)
@@ -117,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298479.jpg" />
 </div>
 
 
@@ -144,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297929.jpg" />
 </div>
 
 
@@ -170,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297662.jpg" />
 </div>
 
 
@@ -197,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297008.jpg" />
 </div>
 
 
@@ -223,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296941.jpg" />
 </div>
 
 
@@ -252,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296750.jpg" />
 </div>
 
 
@@ -281,7 +170,7 @@ AC/DC - Live at River Plate (2009/2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296684.jpg" />
 </div>
 
 
@@ -310,7 +199,7 @@ VA - Official UK Top 40 Video Chart (27-11-2015) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296560.jpg" />
 </div>
 
 
@@ -339,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295563.jpg" />
 </div>
 
 
@@ -365,7 +254,7 @@ Queen - Live At The Rainbow '74 (2014) SD BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295330.jpg" />
 </div>
 
 
@@ -394,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295195.jpg" />
 </div>
 
 
@@ -421,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295119.jpg" />
 </div>
 
 
@@ -450,7 +339,7 @@ Dream Theater - Live At Luna Park (2013) Blu-Ray [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294987.jpg" />
 </div>
 
 
@@ -479,7 +368,7 @@ Flo Rida - Collection Video Clip ( 2010 - 2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294715.jpg" />
 </div>
 
 
@@ -508,7 +397,7 @@ Celine Dion - Live at Tokyo Dome (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294695.jpg" />
 </div>
 
 
@@ -537,7 +426,7 @@ VA - Зимний марафон № 209: Дискотека с доставко
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294585.jpg" />
 </div>
 
 
@@ -566,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294480.jpg" />
 </div>
 
 
@@ -592,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293895.jpg" />
 </div>
 
 
@@ -618,7 +507,7 @@ Sting - 25 Years. Rough, Raw & Unreleased: Live at Irving Plaza  (2011) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293737.jpg" />
 </div>
 
 
@@ -647,7 +536,7 @@ P J Harvey - On Tour Please Leave Quietly (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293506.jpg" />
 </div>
 
 
@@ -676,7 +565,7 @@ Tom Waits "Burma Shave" (2006) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293155.jpg" />
 </div>
 
 
@@ -705,7 +594,7 @@ Rihanna feat. Jay-Z - Umbrella (2007) 540p HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293122.jpg" />
 </div>
 
 
@@ -716,6 +605,125 @@ Rihanna feat. Jay-Z - Umbrella (2007) 540p HDTV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:450F02330C31D98DD6D12CFD8287EF4505F2014C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185321   (292872) от 21.11.2017
+
+Сборник клипов - Best of Hits 90s от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292872.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые и фишкастые клипы лихих 90х. В нём я постарался отразить все обояние того десятилетия, пускай неопределенного и иногда даже дикого, но все же думаю многим приятно будет вспомнить то время. Время поднятия с колен нашей великой и большой страны, имею в виду весь бывший союз. Это 2я часть сборника. Смотрите,слушайте и наслаждайтесь. Все (   Читать дальше...   )000 Intro
+059 La Bouche - Sweet Dreams
+060 Mr.Credo - Мама азия
+061 Modern Talking - China In Her Eyes (feat. Eric Singleton(   Читать дальше...   )Жанр: PopПродолжительность: 03:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1894C37BC9BD1DD40D623C98928BF90DC27B67C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962533   (292758) от 05.12.2015
+
+Pitbull - (Collection Video Clip) (2011 - 2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагаем лучшую подборку видео клипов Armando Christian Perez III или сценическое имя Pitbull.01. Pitbull and Empire Cast ft. Jussie Smollettl - No Doubt About I (00:04:14)
+02. Pitbull - Back In Time (featured in 'Men In Black III') (00:03:32)
+03. Pitbull - Celebrate (from the Original Motion Picture Penguins of Madagascar) (00:03:11)
+04. Pitbull ft. TJR - Don't Stop The Party (00:03:33)(   Читать дальше...   )Жанр: Latino, Reggaeton, Hip House, Rap, Hip-Hop, Latin UrbanПродолжительность: 01:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338CD52DD68AD3BE60D14C7772E6F58B5C581040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 70425   (292751) от 21.11.2017
+
+Iron Maiden - Death On The Road (2006) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный концертный ДВД. "Death On The Road" - концерт записанный во время концертного тура в поддержку альбома "Dance Of Death" в ноябре 2003 года на большой крытой арене Westenfalenhalle в германском Дортмунде.1. Wildest Dreams
+2. Wrathchild
+3. Can I Play With Madness
+4. Trooper(   Читать дальше...   )Жанр: Heavy MetalАктеры: Steve Harris - bass
+Bruce Dickinson - vocal
+Dave Murray - guitar
+Adrian Smith - guitar(   Читать дальше...   )Перевод: ОригинальныйПродолжительность: 01:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B728629BD6858F64010D45A9FE73C428C888138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962598   (292639) от 05.12.2015
+
+Ageless rock (2015) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не стареющий рок!01. Cream - White Room [06:12]
+02. Queen - We Will Rock You [02:10]
+03. Mungo Jerry - Baby Jump [04:05]
+04. Alice Cooper - I Never Cry [02:26](   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Glam RockПродолжительность: 02:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943029AE4E46748178C799B539DE5116FB4A4637
 ```
 
 https://mybot314.ru/tekegram_catalog/

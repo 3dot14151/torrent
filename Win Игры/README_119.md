@@ -1,29 +1,3 @@
-###  Публикация: 1384486   (802413) от 20.05.2020
-
-Haunted Manor 6: Remembrance / Призрачная усадьба 6: Воспоминания (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Когда Джоан была ещё маленькой девочкой, её семья решила переехать в новый дом. Но через некоторое время родители девочки снова начали спешно упаковывать вещи, а её мать перед самым отъездом подожгла дом вместе с собой. Спустя много лет Джоан решает вернуться в место, где прошли её детские годы, чтобы узнать причину странного поступка женщины и найти коды к её дневнику. (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236128887E7495CB1AAC1565B3116910691BCBFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505799   (802387) от 28.10.2021
 
 Electro Ride: The Neon Racing (2020) [Ru/Multi] (1.0upd24/dlc) License PLAZA [Halloween event]
@@ -32,7 +6,7 @@ Electro Ride: The Neon Racing (2020) [Ru/Multi] (1.0upd24/dlc) License PLAZA [Ha
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802387.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ UNO (2016) [Ru/Multi] (1.0/upd1/dlc) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802381.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Wolf Among Us (2013-2014) [Multi] (1.0) License GOG [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802378.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Life Is Strange Dilogy (2015-2017) [Ru/Multi] (1.0.0.397609/1.2.0.7.1712051016) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802370.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dagon: by H. P. Lovecraft (2021) [Ru/Multi] (2021.10.23:028) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802304.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Agony Unrated (2018) [Ru/Multi] (1.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802223.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Super Robot Wars 30 (2021) [Multi] (7571902) License Fairlight
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802216.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Not A Hero (2015) [En/Multi] (1.0) License GOG [GLOBAL MEGALORD EDITION]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802030.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Gravi (2013) [En] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802024.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Fifth Expedition (2016) [En/Pl] (0.7.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801946.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801944.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801915.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Darksiders: Wrath of War (2010) [Ru] (1.1/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801904.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Forsaken World (2011) [Ru] (0.781.0) License
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801789.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Reigns (2016) [Ru/Multi] (1.25) License GOG [Collector's Edition]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801714.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Alice: Madness Returns (2000-2011) [Ru/Multi] (1.0.0.0/dlc) SteamRip Let'sPlay [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801631.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Moonglow Bay (2021) [Multi] (1.0rls) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801336.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Neversong (2020) [Ru/Multi] (1.0) License GOG (обновляемая)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801320.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ NieR Replicant ver.1.22474487139... (2021) [Ru/Multi] (1.0.3.0/dlc) Repack Decep
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801303.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Algotica - Iteration 1 (2017) [Ru/En] (1.0.2) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801071.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Gomo (2016) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801002.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Saints Row 2 (2009) [Ru/Multi] (1.2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800999.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ X-Plane 11 (2017) [Ru/Multi] (1.0.110025) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800940.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Ms. Holmes 2: Five Orange Pips (2020) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800903.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Live Or Die (2021) [En] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800821.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Live Or Die (2021) [En] (1.0) License DARKSiDERS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FF7E1AA68A10025903756D3786DA5211FB26F1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199464   (800818) от 16.01.2018
+
+DYING: Reborn (2018) [Multi] (1.0) Repack MAXSEM
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800818.jpg" />
+</div>
+
+
+###  Подробнее
+
+DYING: Reborn - это игра-головоломка в жанре «Эскейп-рум» от первого лица, в которой игроки должны решать всевозможные загадки в серии темных и жутких комнат. В первой из шести глав главный герой Мэтью просыпается в незнакомом отеле, лишь смутно припоминая о том, что привело его туда. В это время с ним связывается таинственный персонаж, утверждая, что он подготовил (   Читать дальше...   )Тип издания: RePackРазработчик: NEKCOM EntertainmentЖанр: Adventure, Horror, Puzzle, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Японский, КитайскийЯзык интерфейса: Английский, Японский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939A9D8CA32988CE6E340366F7C0CA7A962D7949
 ```
 
 https://mybot314.ru/tekegram_catalog/

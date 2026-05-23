@@ -1,29 +1,3 @@
-###  Публикация: 1033715   (635694) от 12.07.2016
-
-Haven Moon (2016) [Ru/Multi] (1.0) License POSTMORTEM
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В игре Haven Moon, вы перенесетесь в таинственный мир, где вы будете исследовать необитаемые острова, чтобы раскрыть их секреты и найти клад. В этом Myst-Like, вдохновленном миром Жюля Верна, вы можете использовать свое 6-ое чувство и интеллект, чтобы найти путь через тайные ходы и странные машины.Тип издания: LicenseРазработчик: Francois RousselЖанр: AdventureЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926A187EE8C2F8C0A2D6760EC13AC72650E88CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033857   (635551) от 12.07.2016
 
 Haven Moon (2016) [Ru/Multi] (1.0) SteamRIP ALiAS
@@ -32,7 +6,7 @@ Haven Moon (2016) [Ru/Multi] (1.0) SteamRIP ALiAS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635551.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе [Ru/En] (RePack)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634513.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ J.U.L.I.A. - Among The Stars (2014) [En/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632839.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Pineview Drive - Homeless (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631389.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Dance of Death: Du Lac & Fey (2019) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631379.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Afterparty (2020) [Ru/Multi] (1.4.26f2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630948.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Pineview Drive (2014) [Ru/Multi] (2.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629627.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Tunnels of Despair (2018) [Ru/En] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629563.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Beholder 2 (2018) [Ru/En/Ch] (Upd20190129) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629343.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0upd2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629309.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Life is Strange: Before the Storm (2017) [Ru/Multi] (1.4.0.5.1805151406/dlc) Rep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629303.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Nancy Drew: Alibi In Ashes / Нэнси Дрю: Сгоревшее алиби [R
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626250.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ Oxenfree (2016) [Ru/En] (2.1.0f26) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626085.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ Ridge (2016) [Ru/Multi] (1.0 u1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625908.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ Ridge (2016) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625905.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ Night in the Woods (2017) [En] (5.6.2.23522822) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625862.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ Pineview Drive - Homeless (2019) [Ru/Multi] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625571.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) License GOG [Epis
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625432.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ Sylvio (2015) [En] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623085.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ Detective Gallo (2018) [Ru/Multi] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622611.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ Finding Paradise (2017) [Ru/Multi] (1.2) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622277.jpg" />
 </div>
 
 
@@ -586,7 +560,7 @@ Dance of Death: Du Lac & Fey (2019) [En] (1.0) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621850.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ Phoenix Wright: Ace Attorney Trilogy (2019) [En/Jp] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621849.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ The Assembly (2016) [En/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620579.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ The Assembly (2016) [Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620416.jpg" />
 </div>
 
 
@@ -675,6 +649,32 @@ The Assembly (2016) [Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6B2F06C24F4B020FCA0C2BDD41935D58F4FE55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073443   (619296) от 26.06.2017
+
+Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.2a) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Началась война. Во время авианалета 16-летний Ноа со своей младшей сестрой Рени укрылись в бункере. Здесь они нашли не только спасение от бомб, но и мир-перекресток между жизнью и смертью: Безмолвный мир. Сестра Ноа заблудилась, и мальчику пришлось отправиться на ее поиски в этой небезопасной, как оказалось, идиллии.Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: Adventure, 3DЯзык озвучки: Английский, немецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96F2C388537D9840EDF0AA17E8CCD8FD97A187FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

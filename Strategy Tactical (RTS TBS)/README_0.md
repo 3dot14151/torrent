@@ -6,7 +6,7 @@ Outpost: Infinity Siege (2024) [Ru/Multi] (2.0/dlc) Repack Let'sРlay [Vanguard 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1047036.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.11.2/dlc) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046826.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.5.113/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041815.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Brigador (2017) [Ru/Multi] (1.65b/dlc) License GOG [Up-Armored Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040961.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mahokenshi (2023) [Ru/Multi] (1.1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038224.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Battlefleet Gothic: Armada 2 / Battlefleet Gothic: Armada II (2019) [Ru/Multi] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037875.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Punk Wars (2021) [Ru/Multi] (1.2.11/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037140.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Wasteland 3 (2020) [Ru/Multi] (j2956/dlc) Repack xatab [Digital Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034044.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Iron Harvest (2020) [Ru/Multi] (1.1.2.2001/dlc) Repack xatab [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033590.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (Build 44725) License CO
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033346.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.4.10.0/dlc) License GOG [Omnis
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032634.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (45340/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031235.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Stronghold: Warlords (2020) [Ru/En] (1.0.19135) Repack West4it
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027434.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Iron Harvest (2020) [Ru/En] (1.1.4.2102/dlc) Repack Other s [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027134.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Stronghold: Warlords (2021) [Ru/Multi] (1.0.19584.2) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026988.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Star Renegades (2020) [Ru/Multi] (1.3.1.0/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026828.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Empires in Ruins / На развалинах империй (2021) [Ru/Multi] (1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024100.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Adeptus Titanicus: Dominus (2021) [Multi] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023188.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ They Are Billions (2019) [Ru/Multi] (1.1.4.10) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022666.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.13.010) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019363.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Defender's Quest: Valley of the Forgotten (2012) [Ru/Multi] (2.2.6) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017785.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Red Solstice 2: Survivors (2021) [Ru/Multi] (6877287) License Fairlight
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010239.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ UFO2: Extraterrestrials - Battle for Mercury (2021) [Ru/Multi] (1.0) License FAi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009733.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Siege Survival: Gloria Victis (2021) [Ru/Multi] (6998499) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006305.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.0.0.15624) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005639.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Partisans 1941 (2020) [Ru/Multi] (1.1.04/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005236.jpg" />
 </div>
 
 

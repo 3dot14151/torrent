@@ -6,7 +6,7 @@ Digital Juice / Цифровой Сок (2002, 6 эп.) DVDRip 400p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027291.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hajime no Ippo - Mashiba vs Kimura / Первый шаг - Масиба прот
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027284.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Ayu Mayu Gekijou | Театр Аю и Маю [2006, OVA, 4 + 3 SP] BDRip 1080p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027242.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Akane Maniax | Фанаты Аканэ [2004, OVA, 3 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027231.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Erementar Gerad | Elemental Gelade | Воздушные пираты [2005, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027210.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Kuutei Dragons | Drifting Dragons | Небесные драконы [2020, Web, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027205.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Sky Girls / Небесные девочки [2007, TV, 26 + 9 sp] DVDrip 480p ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027145.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Maris the Chojo | The Supergal | Марис Сильнейшая [1986, OVA] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027063.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Big Wars: Kami Utsu Akaki Kouya ni | Большие Войны [1993, OVA] DVDRi
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027053.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Dengeki Oshioki Musume Gootaman / Butt Attack Punisher Girl Gautaman / Гаут�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027004.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Ame to Shoujo to Watashi no Tegami | Rain, the Little Girl, and My Letter | До
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026753.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Saishuuheiki Kanojo: Another Love Song | SaiKano: Another Love Song | Моя д�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026752.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Key the Metal Idol / Кии - металлический идол [1994, OVA, 15
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026685.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Digital Devil Monogatari Megami Tensei / Digital Devil / Повесть о ци�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026684.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Kaidoumaru | Kai Doh Maru | Кайдомару [2001, OVA] DVDRip 368p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026606.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Green Legend Ran | Зеленая легенда Рана [1992, OVA, 3 из 3] 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026593.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Otogizoushi | Otogi Zoshi | Отогидзоси [2004, TV, 26 из 26] DVDRip 4
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026585.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Trava: Fist Planet | Трава: Межпланетный кулак [2002, OVA,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026584.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Kakurenbo | Hide and Seek | Kakurenbo: игра в прятки [2004, Movie] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026567.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Twilight Q / Twilight Q / Сумерки Къю [1987, OVA, 2 эп.] DVDRip 480p
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026515.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Adachi to Shimamura | Adachi and Shimamura | Адати и Симамура [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026422.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Bus Gamer | Бизгеймер (Бизнес-игрок) [2008, OVA, 3 из 3] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026406.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Ningyo no Kizu | Mermaid's Scar | Шрам русалки [1993, OVA] DVDRip 480
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026390.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Ningyo no Mori | Mermaid Forest | Лес русалок OVA [1991, OVA] DVDRip 4
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026389.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Master Mosquiton 99 | Master of Mosquiton '99 | Хозяйка Москитон�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026386.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Asu no Yoichi! | Samurai Harem | Ёити завтрашнего дня [2009, T
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026384.jpg" />
 </div>
 
 

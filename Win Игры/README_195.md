@@ -1,29 +1,3 @@
-###  Публикация: 1037290   (615072) от 23.07.2016
-
-10 Second Ninja X (2014) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ниндзя - это круто, и это неоспоримый факт. Роботы-нацисты - это не круто, это нечто полностью противоположное. Их предводитель, Робот Гитлер, охотится за вами, первым ниндзя в мире. У вас есть 10 секунд на то, чтобы уничтожить всех роботов-нацистов в пределах видимости. Вызов брошен. Станьте величайшим ниндзя и нанесите сокрушительный удар по империи Робота Гитлера (   Читать дальше...   )Тип издания: RepackРазработчик: Four Circle InteractiveЖанр: Arcade, PlatformerЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37EEF34CE77D03AC9BF9DDACD6F4BE0958190EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037313   (614880) от 23.07.2016
 
 DreamBreak (2016) [Ru/En] (1.0) Repack Other s
@@ -32,7 +6,7 @@ DreamBreak (2016) [Ru/En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614880.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Curious Cases (2019) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614824.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Curious Cases (2019) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614821.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Book of Demons (2018) [Ru/Multi] (1.01.18203) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614815.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ WAR PARTY (2019) [Ru/Multi] (1.0.4) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614811.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Holy Potatoes! A Spy Story?! (2018) [Ru/En] (1.0.22) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614722.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.4.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614715.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Kerbal Space Program (2015) [Ru/Multi] (1.7.0.2483/dlc) License PLAZA
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614714.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Total War: ROME II / Total War: Rome 2 (2013) [Ru/Multi] (2.4.0.19728/dlc) Steam
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614702.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Grim Tales 3: The Wishes Collectors Edition / Страшные сказки 3: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614601.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Armageddon Riders (RePack) [Ru] 2009 | R.G. Games Warrior
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614470.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Darkness and Flame: Born of Fire / Тьма и пламя: Рожденный о
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614459.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ No70 Eye of Basir (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614136.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ No70: Eye of Basir (2017) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614132.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Wanderlust: What Lies Beneath / Жажда странствий: Что утаи
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613762.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Hyperdimension Neptunia Re;Birth1 (2015) [En/Ru] (4.3.0b10.18.10) Repack R.G. Ga
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613726.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Golem (2018) [Ru/Multi] (1.0.1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613556.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Prey - Mooncrash (2018) [Ru] (1.0.1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613540.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Cast of the Seven Godsends - Redux (2015) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613245.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ The Chronicles of Shakespeare: A Midsummer Nights Dream (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613215.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Titanics: Keys to the Past (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613207.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Farm Mystery: The Horror of Orchardville (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613206.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Semblance (2018) [Ru/Multi] (1.0.3b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613192.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Obulis (Eng) [P] (2008)
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_613087.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ Shelter 2 (2015) [Ru/Multi] (1.0/dlc) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613014.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ Shelter 2 (2015) [Ru/Multi] (1.0/dlc) License GOG [Special Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99695C17EFCC1B883F53EE0BA41ACCD13D1E0425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277845   (613013) от 16.04.2019
+
+The Hong Kong Massacre (2019) [En] (1.04) License CODEX
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проложите путь по улицам Гонконга в динамичном боевике с видом сверху. The Hong Kong Massacre, вдохновленная классическими боевиками, позволит вам оказаться в центре лихой истории о мести, наполненной жестокими кинематографическими перестрелками и яркими образами преступного мира.Тип издания: LicenseРазработчик: VRESKIЖанр: Action (Top-Down), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A24689D8484416B4183DB1C3B05D8CEE42E944
 ```
 
 https://mybot314.ru/tekegram_catalog/

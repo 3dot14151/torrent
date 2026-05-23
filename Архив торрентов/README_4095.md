@@ -6,7 +6,7 @@ Wise Disk Cleaner 11.0.5.819 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173932.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DxO PureRAW 3 for Mac v.3.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173931.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Text Edit Plus 13.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173927.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Storyist 4 v4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173923.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Don't Sleep 9.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_173915.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Swift Publisher 5 v5.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173914.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ R-Wipe & Clean 20.0.2426 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173910.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ AnyTrans for iOS 8.8.0.20201208 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173909.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Get Backup Pro 3 v3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173906.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Omni Recover 2.9.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173904.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Audio Playr 2.3  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173902.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Apowersoft Screen Capture Pro 1.5.2.0 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173892.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ NAMO 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173884.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173869.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Antivirus Removal Tool 2021.12 (v.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173861.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Luminar Neo 1.14.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173860.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Air Explorer Pro 2.1.0 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173858.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ IObit Smart Defrag Pro 5.8.0.1276 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173850.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VA - Digital Society Recordings 2015 - The Yearmix (Mixed by Cold Rush) (2015) [
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173842.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Wondershare PDFelement 10.1.1.2495 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173841.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Ableton Live Suite 11 v.11.3.12 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173833.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Noize MC - Царь Горы (2016) [FLAC|Lossless|tracks] <Rap, Rap-Rock, Alter
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173829.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Skype 8.106.0.210 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173825.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ K-Lite Codec Pack Update 17.3.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_173815.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Auslogics BoostSpeed Pro 11.2.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173807.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Text Editor Pro 27.7.1 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_173795.jpg" />
 </div>
 
 

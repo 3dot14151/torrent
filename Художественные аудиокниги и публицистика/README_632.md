@@ -1,83 +1,3 @@
-###  Публикация: 1260083   (314555) от 06.11.2018
-
-Елена Арманд | Блаженны чистые сердцем (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Документальный роман "Блаженны чистые сердцем" позволяет читателю совпасть с абсолютной реальностью, пережив изнутри жизнь России с 1905 по 1925 год, а также узнать дальнейшие судьбы большинства героев. Взрослые и дети ведут дневники, пишут стихи, письма, а позже и воспоминания. Это и есть текст романа. Главное его событие - создание в голодном 1920 году (   Читать дальше...   )Жанр: Документальный романПродолжительность: 35:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7776143579B4387446BE2E51FBAB8DB7B17AC930
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959231   (314554) от 25.11.2015
-
-Алесь Адамович | Сборник произведений [5 книг] (2013-2014) [OGG]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Алекса́ндр (Але́сь) Миха́йлович Адамо́вич (белор. Аляксандр (Алесь) Міхайлавіч Адамовіч; 3 сентября 1927, деревня Конюхи, Копыльский район, Минская область — 26 января 1994, Москва) — белорусский писатель, сценарист, литературовед, доктор филологических наук (1962), профессор (1971), член-корреспондент АН БССР (1980).
-Родился 3 сентября 1927 года (   Читать дальше...   )Жанр: Документалистика, художественная литератураПродолжительность: 74:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A810439463A6F5FA1AFB082A66448062922F750D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259838   (314548) от 06.11.2018
-
-Салман Рушди | Ярость (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Малик Соланка, историк идей и всемирно известный кукольник, однажды бросает в Лондоне семью и летит через океан, чтобы переплавить в горниле Нью-Йорка безумную, темную ярость, живущую в нем, заглушить голоса злобных фурий. И что же? Ярость повсюду вокруг него.
-Жизнью движет ярость… Ярость — сексуальная, лежащая в основе эдипова комплекса, скрытая в политике, в магии, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 14:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA41A6EFA912DC682DA924C0F4932F768633AB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259820   (314539) от 06.11.2018
 
 Виктория Балашова | Мятежный лорд (2018) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314539.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314524.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314480.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314376.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314345.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314336.jpg" />
 </div>
 
 
@@ -243,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314328.jpg" />
 </div>
 
 
@@ -269,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314312.jpg" />
 </div>
 
 
@@ -295,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314309.jpg" />
 </div>
 
 
@@ -321,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314239.jpg" />
 </div>
 
 
@@ -347,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314234.jpg" />
 </div>
 
 
@@ -373,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314228.jpg" />
 </div>
 
 
@@ -399,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314220.jpg" />
 </div>
 
 
@@ -425,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314210.jpg" />
 </div>
 
 
@@ -451,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314187.jpg" />
 </div>
 
 
@@ -477,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314157.jpg" />
 </div>
 
 
@@ -505,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314102.jpg" />
 </div>
 
 
@@ -533,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314071.jpg" />
 </div>
 
 
@@ -559,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314022.jpg" />
 </div>
 
 
@@ -587,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313981.jpg" />
 </div>
 
 
@@ -613,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313888.jpg" />
 </div>
 
 
@@ -641,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313884.jpg" />
 </div>
 
 
@@ -667,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313833.jpg" />
 </div>
 
 
@@ -678,6 +598,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83D32CCA67666D70663795E6FC1B35B921A56A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260171   (313784) от 06.11.2018
+
+Ярослав Гжендович | Носитель судьбы (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ледяной драккар вспарывает холодные волны осеннего моря, оставляя за спиной пылающие поселения Побережья Парусов. Сын императора, потерявший все и ставший рабом, идет навстречу своему предназначению. Близится его встреча с пришельцем, сошедшим с небес, и на горизонте уже встает Ледяной Сад, странная крепость, непохожая ни на что в Мидгарде. Крепость, чем-то знакомая (   Читать дальше...   )Жанр: Боевая фантастика, Зарубежная фантастикаПродолжительность: 15:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2114B752CF34F2EC2E48A457AE6588B9B1CE5B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259943   (313783) от 06.11.2018
+
+Владимир Поселягин | Прорыв (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анатолий Суворов умеет вести за собой людей. И продолжает бить противника в его тылу.
+Отчаянные бои, но на этот раз Анатолий командует не моторизованной мангруппой, где основной силой были танки, а диверсантами в тылу врага. Теперь он использует другую тактику и совсем другую технику, которая на голову выше его любимых танков и самоходок. В прямом смысле этого слова (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастикаПродолжительность: 12:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9664E12FD7D965C40F2B8508435805E4CC02C558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259924   (313782) от 06.11.2018
+
+Владимир Василенко | Смертный 2. Легат (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я никогда не был лидером. Я одиночка. И в виртуальный мир Артара я пришел только для того, чтобы подзаработать. Но случилось так, что границы миров для меня окончательно стерлись. Я сросся с Артаром намертво, и моя судьба отныне неотделима от него. И теперь, когда мир, который мне дорог, оказался на пороге самой масштабной войны – я поведу людей за собой, чтобы бороться (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGПродолжительность: 10:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63174943F17297E5456D88BD219A30BF2E2E2EFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

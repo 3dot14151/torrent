@@ -6,7 +6,7 @@ HTC Home Apis 3.1.627 (04.05.2015) RePack by Andreyonohov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702866.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BELOFF 2019.3 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702860.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Artweaver Free 6.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702828.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Light Image Resizer 5.0.6.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702824.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ ESET Endpoint Security 5.0.2242.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702758.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ StartIsBack++ 2.0.8 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702750.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ ShareX 11.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702738.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ ESET Endpoint Antivirus 5.0.2242.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702707.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ FastStone Capture 8.2 Final RePack (& portable) by KpoJIuK (04.05.2015) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702696.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Vidiot 0.3.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702657.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ DevID Agent 4.41 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702652.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ StartIsBack++ 2.0.8 RePack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702651.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Mp3tag 2.82 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702591.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ StartIsBack++ 2.0.8 / StartIsBack+ 1.7.5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702582.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Total Uninstall 6.19.1 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702478.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ CoolUtils Total PDF Converter 6.1.0.144 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702455.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ ShareX 12.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702441.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ AIMP 4.13 Build 1895 DC 07.05.2017 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702413.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Comodo Internet Security Premium 10.0.1.6223 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702404.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Aiseesoft Data Recovery 1.0.12 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702339.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702333.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702313.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Adobe AIR 22.0.0.153 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702310.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ AnyMP4 Video Converter Ultimate 7.0.32 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702300.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Bandicam 4.1.3.1400 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702193.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ XYplorer 16.90.0300 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702171.jpg" />
 </div>
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 1043262   (574104) от 15.08.2016
-
-Теккен 2 / Tekken: A Man Called X (2014) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма рассказывает об одном молодом парне, который, после несчастного случая, потерял память. Он совершенно ничего не помнит о себе, и в один прекрасный момент решает сделать все возможное для того, чтобы выяснить — кто же он. Найти ответы на множество интересующих его вопросов оказывается очень сложно, но парень не собирается сдаваться и намерен идти до конца. (   Читать дальше...   )Производство: США / Good Times Production Co.Жанр: БоевикРежиссер: Вич КаосаянандаАктеры: Кейн Косуги, Кэри-Хироюки Тагава, Раде Шербеджия, Гэри Дэниелс, Келли Венхам, Пейдж Линдквист, Шарлотта Кирк, Бильяна Мишич, Сахайак Бунсанакит, Рон Смуренбург, Дэмиэн Мевис, Расселл Джеффри БэнксПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 01:28:41Реклама: отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5004D1A0EF3C740E070A6F2078D5BE55DCF94A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043132   (574098) от 15.08.2016
-
-Моя борьба / Mein Kampf (2009) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименной пьесы популярного венгерского драматурга Георга Табори. Чернейшая комедия, рассказывающая о молодых годах Адольфа Гитлера-Шикльгрубера.
-Юный Адольф приезжает в Вену, где заводит дружбу с престарелым евреем Шломо Херцлем. Гитлер и не предполагает, что общается с лютым расовым врагом и следует всем советам и пожеланиям нового знакомца.Производство: Австрия, Германия, Швейцария / arte, Dor Film Produktionsgesellschaft GmbH, hugofilm, Scheizer Fernsehen (SF), Schiwago Film, SRG SSR idée suisse, UFA Cinema, ZDFtheaterkanalЖанр: Драма, КомедияРежиссер: Урс ОдерматтАктеры: Гёц Георге, Том Шиллинг, Анна Унтербергер, Бернд Биркхан, Вольф Бахофнер, Элизабет Орт, Карин Нойхаузер, Симон Шварц, Пауль Матич, Хеннинг Пекер, Вольфганг Хюбш, Эрнст Станковски, Михаэль ОстровскийПеревод: Многоголосый закадровый, профессиональный (СВ-Дубль по заказу ГТРК "Культура")Субтитры: Английские (отключаемые)Продолжительность: 01:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952A828CF60EBFC461744B3E7BD4784C4520808A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 812350   (574056) от 12.08.2014
 
 Призвание / The Calling (2014) WEB-DL [720p] [VO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574056.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_573984.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573980.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_573977.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573975.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573952.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573932.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573927.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573901.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573761.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573442.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573348.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573347.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573252.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573250.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573169.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573152.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573011.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_572954.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572575.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572254.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572229.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572217.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572195.jpg" />
 </div>
 
 
@@ -668,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6F5B61949BC57E77F8810AB7085D402F896869D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234114   (572136) от 04.07.2018
+
+От семьи не убежишь / La ch'tite famille (2018) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодые и успешные парижские дизайнеры Валентин и Констанция готовятся заключить многомиллионный контракт, но в самый неподходящий момент на выставку приезжает вся семейка Валентина, которая проливает свет на его прошлое и расстраивает все планы.Производство: Франция / Les Productions du Ch'timi, PathéЖанр: КомедияРежиссер: Дани БунАктеры: Дани Бун, Лин Рено, Лоранс Арне, Валери Боннетон, Ги Леклюиз, Франсуа Берлеан, Пьер Ришар, Жюлиан Лепоро, Стефан Пезера, Ян ТуальПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C2CA2022D6A6EE259660C9400A099D6D23BA21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234045   (572133) от 04.07.2018
+
+Круги дьявола / Шакалы / Jackals (2017) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья, отгородившаяся от окружающего мира, привлекает известного специалиста по оккультным наукам, чтобы вытащить сына из зловещей секты, одержимой культом насилия. Но в попытке остановить процесс захвата его разума, семья оказывается запертой в загородном доме в глубине леса в окружении безжалостных сектантов, решивших вернуть пропавшего члена своей секты.Производство: США / Tommy Alastra Productions (TAP)Жанр: Ужасы, триллерРежиссер: Кевин ГротертАктеры: Дебора Кара Ангер, Стивен Дорфф, Джонатон Шек, Ник Ру, Алисса Джулия Смит, Челси Рикеттс, Джейсон Скотт Дженкинс, Бен Салливан, Алекс Кинги, Кэсси ЭрнандесПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6FC877990F2D67A3B3FA0D9F63F720E7AA9C22
 ```
 
 https://mybot314.ru/tekegram_catalog/

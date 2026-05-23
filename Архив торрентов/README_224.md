@@ -6,7 +6,7 @@ WinSCP 5.19.2 Build 11614 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005095.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vivaldi 4.1.2369.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005092.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Spotify 1.1.64.561 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005081.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ FinePrint 10.46 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005063.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Norton Power Eraser 6.0.1.2095 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005062.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Adobe Acrobat Pro DC 2021.005.20060 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005020.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Alfred 4 Powerpack 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005015.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Multitouch 1.24.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005013.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ SideNotes 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005012.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Nova 7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005009.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SiteSucker Pro 4.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005007.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sensei 1.4.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005006.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Sensei 1.4.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005004.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Smooze 1.9.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005003.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Sumatra PDF 3.4.13925 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004997.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ ScreenFlow 10 v10.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004977.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Desktop Calendar 2.3.95.5438 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004966.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Nik Collection 4 by DxO 4.1.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004911.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Foxit PDF Editor Pro 11.0.1.49938 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004905.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ OmniOutliner Pro 5 v5.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004888.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Wise Disk Cleaner 10.6.1.796 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004879.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Microsoft Edge 92.0.902.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004878.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ AVG Clear (AVG Remover) 21.6.6446.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004874.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ doPDF 11.1.181 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004873.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Calibre 5.24.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004865.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Avast Clear 21.6.6446.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004859.jpg" />
 </div>
 
 

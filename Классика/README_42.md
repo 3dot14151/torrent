@@ -6,7 +6,7 @@ Boccherini - Symphonies op.35, 41 & 42 (Academy for Early Music Berlin) (2003) [
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296985.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Monteverdi - L'incoronazione di Poppea (Nikolaus Harnoncourt & Concentus musicus
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296981.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Florian Christl - Episodes (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classica
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295444.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Joseph-Guy Ropartz - Symphonies Nos 2 & 5 (Sebastian Lang-Lessing & Orchestre Sy
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295187.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jackie Evancho - Someday at Christmas (2016) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294015.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Vadim Brodsky ( Вадим Бродский ) - Beatles Symphony (1986) Reissue,
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292916.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Vivaldi - Anne-Sophie Mutter, Herbert Von Karajan, Wiener Philharmoniker ‎– 
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291706.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Joshua Bell - For the Love of Brahms (2016) [FLAC|Lossless|WEB-DL|tracks] <Class
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290140.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Julian Bream - Lute Music from the Royal Courts of Europe (volume 2) (1966-76) 1
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290081.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mozart, Herbert von Karajan, Berliner Philharmoniker - Requiem (1961) 1989 Deuts
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290076.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Piano Guys - Limitless (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289044.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288975.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Divna Ljubojeviс / Дивна Любоевич - Divna - In Concert - Théâtre
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288268.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Canti Gregoriani – Adorate Deum…in Sanctis Eius (1999-2001) 2001 TACTUS [FLA
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288134.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Vivaldi, Pergolesi, A.Scarlatti, Handel - Contralto arias (1997-2002) 2004, Naï
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287540.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ New London Chorale - Viva Verdi (2012) [FLAC|Lossless|image + .cue] <Classical C
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286173.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jennifer Thomas - Illumination (2012) [FLAC|Lossless|WEB-DL|tracks] <Classical C
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286170.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Divna Ljubojevic & Melodi / Angelopoulos& Byzantine Choir of Greece - The Glory 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286081.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Robert Schumann - Dichterliebe op.48 (Peter Schreier, Christoph Eschenbach) (199
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285853.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Divna Ljubojeviс / Дивна Любоевич & Melodi - Mysteres Byzantins (2
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282675.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Kriemhild Maria Siegel - Schwanensee (Swan Lake) (2013) [FLAC|Lossless|image + .
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282393.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Handel - L'Allegro, il Penseroso ed il Moderato (1995) 2CD,  [FLAC|Lossless|imag
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282192.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Wolfgang Amadeus Mozart - Symphonies Nos. 21-41:  Josef Alois Krips & Royal Conc
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279092.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ New London Chorale - Celebration: 25 Years The New London Chorale (2004) [FLAC|L
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277338.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Jose Carreras, Placido Domingo, Natalie Cole - A Celebration of Christmas (1996)
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276947.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ New London Chorale - Het Mooiste Van (2006) [FLAC|Lossless|image + .cue] <Classi
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276246.jpg" />
 </div>
 
 

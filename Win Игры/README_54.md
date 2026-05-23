@@ -6,7 +6,7 @@ Anima: Gate of Memories (2016) [Multi] (20171122) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041222.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Duskers (2016) [En] (1.205) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041218.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Garbage Truck Simulator (2023) [Ru/En] (1.0) License Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040970.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GRUNND (2023) [En] (1.016d) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040965.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Brigador (2017) [Ru/Multi] (1.65b/dlc) License GOG [Up-Armored Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040961.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Rise of the Tomb Raide (2016) [Ru/Multi] (1.0.668.1/dlc) License CONSPIR4CY
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040710.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040698.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Warehouse Simulator: Forklift Driver (2023) [En] (1.0) License TENOKE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040676.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Perseus: Titan Slayer (2023) [Ru/Multi] (1.0) License FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040666.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Guild of Dungeoneering (2015) [En] (1.2022.3.11/dlc) License GOG [Deluxe Ice Cre
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040665.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ PERISH (2023) [Ru/Multi] (6312) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040662.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Spirit Legends 4: Finding Balance (2021) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040574.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Rock of Ages 3: Make & Break (2020) [Ru/Multi] (1.04) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040453.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Feist (2015) [Ru/Multi] (1.4.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040429.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Batman: Arkham City (2012) [Ru/En] (1.1) Repack xatab [Game of the Year Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040418.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Twin Mind: Murderous Jealousy (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040302.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Duke Nukem Forever (2011) [Ru/En] (1.0.244/dlc) Repack Seraph1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040013.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Cobra Kai: The Karate Kid Saga Continues (2021) [En] (1.0) License CODEX
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039971.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Secret City 5: Mysterious Collection / Тайный город 5: Таинств
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039758.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Temple Of Snek (2023) [Ru/Multi] (1.0) License TENOKE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039729.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ ICBM (2020) [Ru/Multi] (1.02.03) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039719.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Twin Cobra (2023) [Multi] (17) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039472.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Cabinets of Doctor Arcana / Кабинеты доктора Аркана (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039261.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Truxton (2023) [Multi] (17) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039225.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ SpellForce: Conquest of Eo (2023) [Multi] (01.00.26984) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039223.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Zero Wing (2023) [Multi] (19) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039220.jpg" />
 </div>
 
 

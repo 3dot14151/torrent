@@ -6,7 +6,7 @@ CCleaner 6.33.11465 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26729.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VueScan Pro 9.8.45 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26715.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.43.8 Gold
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26705.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Balabolka 2.15.0.889 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26672.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FastFlix 5.9.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26664.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Rosetta Stone: Learn, Practice 8.31.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26657.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.60.7300 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26647.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Bulk Crap Uninstaller 5.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26636.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Wondershare UniConverter 16.2.5.144 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26631.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ CrystalDiskInfo 9.6.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26629.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ RustDesk 1.3.8 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26603.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 21.02.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26602.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ AntiPlagiarism.NET 4.138.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26596.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Opera One 117.0.5408.39 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26592.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Ultimaker Cura 5.9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26589.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Master PDF Editor 5.9.87 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26588.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ KiCad 9.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26584.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Sandboxie plus 1.15.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26575.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Draw.io 26.0.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26572.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ HiPER Calc Pro v11.0.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26569.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ O&O DiskImage Professional 20.2 Build 351 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26567.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ RedNotebook 2.38.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26566.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ CherryTree 1.3.0.1 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26564.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ EF Commander 25.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26559.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ OneCommander Pro 3.95.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26558.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ EarthView 7.11.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26556.jpg" />
 </div>
 
 

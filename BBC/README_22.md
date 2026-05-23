@@ -1,29 +1,3 @@
-###  Публикация: 1257995   (340511) от 28.10.2018
-
-BBC: Дикая природа Новой Зеландии / Wild New Zealand (New Zealand: Earth's Mythical Islands) (2016) BDRemux [H.264/1080p] [серии 1-3 из 3]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Далеко-далеко в Тихом океане лежит страна, отрезанная от остального мира еще со времен динозавров. После 80 миллионов лет изоляции природа пошла своим путем. В этом затерянном мире жизнь играет по другим правилам: пингвины живут в лесу, попугаи купаются в снегу, а вокруг бродят хищники из доисторических времен. Их жизнями управляют самые мощные силы на планете Земля. (   Читать дальше...   )Производство: Великобритания, Германия, BBC Natural History Unit (NHU), NDR Naturfilm, Studio Hamburg DocLightsЖанр: Документальный, природа, флора, фаунаРежиссер: Марк Флауэрс, Роберт Моргенштерн, Ник ИстонПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 3 х 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E556C1F4DB060EABEEB36196FE0F7DA55EA5C9D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330928   (336378) от 12.10.2019
 
 BBC: Поразительные чудеса мира / Weird Wonders of the World (2016) HDTV [H.264/1080i] (Сезон 2, серии 1-8 из 8)
@@ -32,7 +6,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336378.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336375.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330096.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ BBC. В поисках Бронте / In Search of the Brontes (2003) VHSRip (с
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326193.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325485.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ BBC: Уникальные способности животных / Super Senses
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323255.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318176.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ BBC: Невидимый Рим / Rome's Invisible City (2015) HDTV [H.264/1080i-
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316168.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315053.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ BBC: Мир природы. Водопад Виктория / Natural World. Vic
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308553.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ BBC. Эти удивительные хищники / Incredible Predators (2016
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308131.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ BBC: Планета Земля 2 / Planet Earth II (2016) UHD BDRemux [H.265/216
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306767.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip [H.264/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303259.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ BBC: Новая Европа с Майклом Пэйлином / Michael Palin'
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300972.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ BBC: Супердостижения Земли / Supersized Earth (2012) HDTV [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300886.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ BBC. Кракатау. Последние дни / Krakatoa. The Last Days (2006
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297335.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ BBC: Чудеса жизни. Серии №1-5 из 5 / Wonders of Life (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295459.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ BBC: Horizon. Эпоха больших данных / Horizon. Age of Big Data 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292504.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291977.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ BBC. Российская империя: Династия Романовых / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284205.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ BBC: Забытые британские рабовладельцы / Britain's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283892.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ BBC: Частная жизнь шедевров. "Свобода на барри
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281671.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ BBC. Великая битва Александра Македонского / A
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281081.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280645.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ BBC. Повседневные чудеса  / Everyday Miracles (2014) HDTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276850.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ BBC. Повседневные чудеса  / Everyday Miracles (2014) HDTVRip [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83EE4D500172ECFA9A2BD1E33C9BBA959CB4A65A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265392   (272873) от 29.11.2018
+
+BBC: Голубая планета / The Blue Planet (2001) BDRemux [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал от BBC расскажет о различных и разнообразных формах жизни на нашей планете, связанных с морскими просторами. Несмотря на то, что вода занимает две трети нашей планеты, о глубинах океана мы знаем меньше, чем о поверхности Луны. От известного до непознанного - новый документальный сериал «Голубая планета» открывает нам всю красоту и очарование (   Читать дальше...   )Производство: Великобритания / ARD, BBCЖанр: Документальный, Природа, ФаунаРежиссер: Аластер Фовергилл по сценарию Дэвида АттенбороПеревод: Одноголосый закадровый, профессиональныйСубтитры: Русские (SRT), английские (PGS)Продолжительность: 8 х ~ 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54FDFD11E4C0ED62B87A37625FBC75DE230A6D76
 ```
 
 https://mybot314.ru/tekegram_catalog/

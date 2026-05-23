@@ -6,7 +6,7 @@ SuperDuper! 3.3.1 (v121) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221796.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Soulver 3.1.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221555.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe InCopy 2020 15.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221494.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Clipboard Manager 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221475.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Adobe Acrobat Pro  20.013.20064 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221474.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ GoodNotes 5 v5.7.50 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221467.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ goPanel 2 v2.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221462.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Adobe After Effects 2020 v17.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221461.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ PDF Search + PDF Converter 11.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221452.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ AICopy - quote & essay rewrite 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221436.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Workspaces 2.0.3 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221409.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Project Office Pro 9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221396.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Serial Box & SerialSeeker/iSerial Reader 2021 - 12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221337.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ BatchOutput PDF 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221334.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Stats 2.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221323.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Yate 6.16.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221314.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Things 3 v3.15.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221313.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Nevercenter CameraBag Pro 2023.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221305.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Professional Recorder & Editor 6.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221299.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Downie 4 v.4.6.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221289.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Sketch 61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221283.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Adobe Photoshop 2021 v22.0.1 + Neural Filters [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221150.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ MacCleaner 3 PRO 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221122.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ PDF Expert 3.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221103.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Get Backup Pro 3 v3.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221023.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ NCH WavePad Mater 11.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221019.jpg" />
 </div>
 
 

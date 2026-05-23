@@ -6,7 +6,7 @@ Mose Allison - V-8 Ford Blues (1959 - 1961) 2016, Sony Music [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706197.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Prato Bell Luckin Trio - Through The Tunnel (2017) Self-Released [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706196.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Bo Sundstrom - Mitt Dumma Jag: Svensk Jazz (2018) Sony Music [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706195.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Johnny “Hammond” Smith - That Good Feelin' (1959) Remaster, 2013, Universal[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706157.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Wanda De Sah - Softly! (1965) Remaster, 2013, Universal[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706154.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Super Premium Band - Sounds of New York (2011) Happinet Corporation[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706153.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Herbie Hancock Trio with Ron Carter + Tony Williams - Trio '81 (1981) Remaster, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706152.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Blues Mystery - Soul Memories (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706093.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - The Best of American Folk & Blues (3CD) (2016) [FLAC|Lossless|tracks + .cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705964.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ella Fitzgerald - The Singles (1954 - 1962) 2017, 3CD, New Continent [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705793.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Daphna Levy - Late Night Journey (2014) Self Released [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705696.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Norah Jones - Morning Jones (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Contemporar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705609.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Norman Brown - Heart To Heart (2020) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Smoo
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705606.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Anan Ryoko - Another Beginning (2010) [FLAC|Lossless|tracks + .cue] <Jazz, Pop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705533.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Tamba Trio - Black + Blue (1974) 2001, BMG [APE|Lossless|image + .cue] <Bossa No
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705532.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Fredrik Kronkvist - Altitude (2003) Sittel Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705528.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Bernt Rosengren & Claes-Goran Fagerstedt - Jazz Club 57 (1957 - 1962) 2000, Drag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705527.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Jimmy Smith - Cherokee (1957) 1996, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705526.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Rolf Billberg - Rare Danish Recordings by a Swedish Jazz Legend (1957 - 1966) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705525.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Janne Ersson Big Band - Live At The Stockholm Jazz Festival (2004) Sittel Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705524.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Blues Beatles - Let It Blues (2020) [FLAC|Lossless|image + .cue] <Modern Electri
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705510.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Blues Company - Ain't Givin' Up (2019) [FLAC|Lossless|image + .cue] <Electric Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705357.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Harold Mabern - Wailin' (1970) 2009, Prestige [FLAC|Lossless|image + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705354.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Dave McKenna - An Intimate Evening With Dave McKenna (1999) 2002, Arbors Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705351.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Big Boy Bloater & The Limits - 2 Альбома (2011, 2012) [FLAC|Lossless|imag
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705227.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Best of Bossa Nova: The Girls from Ipanema (2000) Verve [MP3|320 кб/с|tr
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705143.jpg" />
 </div>
 
 

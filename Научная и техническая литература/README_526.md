@@ -1,133 +1,3 @@
-###  Публикация: 1578880   (207357) от 25.09.2022
-
-Эксмо, ред. Анастасия Оголева | Как использовать возможности мозга. Знания, которые не займут много места (2022) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Почему вы сейчас читаете эти строки? Можно предположить, что вам показалось интересным название книги или просто понравилась обложка. Но не все так однозначно. Сотни решений, которые мы принимаем каждый день, на самом деле осуществляет наш мозг, следуя только ему известным алгоритмам. С древности людей интересовало устройство нашего разума. И во все времена непостижимость (   Читать дальше...   )Жанр: Научно-популярная литература, НейробиологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FAF344CCD4199281505EE044F3F566F333A0DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612138   (207353) от 14.02.2023
-
-Альнис Каваляускас | Прибалтика. Полная история (2022) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Что такое – современная Прибалтика? Ранее – «Terra Mariana», что переводится как «приморская земля», а ныне – это капли янтаря, сосны, белый песок, мятежные волны Балтийского моря, размеренный ритм жизни и трепетно охраняемые народные традиции. Историческое наследие и культура стран Прибалтики не менее богаты и уникальны. В разное время их строили такие люди как (   Читать дальше...   )Жанр: ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3207484F2D1FB7DEC3639F29CBA6D3380452F935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650719   (207313) от 03.08.2023
-
-Р.Ю. Царев и др. | Теоретические основы информатики (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основные понятия информатики. Описана архитектура ЭВМ, назначение основных узлов. Даны базовые понятия методологии построения компьютерных сетей и основные приемы работы и поиска в глобальной сети Internet. Рассмотрены вопросы информационной безопасности и работы с антивирусным программным обеспечением. Отдельно освещена работа в программах пакета Microsoft (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СФУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF62A71C54EB6ED9682DA6AA0B93DD1B59F38E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612314   (207311) от 15.02.2023
-
-А.С. Касаткин, М.В. Немцов | Электротехника (1983) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Содержатся основные положения теории электрических цепей, основы промышленной электроники, электрические измерения, описание устройства и рабочих свойств электрических машин, сведения об электроприводе и электрической аппаратуре. По отношению к предыдущему, третьему изданию, вышедшему в 1974 г., существенно переработаны разделы основ промышленной электроники, электрических (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2582D701177FCBFD321409A9C11AD9AE5DC8A6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612399   (207292) от 15.02.2023
-
-А.М. Заяц., С.П. Хабаров | Организация беспроводных Ad Hoc и Hot Spot сетей в среде ОС Windows (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В пособии после изложения сущности гибридных приложений на основе Apache Cordova (ранее PhoneGap) и NativeScript, их особенностей, достоинств и недостатков обсуждается базовая технология Cordova, а в качестве примера строится простое приложение, использующее данные геолокации. Дан краткий обзор ряда наиболее известных библиотек jаvascript и фреймворков на их основе. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D042D11A429DDD13FDBB087BAD351870DDA8A44C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609064   (207263) от 15.02.2023
 
 А.И. Фетисов | Геометрия в задачах (1977) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207263.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207205.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207154.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207150.jpg" />
 </div>
 
 
@@ -240,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207140.jpg" />
 </div>
 
 
@@ -267,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207081.jpg" />
 </div>
 
 
@@ -294,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207066.jpg" />
 </div>
 
 
@@ -322,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207017.jpg" />
 </div>
 
 
@@ -348,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207015.jpg" />
 </div>
 
 
@@ -375,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206991.jpg" />
 </div>
 
 
@@ -401,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206977.jpg" />
 </div>
 
 
@@ -430,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206916.jpg" />
 </div>
 
 
@@ -456,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206895.jpg" />
 </div>
 
 
@@ -482,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206892.jpg" />
 </div>
 
 
@@ -509,7 +379,7 @@ Susan Southard | Nagasaki: Life After Nuclear War / Нагасаки: жизнь
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206874.jpg" />
 </div>
 
 
@@ -535,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206867.jpg" />
 </div>
 
 
@@ -562,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206842.jpg" />
 </div>
 
 
@@ -588,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206794.jpg" />
 </div>
 
 
@@ -614,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206776.jpg" />
 </div>
 
 
@@ -643,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206726.jpg" />
 </div>
 
 
@@ -669,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206718.jpg" />
 </div>
 
 
@@ -680,6 +550,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1A08E50D524349A73B01FB274196F942B54D74E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652171   (206698) от 10.08.2023
+
+В.Н. Шакин | Базовые средства программирования на Visual Basic в среде VisualStudio Net. Практикум (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практикум представляет собой набор лабораторных работ и контрольных заданий но основным принципам алгоритмизации и программирования, а также базовым средствам языка программирования высокого уровня Visual Basic. Содержание практикума является неотъемлемой частью учебного пособия «Базовые средства программирования на Visual Basic в среде Visual Studio .NET» и соответствует (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ФорумФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC83B519DD094B1D0438B3CB1AFBC759A7AB1E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652011   (206697) от 09.08.2023
+
+Е.В. Фирганг | Руководство к решению задач по курсу общей физики (2009) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206697.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии даются методические указания к решению задач по основным разделам курса общей физики и приводятся примеры решения типовых задач. При этом внимание уделено проблеме поиска решения и обоснованию выбранного способа решения. В каждом параграфе приведены краткие теоретические сведения, необходимые для решения рассмотренных задач.
+Учебное пособие предназначено (   Читать дальше...   )Жанр: ФизикаИздательство: ЛаньФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43902521105AA274E7EC6D91C65349EA69F3052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580921   (206691) от 03.10.2022
+
+Ken Xiao | Talk English - The Secret To Speak English Like A Native In 6 Months For Busy People (2015) [PDF, EPUB] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы изучали английский в течение многих лет, но все еще плохо говорите по-английски. Вы перепробовали много методов, но все еще допускаете грамматические ошибки, вы все еще не можете свободно говорить по-английски и все еще не можете правильно произносить английские слова. Вы можете читать по-английски, но слишком нервничаете или стесняетесь говорить по-английски. (   Читать дальше...   )Жанр: English, Lessons,Язык: АнглийскийФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0D4948A9432507D19F7FEA2DCABDACA2F86A173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652196   (206689) от 10.08.2023
+
+Е.И. Бутиков и др. | Физика в примерах и задачах (1989) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Занимает промежуточное положение между учебником физики и сборником задач. На конкретных примерах показывается, как фундаментальные законы физики могут быть использованы при анализе физических явлений. В новом издании (2-е изд. — 1983 г. ) нашли отражение последние изменения содержания курса физики средней школы и программ конкурсных экзаменов в вузы. Для слушателей (   Читать дальше...   )Жанр: ФизикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48FCAFB18A447D894C5FD4174F4BC0FB7C3B73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652057   (206679) от 09.08.2023
+
+М.В. Свиркин, А.С. Чуркин | Программирование под Windows в среде Visual C++ 2005 (2-е изд.) (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206679.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном курсе рассматривается раздел современной технологии программирования – визуальное программирование под Windows. Рассмотренные в пособии теоретические вопросы, практические примеры и полноценные Windows-приложения могут стать основой для активного использования студентами языка С++, среды разработки MS Visual Studio 2005 при создании своих собственных Windows-приложений. (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539C7DCF6BE6973C0D55756341639491EAFB029E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Heroes of Science and Fiction (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061915.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Age of Barbarians Chronicles (2026) [Ru/Multi] (1.0.2.3) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061906.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack Other s 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061899.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack Wanterlu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061859.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Scene Rune [Dig
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061854.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack dixen18 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061853.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack Deceptic
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061803.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack Let'sРl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061776.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack FitGirl 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061735.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Towerborne (2024) [Ru/Multi] (5.6.1-488249.4611/dlc) Scene Rune [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061709.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Desynced (2023) [Ru/Multi] (1.0.17522) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061676.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ FATAL FRAME II: Crimson Butterfly REMAKE (2026) [Multi] (1.02.01/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061674.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Succession of Changing Kings (2026) [Ru/Multi] (Build 22151855) Repack seleZ
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061643.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Headquarters: Cold War (2026) [Ru/Multi] (1.01.04) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061636.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Elemental: Reforged (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061613.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Peregrino (2026) [Ru/Multi] (1.0.0) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061604.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Peregrino (2026) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061603.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Legends of Amberland III: The Crimson Tower (2026) [En] (1.00) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061555.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Succession of Changing Kings (2026) [Ru/Multi] (4.2.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061553.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Whispers of the Eyeless (2025) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Supporter
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061460.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Docked (2026) [Ru/Multi] (1.0.8.1/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061439.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Sherman Commander (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061413.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.45.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061412.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Egypt Frontiers (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061407.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Egypt Frontiers (2025) [Ru/Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061406.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ The Succession of Changing Kings (2026) [Ru/Multi] (4.3.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061396.jpg" />
 </div>
 
 

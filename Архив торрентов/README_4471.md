@@ -6,7 +6,7 @@ CudaText 1.212.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112011.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Microsoft PowerToys 0.80.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111993.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Windows Update Viewer 0.6.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111991.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Icecream Screen Recorder PRO 7.37 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111984.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FurMark 2.2.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111981.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ GPU-Z 2.58.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111980.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ YT Downloader 9.7.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111970.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ KStars 3.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111969.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Icecream Slideshow Maker PRO 5.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111966.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ JetBrains RubyMine 2024.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111961.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Sumatra PDF 3.6.16004 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111958.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sante DICOM Editor 10.0.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111957.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Icecream Photo Editor Pro 1.49 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111956.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Icecream PDF Editor Pro 3.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111954.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Calibre 7.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111950.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Icecream Video Editor Pro 3.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111948.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Vivaldi 6.6.3271.57 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111941.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2970 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111939.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Advanced Renamer 3.95 release 2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111933.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ CherryTree 1.1.2.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111932.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Emurasoft EmEditor Professional 24.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111931.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Opera One 109.0.5097.38  Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111929.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ XYplorer 25.80.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111927.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ FireAlpaca 2.11.18 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111902.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Strava: бег, велоезда, хайкинг v354.7 Mod by ReVanced Team [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111873.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Chromium 123.0.6312.107 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111855.jpg" />
 </div>
 
 

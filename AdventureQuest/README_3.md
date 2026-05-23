@@ -6,7 +6,7 @@ The Artifact Protocol (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049373.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dead In Bermuda (2015) [Ru/Multi] (1.1c v2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049372.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Gravewood High (2021) [Ru/Multi] (1.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049371.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049370.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dead Reset (2025) [Ru/Multi] (build 19945272) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049369.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Escape the Backrooms (2022) [Ru/Multi] (1.2510) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049279.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ SUFFOCATE (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049278.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Simon the Sorcerer Origins (2025) [Ru/Multi] (1.0.1.10242025.58358/dlc) Repack F
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049275.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.2.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049274.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Berlin Apartment (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049230.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Grand Theft Auto V (5) Enhanced (2025) [Ru/Multi] (1.0.889.22) Repack HardwareMi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049228.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Cybernetic Fault (2020) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048643.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.12.0/dlc) Repack Hardw
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048584.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Foolish Mortals (2025) [Multi] (0.7.5.1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1048570.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Hoomanz! (2025) [Ru/Multi] (0.3.26) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048541.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Sanatorium: A Mental Asylum Simulator (2025) [Ru/Multi] (0.99) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047670.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.2.381918 build 20599177/dlc) Repack HardwareM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047632.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Art of Reflection (2025) [Ru/Multi] (2465) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047481.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Simon the Sorcerer Origins (2025) [Ru/Multi] (1.0.2.11062025.41663/dlc) Repack L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047467.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Midnight Scenes: A Safe Place (2024) [En] (1.2a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047325.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Midnight Scenes: From the Woods (2023) [En] (1.1a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047324.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Uninvited / Unwelcome (2022) [En] (1.14a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047323.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Midnight Scenes: The Nanny (2021) [En] (1.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047322.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Midnight Scenes Episode 2 (2020) [Ru/Multi] (1.19a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047321.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ The Librarian (2020) [Ru/Multi] (1.03a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047320.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047305.jpg" />
 </div>
 
 

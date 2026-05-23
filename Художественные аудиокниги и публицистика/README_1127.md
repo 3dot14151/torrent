@@ -1,84 +1,3 @@
-###  Публикация: 1816531   (4072) от 06.09.2025
-
-Алекс Д, Влад Бах | Эра пустоши. Трилогия (2025) [MP3, Светлана Шаклеина, Юрий Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Они не знали, что создают бога. И он не простил им слабость».
-Когда старый мир пал, плавучие острова стали последней надеждой для избранных. Оставшихся бросили умирать на материках, где среди руин и страха рождалась новая воля к жизни и множилась армия смертоносных мутантов.Жанр: Фантастика, боевикИздательство: ЛитРесПродолжительность: 41:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEFFD74F99CC5DDB54362948CFAA1DAF4BC58567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816575   (4071) от 06.09.2025
-
-Никита Киров | Контора (Книга 4). Г.Р.О.М. 4 (2025) [MP3, Константин Загацкий]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В тот день моё терпение лопнуло. Когда за взятку в очередной раз отпустили опасного бандита — я выстрелил в него в упор. А через мгновение убили и меня.
-Смерть не стала концом. Я очнулся в девяностых — в лихое время, где ещё можно что-то изменить. Родные живы, но над ними уже сгущаются тучи. Я знаю, что будет дальше — и не позволю беде повториться.
-Я очищу улицы (   Читать дальше...   )Жанр: Фантастика, боевик, попаданцыИздательство: ЛитРесПродолжительность: 11:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10137A7C46F1656DC99CBFC61B27FC135898BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816470   (4070) от 06.09.2025
-
-Алекс Ключевской, Илья Ангел | Тёмный маг (Книга 1). Неведомый путь (2025) [MP3, Семён Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Две замечательные девушки два года назад подарили нам эту историю с просьбой интересно её рассказать и довести до логического конца. И вот, наконец, мы это сделали!Мне тринадцать лет и по закону я обязан пройти обучение в Столичной школе магии. Но я не хочу! Почему вы заставляете делать меня то, чего я не хочу? Я не хочу изучать магию! И я бы всё отдал, чтобы не (   Читать дальше...   )Жанр: фэнтези, приключения, юморИздательство: ЛитРесПродолжительность: 07:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F40A0B718558B737F070BFC6A053B2573A2595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816479   (4068) от 06.09.2025
 
 Алекс Ключевской, Илья Ангел | Тёмный маг (Книга 8). Рискованный путь (2025) [MP3, Семён Ващенко]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4068.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4067.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4066.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4065.jpg" />
 </div>
 
 
@@ -194,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4064.jpg" />
 </div>
 
 
@@ -220,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4063.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4061.jpg" />
 </div>
 
 
@@ -272,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4060.jpg" />
 </div>
 
 
@@ -298,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4059.jpg" />
 </div>
 
 
@@ -324,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4058.jpg" />
 </div>
 
 
@@ -351,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4057.jpg" />
 </div>
 
 
@@ -377,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4056.jpg" />
 </div>
 
 
@@ -403,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4055.jpg" />
 </div>
 
 
@@ -429,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4054.jpg" />
 </div>
 
 
@@ -457,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4052.jpg" />
 </div>
 
 
@@ -483,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4051.jpg" />
 </div>
 
 
@@ -509,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4049.jpg" />
 </div>
 
 
@@ -535,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4048.jpg" />
 </div>
 
 
@@ -563,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4047.jpg" />
 </div>
 
 
@@ -589,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4044.jpg" />
 </div>
 
 
@@ -615,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4042.jpg" />
 </div>
 
 
@@ -642,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4041.jpg" />
 </div>
 
 
@@ -670,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4040.jpg" />
 </div>
 
 
@@ -681,6 +600,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:695EE708AAC4EF7B4ADE8D816D771C2A48DBB58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816487   (4039) от 06.09.2025
+
+Иван Тургенев | Новь (2025) [MP3, Юрий Гуржий]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4039.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Новь» – остроумное и совершенно нетипичное для Тургенева произведение – впервые автор отвел главную роль в романе не судьбам отдельных людей, а социальным конфликтам эпохи. Роман «Новь» – «замечательное произведение, предназначенное производить бури и волнения не один год» – был впервые напечатан в 1877 году. Очень остроумный роман и совершенно новый для Тургенева (   Читать дальше...   )Жанр: Социальный реализм, психологияИздательство: Аудиокнига (АСТ)Продолжительность: 14:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A510680E1E5075362FF15146B60BAACEC317B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816641   (4038) от 06.09.2025
+
+Энрико Брицци | Феррари. В погоне за мечтой. Старт (2025) [MP3, Олег Булгак]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Биография о юности Энцо Феррари – человека, ставшего легендой в мире автомобильного спорта.
+Модена, Италия, 1899 год. Маленький Энцо Феррари мирно спит на руках у матери в завораживающей атмосфере итальянского праздника. Вдруг начинается суматоха, возгласы, поток убегающих людей: по улице движется невероятная безлошадная повозка – первый автомобиль в Модене, за рулем (   Читать дальше...   )Жанр: Биографии, мемуары, историяИздательство: ЭксмоПродолжительность: 13:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB69DBB7EEE521A0622D39F4BC77743FA368DB96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816624   (4037) от 06.09.2025
+
+Эндрю Лейн | Молодой Шерлок Холмс. Облако смерти (2023) [MP3, Юрий Тенман]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето 1868 года. Шерлоку Холмсу четырнадцать лет. Он вынужден провести каникулы в имении своих родственников и уверен, что впереди его ждут очень скучные летнике каникулы. Но неожиданно двое местных жителей умирают от загадочной болезни, похожей на чуму, и Шерлок оказывается в самой гуще опасных и загадочных событий. Выяснив, что смерть этих людей была насильственной, (   Читать дальше...   )Жанр: ДетективИздательство: Аудиокнига своими рукамиПродолжительность: 10:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B9596735FE6C43C79FEB8C7AFF7ED7BFAA661F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,59 +1,3 @@
-###  Публикация: 718227   (389177) от 03.11.2013
-
-Инопланетное вторжение: Битва за Лос-Анджелес / Battle Los Angeles (2011) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Землю пытается захватить инопланетная цивилизация, истребляя все живое на своем пути. По всему миру начинается широкомасштабное сражение человечества за выживание. Отряду морских пехотинцев поручено во что бы то ни стало освободить осажденный город ангелов от таинственных и смертоносных тварей...Производство: США / Columbia Pictures, Relativity Media, Original FilmЖанр: фантастика, боевикРежиссер: Джонатан ЛибесманАктеры: Аарон Экхарт, Мишель Родригес, Бриджет Мойнэхэн, Майкл Пенья, Рамон Родригез, Уилл Ротхаар, Кори Хардрикт, Джим Пэррак, Джино Энтони Песи, Шаффер СмитПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced), Английский (Full)Продолжительность: 01:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D56A025FCE2571E6596419AA89291661CD96CDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571343   (389160) от 06.11.2012
-
-Честь и ярость / Rage and Honor (1992) DVD-5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В ходе полицейской операции против торговцев наркотиками погибает один из стражей порядка. Через информатора в полиции преступники узнают, что в операции принимал участие полицейский из Австралии Престон, работающий в Лос-Анджелесе под прикрытием.
-
-Дело обставляется так, чтобы взвалить вину за убийство на него. Однако случайный свидетель заснял все на видеокамеру. О кассете узнают обе противоборствующие стороны и парню приходится обратиться за помощью к своему учителю восточных единоборств Крис.
-
-Выясняется, что у нее есть и личные причины ненавидеть главаря наркомафии — он когда-то убил ее сенсея. Кассета все-таки попадает в руки мафии и ее используют в качестве приманки для австралийского агента и бесстрашной каратистки.Жанр: Боевик, драма, криминалРежиссер: Теренс Х. УинклессАктеры: Синтия Ротрок, Ричард Нортон, Терри Триз, Брайан Томпсон, Кэтрин Бах, Стивен Дэвис, Алекс Дэтчер, Патрик Мэлоун, Тоширо Обата, Тим Де Зарн, Джон Ван Несс, Мэтт О’Тул, Питер Каннингэм, Роджер Йуан, Фэйт Минтон, Кэти Лонг, Пол Д. Фау, Джефф Уинклесс, Шивонн Деркин, Ральф Сеймур, Лилли Руле, Кристофер Эдмондс, Стивен РичПеревод: Профессиональный одноголосыйЯзык субтитров: АнглийскиеПродолжительность: 01:32:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570985   (389090) от 06.11.2012
 
 Добро пожаловать в Лэйквью / Lakeview Terrace (2008) [1080p] Blu-Ray
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389090.jpg" />
 </div>
 
 
@@ -90,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389089.jpg" />
 </div>
 
 
@@ -117,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389051.jpg" />
 </div>
 
 
@@ -143,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389037.jpg" />
 </div>
 
 
@@ -169,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_388962.jpg" />
 </div>
 
 
@@ -196,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_388952.jpg" />
 </div>
 
 
@@ -222,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_388947.jpg" />
 </div>
 
 
@@ -248,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_388890.jpg" />
 </div>
 
 
@@ -274,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388706.jpg" />
 </div>
 
 
@@ -300,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388641.jpg" />
 </div>
 
 
@@ -326,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388540.jpg" />
 </div>
 
 
@@ -352,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_388539.jpg" />
 </div>
 
 
@@ -380,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388538.jpg" />
 </div>
 
 
@@ -406,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_388197.jpg" />
 </div>
 
 
@@ -432,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_388062.jpg" />
 </div>
 
 
@@ -458,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387973.jpg" />
 </div>
 
 
@@ -484,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387967.jpg" />
 </div>
 
 
@@ -510,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387965.jpg" />
 </div>
 
 
@@ -536,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387823.jpg" />
 </div>
 
 
@@ -562,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387804.jpg" />
 </div>
 
 
@@ -588,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387756.jpg" />
 </div>
 
 
@@ -614,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387648.jpg" />
 </div>
 
 
@@ -640,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387593.jpg" />
 </div>
 
 
@@ -666,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387582.jpg" />
 </div>
 
 
@@ -677,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25D83559DE8B45148C8E86A353B03C25F250CEF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414233   (387578) от 07.10.2020
+
+Эврика / Eureka / Yurika (2000) HDTVRip [Rus Sub]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о нескольких отверженных: шофере автобуса, подозреваемом в совершении преступления, двух детях-сиротах, их кузене - случайном студенте. Судьба, однажды случайно соединившая героев в одной точке, сводит их вновь.Производство: Япония, DENTSU Music And Entertainment, Imagica Corp., J WorksЖанр: ДрамаРежиссер: Синдзи АоямаАктеры: Кодзи Якусё, Аои Миядзаки, Масару Миядзаки, Ёитиро Сайто, Саюри Кокусё, Кэн Мицуиси, Го Ридзю, Ютака Мацусигэ, Сансэй Сиоми, Кимиэ СингёдзиПеревод: ОтсутствуетСубтитры: Русские (arexibo) - отдельным файломПродолжительность: 03:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B26C55553CA9DC499E87A706B032D6D4A6A0940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 718716   (387514) от 04.11.2013
+
+Джобс: Империя соблазна / jOBS (2013) BDRip [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он был молод, красив и чертовски талантлив. Начав с нуля, он смог построить мировую империю соблазна. О нем грезили женщины. Ему завидовали мужчины. Он соблазнил миллионы. Его звали Стив Джобс.Производство: США | Open Road Films (II), Five Star Institute, IF EntertainmentЖанр: Драма, БиографияРежиссер: Джошуа Майкл Штерн / Joshua Michael SternАктеры: Эштон Кутчер, Дермот Малруни, Джош Гад, Лукас Хаас, Дж.К. Симмонс, Лесли Энн Уоррен, Рон Элдард, Ана О’Райли, Джон Гец, Джеймс Вудс ...Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 02:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49DEA5F2506E956C2A0FCFEC9AC9787CBB841C01
 ```
 
 https://mybot314.ru/tekegram_catalog/

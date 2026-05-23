@@ -1,29 +1,3 @@
-###  Публикация: 1339419   (265956) от 19.11.2019
-
-D1896 (2019) [En] (1.0) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-D1896 — это платформер приключенческого боевика в стиле ранних фильмов ужасов, созданный по мотивам «Le Manoir Du Diable», первого фильма ужасов, который когда-либо снимался (он был выпущен в 1896 году). История D1896 основана на 3-минутном фильме Жоржа Мели (Georges Melies) "Le Manoir Du Diable", романе Брэма Стокера (Bram Stoker's) "Дракула" (   Читать дальше...   )Тип издания: RepackРазработчик: Arkhouse TelegraphЖанр: Arcade (Horror), Platform, Adventure, 2DЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2901BF93A5ABD27FCDD6CF692FA5A2FB4ABF077D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267606   (265723) от 07.12.2018
 
 Christmas Stories 7: Alice's Adventures (2018) [En] (1.0) Unofficial [Collector's Edition]
@@ -32,7 +6,7 @@ Christmas Stories 7: Alice's Adventures (2018) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265723.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Sherlock Holmes versus Jack the Ripper / Шерлок Холмс против Д
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265675.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265625.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Double Dragon: Neon (2014) [Ru/En] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265624.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265623.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Resident Evil 0 / Resident Evil 0 HD Remaster (2016) [Ru] (1.0/dlc) Repack Other
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265609.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Iris.Fall (2018) [Ru/Multi] (1.0.00022) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265504.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Rocket League (2015) [Ru/Multi] (1.56/dlc) License PLAZA [Game of the Year Editi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265488.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Treasure Hunter Simulator (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265462.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Narcos: Rise of the Cartels (2019) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265191.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Dead Reckoning 8: Lethal Knowledge / Точный расчет 8: Смертел
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265096.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Sherlock Holmes: The Awakened / Шерлок Холмс и секрет Ктул
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264992.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Spirits of Mystery 12: Whisper of the Past (2018) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264961.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Tom Clancy's Splinter Cell: Conviction (2010) [Ru/En] (1.04/dlc) Repack Seraph1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264935.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Red Comrades 3: Return of Alaska. Reloaded / Петька и Василий Ив
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264929.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Rise of the Tomb Raider (2016) [Ru/En] (1.0.767.2/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264915.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Surge (2017) [Ru/En] (42876/dlc) Repack R.G. Механики [Complete Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264762.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.3) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264757.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Whispered Secrets 10: Dreadful Beauty / Нашептанные секреты 10
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264571.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ EBONY (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264497.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Narcos: Rise of the Cartels (2019) [Ru/Multi] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264495.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.1.2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264332.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.3/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264331.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ MinecraftEdu (2011) [Ru/Multi] (1.7.10 Build 22) License [Minecraft Classroom Ed
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264322.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Fairy Godmother Stories: Cinderella (2019) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264269.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Fairy Godmother Stories: Cinderella (2019) [En] (1.0) Unofficial [Collector's Ed
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96398D990FFACCA62ADF535F761DBF53C4FA4419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339969   (264194) от 22.11.2019
+
+Brukel (2019) [Ru/Multi] (1.0.2) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы проникли в заброшенный дом детства вашей 92-летней бабушки. Вы были очарованы историями о ее юношеских годах на протяжении большей части своей жизни, но прошлым летом вы наконец решили записать ее воспоминания, чтобы поделиться этими историями с миром онлайн. Теперь все что вам нужно, это несколько фотографий дома и, возможно, некоторые предметы, которые все еще (   Читать дальше...   )Тип издания: RepackРазработчик: Bob De SchutterЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4964430258A36757A98474DB7CB65DD0B0DCBC44
 ```
 
 https://mybot314.ru/tekegram_catalog/

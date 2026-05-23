@@ -6,7 +6,7 @@ FinePrint 10.11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001883.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bandicam 4.5.4.1624 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001876.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Format Factory 4.10.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001873.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Blender 2.81a + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001870.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Calibre 4.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001866.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ StartIsBack++ 2.9.0 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001855.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tor Browser Bundle 9.0.4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001848.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ CPU-Z 1.91.0 Portable by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001844.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows Firewall Control 6.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001843.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ PDF-XChange Editor Plus 8.0.336.0 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001838.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ JetBrains PhpStorm 2019.3.1 build 193.5662.63 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001833.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Luxion Keyshot Pro 9.0.289 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001831.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ StartIsBack++ 2.9.0 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001816.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Adobe Illustrator 2020 24.0.2.373 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001805.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Transcend SSD Scope 4.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001737.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Master PDF Editor 5.7.91 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001731.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ PTE AV Studio Pro 10.5.3 Build 1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001728.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Skype 8.75.0.140 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001708.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ MiniTool Power Data Recovery 10.0 Technician RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001702.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ MetaProducts Offline Explorer Enterprise 8.1.4904 RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001699.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ K-Lite Codec Pack Update 15.3.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001636.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ AIMP 4.60 Build 2169 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001603.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Unity Pro 2019 2.17f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001601.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Internet Download Manager 6.36 Build 2 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001595.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Windows 10 Manager 3.2.0 (DC 12.01.2020) RePack (& Portable) by D!akov [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001591.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Android Studio 3.5.3 Build #AI-191.8026.42.35.6010548[En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001590.jpg" />
 </div>
 
 

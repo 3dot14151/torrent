@@ -1,82 +1,3 @@
-###  Публикация: 1816487   (4039) от 06.09.2025
-
-Иван Тургенев | Новь (2025) [MP3, Юрий Гуржий]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Новь» – остроумное и совершенно нетипичное для Тургенева произведение – впервые автор отвел главную роль в романе не судьбам отдельных людей, а социальным конфликтам эпохи. Роман «Новь» – «замечательное произведение, предназначенное производить бури и волнения не один год» – был впервые напечатан в 1877 году. Очень остроумный роман и совершенно новый для Тургенева (   Читать дальше...   )Жанр: Социальный реализм, психологияИздательство: Аудиокнига (АСТ)Продолжительность: 14:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48A510680E1E5075362FF15146B60BAACEC317B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816641   (4038) от 06.09.2025
-
-Энрико Брицци | Феррари. В погоне за мечтой. Старт (2025) [MP3, Олег Булгак]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Биография о юности Энцо Феррари – человека, ставшего легендой в мире автомобильного спорта.
-Модена, Италия, 1899 год. Маленький Энцо Феррари мирно спит на руках у матери в завораживающей атмосфере итальянского праздника. Вдруг начинается суматоха, возгласы, поток убегающих людей: по улице движется невероятная безлошадная повозка – первый автомобиль в Модене, за рулем (   Читать дальше...   )Жанр: Биографии, мемуары, историяИздательство: ЭксмоПродолжительность: 13:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB69DBB7EEE521A0622D39F4BC77743FA368DB96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816624   (4037) от 06.09.2025
-
-Эндрю Лейн | Молодой Шерлок Холмс. Облако смерти (2023) [MP3, Юрий Тенман]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Лето 1868 года. Шерлоку Холмсу четырнадцать лет. Он вынужден провести каникулы в имении своих родственников и уверен, что впереди его ждут очень скучные летнике каникулы. Но неожиданно двое местных жителей умирают от загадочной болезни, похожей на чуму, и Шерлок оказывается в самой гуще опасных и загадочных событий. Выяснив, что смерть этих людей была насильственной, (   Читать дальше...   )Жанр: ДетективИздательство: Аудиокнига своими рукамиПродолжительность: 10:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13B9596735FE6C43C79FEB8C7AFF7ED7BFAA661F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816655   (4035) от 06.09.2025
 
 Александр Дюма | Невеста республиканца (2025) [MP3, Михаил Богдасаров]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4035.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4034.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4033.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4032.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4030.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4029.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4028.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4027.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4026.jpg" />
 </div>
 
 
@@ -320,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4025.jpg" />
 </div>
 
 
@@ -346,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4024.jpg" />
 </div>
 
 
@@ -372,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4022.jpg" />
 </div>
 
 
@@ -398,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4021.jpg" />
 </div>
 
 
@@ -424,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4020.jpg" />
 </div>
 
 
@@ -450,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4019.jpg" />
 </div>
 
 
@@ -476,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4018.jpg" />
 </div>
 
 
@@ -502,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4017.jpg" />
 </div>
 
 
@@ -528,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4015.jpg" />
 </div>
 
 
@@ -556,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4014.jpg" />
 </div>
 
 
@@ -583,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4013.jpg" />
 </div>
 
 
@@ -611,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4012.jpg" />
 </div>
 
 
@@ -637,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4011.jpg" />
 </div>
 
 
@@ -663,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4010.jpg" />
 </div>
 
 
@@ -674,6 +595,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B8472F8A8D616870B8DB9C80B960EB801346E0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816585   (4009) от 06.09.2025
+
+Алекс Найт | Разлом (Книга 7). Строптивая жена драконьего военачальника (2025) [MP3, Людмила Быкова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Меня выдали замуж помимо моей воли и желаний. Так принято среди аристократов, потому я не спорила. Мой муж — уважаемый военачальник, но он абсолютно равнодушен ко мне и не способен на пылкие чувства. По крайней мере, так казалось в самом начале. До нашей первой ночи.Жанр: Фэнтези, магическое, любовноеИздательство: ЛитРесПродолжительность: 05:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC786A313FE553545E12F0684D9118BEDE11F0AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816583   (4008) от 06.09.2025
+
+Алекс Найт | Разлом (Книга 4). (Не)желанная жена драконьего военачальника (2025) [MP3, Людмила Быкова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мой род в беде, и единственный способ выдержать оборону — объединить усилия с такой же сильной семьёй, а для этого скорее выйти замуж. Претендент есть, только он не в восторге от меня и моего предложения. Но у меня нет особого выбора, значит, не останется и у него.Жанр: Фэнтези, магическое, любовноеИздательство: ЛитРесПродолжительность: 04:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162F2714659BDBCAA2E0D4AE5B7FAC30A4934E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816581   (4007) от 06.09.2025
+
+Алекс Найт | Разлом (Книга 3). Навязанная жена драконьего военачальника (2025) [MP3, Людмила Быкова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда очень хочется спасти девичью честь от одного дракона и получить другого, в ход идут любые средства, даже незаконное заключение брака. Я убедила себя в этом, рискнула, и у меня всё получилось! Главное — помнить правила усмирения огненных драконов: воспламенить, сбежать и не попадаться на глаза, пока не остынет. А если уж попалась, расслабиться, получить удовольствие (   Читать дальше...   )Жанр: Фэнтези, магическое, любовноеИздательство: ЛитРесПродолжительность: 04:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E4148A6624460B4B4318CC9A8A9F9C00C8C222
 ```
 
 https://mybot314.ru/tekegram_catalog/

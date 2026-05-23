@@ -6,7 +6,7 @@ Total Commander 11.01 (27.10.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165023.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AVS Media Player 5.2.4.143 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165020.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Bat! Professional 10.5.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165017.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VPN Russia - VPN сервера в России 1.176 Mod by FreeApkexe [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165016.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Line6 - Helix Native 3.0.1 VST, VST3, AAX (x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165009.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Waterfox Current G5.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164998.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VideoProc (former MacX Video Converter Pro) 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164993.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ FireAlpaca 2.9.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164987.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ NIUBI Partition Editor 9.2.2 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164979.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ DesktopOK 10.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164975.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ FanControl V141 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164972.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Magic Uneraser Commercial / Office / Home / Unlimited Edition 6.5 RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164971.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Chromium 108.0.5359.125 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164967.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ DxO FilmPack 5 ELITE Edition v5.5.26 (build 602) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164965.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Reg Organizer 8.40 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164954.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ NVIDIA GeForce Desktop Game Ready 546.01 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164938.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ O&O DiskImage Professional 18.2 Build 199 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164924.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Movavi Video Converter 21 Premium 21.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164912.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Logic Pro X 10.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164902.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Light Image Resizer 6.1.6.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164900.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ TechSmith Camtasia 21.0.15 (Build 34558) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164899.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Transcend SSD Scope 4.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164894.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Hetman Partition Recovery 4.5 Home / Office / Commercial / Unlimited Edition ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164886.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Calibre 6.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164879.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Native Instruments Kontakt 7 v.7.1.3 STANDALONE, VSTi, AU [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164871.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Mailbird Pro 3.0.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164864.jpg" />
 </div>
 
 

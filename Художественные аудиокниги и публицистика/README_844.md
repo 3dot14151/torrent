@@ -1,84 +1,3 @@
-###  Публикация: 1599196   (160160) от 22.12.2022
-
-Абир Мукерджи | Уиндем и Несокрушим (Книга 2). Неизбежное зло (2022) [MP3, Григорий Перель]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Индия, 1920-е. В сказочно богатом королевстве Самбалпур, казалось бы, все спокойно: там обитают слоны и тигры, находятся алмазные рудники и прекрасный Дворец Солнца. Однако когда наследника престола убивают, обнаруживается, что эту маленькую страну разрывает большой конфликт. Теперь капитану Уиндему и сержанту Банерджи, прозванному Несокрушимом, предстоит расследование (   Читать дальше...   )Жанр: детектив, триллерПродолжительность: 11:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87BABFAE027B83835994EC6B22F9ABFE213A603C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675475   (160155) от 09.11.2023
-
-Владимир Гиляровский, А.З. Рубинов | История московских бань (2008) [MP3, Владимир Самойлов, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: «Кругозор».
-Бани сопровождают человечество с древнейших времен, с ними неразрывно связана история нравов, культура в широком значении.
-Для русского человека баня исстари была неотъемлемой частью жизни, олицетворением гостеприимства и домашнего очага.
-Особо славилась своими банями Москва. «Единственное место, которого не миновал ни один москвич, – это бани». (   Читать дальше...   )Жанр: Исторические очеркиИздательство: Студия «АРДИС»Продолжительность: 06:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF2E0BE5025380966AEC953182150BA037C5B9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599215   (160130) от 22.12.2022
-
-Дмитрий Пейпонен | С-12-12 (Книга 1). Бронзовый ангел над океаном (2022) [MP3, дядя Фёдор]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-История становления Натки Соловей, как сильного и опасного бойца, история обучения ее и девчонок, и история создания знаменитой группы «С-12-12». Альтернативная версия ранее опубликованного романа.Жанр: БоевикиПродолжительность: 15:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A235C4F5E373117B26EA764AB0624C59570037D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675404   (160117) от 09.11.2023
 
 Денис Владимиров | Киллхантер (Книга 7). По дорогам тьмы 2 (2023) [MP3, Альберт Фомин (FAN12)]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160117.jpg" />
 </div>
 
 
@@ -114,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160105.jpg" />
 </div>
 
 
@@ -142,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160081.jpg" />
 </div>
 
 
@@ -168,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160080.jpg" />
 </div>
 
 
@@ -195,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160064.jpg" />
 </div>
 
 
@@ -221,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160062.jpg" />
 </div>
 
 
@@ -247,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160045.jpg" />
 </div>
 
 
@@ -274,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160014.jpg" />
 </div>
 
 
@@ -300,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159984.jpg" />
 </div>
 
 
@@ -326,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159943.jpg" />
 </div>
 
 
@@ -352,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159937.jpg" />
 </div>
 
 
@@ -380,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159934.jpg" />
 </div>
 
 
@@ -408,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159929.jpg" />
 </div>
 
 
@@ -434,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159916.jpg" />
 </div>
 
 
@@ -462,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159898.jpg" />
 </div>
 
 
@@ -488,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159888.jpg" />
 </div>
 
 
@@ -514,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159880.jpg" />
 </div>
 
 
@@ -540,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159877.jpg" />
 </div>
 
 
@@ -566,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159875.jpg" />
 </div>
 
 
@@ -592,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159849.jpg" />
 </div>
 
 
@@ -618,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159827.jpg" />
 </div>
 
 
@@ -644,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159813.jpg" />
 </div>
 
 
@@ -671,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159807.jpg" />
 </div>
 
 
@@ -682,6 +601,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83B7DAB9F2B5CE367137B49B6220879471EC262E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599335   (159791) от 23.12.2022
+
+Евгений Водолазкин | Чагин (2022) [MP3, Иван Литвинов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Евгений Водолазкин — автор романов «Лавр», «Авиатор», «Соловьёв и Ларионов», «Брисбен», «Оправдание Острова», сборников короткой прозы «Идти бестрепетно» и «Инструмент языка», лауреат премий «Большая книга», «Ясная Поляна» и «Книга года». Его книги переведены на многие языки.
+Исидор Чагин может запомнить текст любой сложности и хранить его в памяти как угодно долго. (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 10:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF49BAB3D9E6259ABEA44EE45281ED78C1C2717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599291   (159787) от 23.12.2022
+
+Топор Ролан | Жилец (2022) [MP3, Олег Булдаков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы на самом деле совсем не одиноки. Что бы мы себе ни говорили, но нас окружают соседи. Умеренно дружелюбные, или равнодушные, или требующие к себе внимания… Месье Трелковский искал себе квартиру поудобнее и подешевле и таки нашел. С соседями, с очень интересующимися им cоседями…Жанр: Мистика, ужасыПродолжительность: 05:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F756E78B8EBEF8554119346F40E28C4C44E23AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675760   (159786) от 10.11.2023
+
+Алекс Белл | 2084: Счастливый новый мир (2023) [MP3, Амир Шакиров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красочный, полный удивительных технологий мир будущего. Счастливый мир, в котором решено множество проблем человечества, люди отправляются покорять Марс, создан сверхразумный компьютер, а виртуальный мир все больше заменяет собой реальность. Но так ли все хорошо в этой новой жизни?Жанр: ФантастикаИздательство: ЭксмоПродолжительность: 12:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3FFB45877421F05AA150E2EC791406B378776E
 ```
 
 https://mybot314.ru/tekegram_catalog/

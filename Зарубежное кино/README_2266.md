@@ -1,55 +1,3 @@
-###  Публикация: 1812471   (7762) от 15.08.2025
-
-Каскадёр / Mou tai dou / Stuntman (2024) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Отошедший от дел постановщик трюков Лэй Сам по просьбе режиссёра и бывшего партнёра возвращается в профессию. Попав на съёмочную площадку спустя много лет, он понимает, что индустрия кино сильно изменилась. Он знакомится с молодым каскадёром Лэй Сай-Луном. Несмотря на разницу в поколениях, они находят общий язык и вместе хотят вернуть былую славу гонконгским боевикам. (   Читать дальше...   )Производство: Гонконг / Film Development Fund of Hong Kong, Stuntman Film ProductionЖанр: боевик, драмаРежиссер: Альберт Люн, Херберт ЛюнАктеры: Терренс Лау, Тун Вай, Сесилия Чой, Филип Нг, Макс Чун, Ту Иньго, Лам Иу-Син, Рэйчел Люн, Терри Цзоу, Кит НгПеревод: Многоголосый любительский (Колобок)Язык озвучки: русский, китайскийСубтитры: русские (full - AI), английскиеПродолжительность: 01:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D6259109176A8BCC9E46D11B9833302CBACD95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503370   (7580) от 16.08.2025
-
-Машина времени / The Time Machine (2002) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Профессор Александр Хартдеген изобрёл машину времени и отправился в прошлое, чтобы спасти свою невесту от случайной пули. Но это ему не удалось - прошлое нельзя изменить. Хартдеген попадает в будущее и видит Землю в ужасающем состоянии. После ранения и беспамятства он не заметил, как его машина прошла сквозь восемьсот тысяч лет истории Земли...Производство: США, ОАЭ /  Warner Bros, Dreamworks Pictures, Parkes/MacDonald Image NationЖанр: Фантастика, боевик, приключенияРежиссер: Саймон УэллсАктеры: Гай Пирс, Саманта Мамба, Орландо Джонс, Марк Эдди, Джереми Айронс, Сиенна Гиллори, Макс Бейкер, Филлида Ло, Лаура Кирк, Джош СтэмбергПеревод: Дублированный, Многоголосый профессиональный, Двуголосый профессиональный, АвторскийЯзык озвучки: Русский, английскийСубтитры: Русские (Forced), английские (pgs)Продолжительность: 01:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C70B052334AEA80FFDB5C36B1F591B027D4C82FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812310   (7570) от 16.08.2025
 
 24 часа / Trapped (2002) WEB-DL [H.265/2160p] [4K, HDR, 8-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7570.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7548.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7545.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7525.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7519.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7486.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7485.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7475.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7409.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7408.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7389.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7387.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7384.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7361.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7344.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7324.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7304.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7299.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7284.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7283.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7273.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7253.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7154.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7134.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DF2DE98AFD96AF34ABF9F299E5A4B88C95CB84B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813298   (7130) от 18.08.2025
+
+Кунг Фьюри / Kung Fury (2015) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майами. 1985 год. В городе появляется самый опасный преступник всех времён — Адольф Гитлер по прозвищу Кунг Фюрер. Суперкоп Кунг Фьюри решает совершить путешествие во времени в нацистскую Германию, чтобы убить Гитлера и положить конец нацистской империи...Производство: Швеция / Lampray, Laser Unicorn, Salmon FoxЖанр: фантастика, фэнтези, боевик, комедияРежиссер: Дэвид СандбергАктеры: Дэвид Сандберг, Леопольд Нильссон, Стивен Чю, Андреас Кахлинг, Эрик Хёрнквист, Элени Янг, Хелен Алсон, Пер-Хенрик Арвидус, Эос Карлссон, Дэвид ХэсселхоффПеревод: профессиональный многоголосый (Jaskier), любительский двухголосый (OzzTV), авторский (Леонид Володарский; Дмитрий Пучков)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 00:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3117883084A8A546FCB9CC59F7EDD7F24C9D4414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813312   (7122) от 18.08.2025
+
+Обливион / Oblivion (2013) BDRip [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно ли скучать по месту, в котором никогда не был, мечтать о девушке, которую никогда не видел? Добро пожаловать в будущее! Мы больше не можем называть Землю своим домом. Мы выиграли войну, но не смогли сохранить планету…Производство: США / Chernin Entertainment, Ironhead Studios, Radical Pictures, Radical Studios, Truenorth Productions, Universal PicturesЖанр: фантастика, боевик, триллер, приключенияРежиссер: Джозеф КосинскиАктеры: Том Круз, Ольга Куриленко, Морган Фримен, Андреа Райзборо, Николай Костер-Валдау, Мелисса Лео, Зои Белл, Эбигейл Лоу, Изабель Лоу, Дэвид МэдисонПеревод: Дублированный (Лицензия)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (SDH)Продолжительность: 02:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2F22E730984C64ECC7DD07E9830C38C05A55A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

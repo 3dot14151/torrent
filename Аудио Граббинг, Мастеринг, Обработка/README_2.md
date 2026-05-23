@@ -6,7 +6,7 @@ Bigasoft Audio Converter 5.7.0.8427 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043505.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sugar Bytes - Turnado 1.7.5 (x64) Standalone, VST, VST 3, AAX RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043454.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sugar Bytes - Looperator 1.1.1 (x64) Standalone, VST, VST 3, AAX RePack by TCD [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043442.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Unfiltered Audio - BYOME 1.3.4 VST, VST3, AAX RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043359.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Audition 1.5 + Waves Diamond Bundle [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042387.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Martinic - AX Chorus 1.1.0 VST (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041918.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Overloud - BREVERB 2 2.1.17 Standalone, VST, VST 3, AAX (x86/x64) RePack by TCD 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041851.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ LiquidSonics - Seventh Heaven Professional v1.3.3 VST/VST3/AAX x64 RePack by R2R
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040032.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ JMG Sound - Retronaut 1.0 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039878.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Avdshare Audio Converter 7.5.0.8427 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039581.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ UJAM - Symphonic Elements STRIIIINGS 1.0.0 VSTi, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039510.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ DRmare Audio Converter 2.8.0.40 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039055.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ MAGIX SOUND FORGE Audio Studio 16.1.2.57 (x86/x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038780.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ JMG Sound - Hyperspace 2.6  VST, VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038370.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ JMG Sound - Cryostasis 1.2 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038369.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ JMG Sound - Orbitron 1.6 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038368.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ JMG Sound - Transmutator 2.6 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038359.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ JMG Sound - Mirror 1.6 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038342.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ JMG Sound - Expanse 3D 1.6 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038341.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Soundevice Digital - TrapTune 1.4.0 VST, VST 3, AAX RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038340.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ TunePat YouTube Music Converter 1.2.5 (Repack & Portable) by elchupacabra [Multi
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037536.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Togu Audio Line - TAL-Mod 1.9.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036435.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Togu Audio Line - TAL-Dub-X 2.0.4 VST, VST 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036434.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Togu Audio Line - TAL-BassLine-101 3.6.8 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036433.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ GForce Software Oberheim SEM 1.5.0 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036430.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Caelum Audio - Choric 1.0.5 VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036130.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1568294   (211043) от 07.08.2022
-
-Подвал / Crawlspace (2022) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой становится свидетелем преступления и прячется от бандитов в подвал, пока те обыскивают дом в поисках драгоценностей. Мужчина слышит, как преступники с каждым шагом приближаются к нему, прочесывая дом. Подвал может стать для героя или могилой, или полем боя не на жизнь, а на смерть.Производство: США / SP Media Group, Wonder StreetЖанр: ТриллерРежиссер: Л. Густаво КуперАктеры: Генри Томас, Брэдли Страйкер, С. Эрнст Харт, Дженнифер Робертсон, Оливия Тейлор Дадли, Карлос Джо Коста, Кэтрин Лок Хэггквист, Колин Декер, Флетчер Донован, Чарльз ДжарменПеревод: Дублированный (BD RUS)Субтитры: Русские, английские (отдельно)Продолжительность: 01:30:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100B0F10CD66F545259DA3517FC15567D910FCD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601843   (211041) от 02.01.2023
-
-Власть пса / The Power of the Dog (2021) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Братья Фил и Джордж — владельцы крупнейшего ранчо Монтаны. Несмотря на родство, братья мало похожи друг на друга. Фил отличается умом и жесткостью, а Джордж — добротой и любовью к порядку. Когда Фил узнаёт, что Джордж тайно женился на местной вдове Роуз, он решает использовать её сына Питера, чтобы уничтожить их брак.Производство: Великобритания, Австралия, США, Канада, Новая Зеландия /  See-Saw Films, Brightstar, Max Films InternationalЖанр: драма, мелодрама, вестернРежиссер: Джейн КэмпионАктеры: Бенедикт Камбербэтч, Кирстен Данст, Джесси Племонс, Коди Смит-Макфи, Женевьева Лемон, Томасин МакКензи, Кен Рэдли, Шон Кинэн, Джордж Мэйсон, Ramontay McConnellПеревод: ДублированныйЯзык озвучки: русский, украинский, английскийСубтитры: русские, укринские, английскиеПродолжительность: 02:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25BCD54BCA70DD4982F273B924CE90CBC0235087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640912   (211032) от 20.06.2023
 
 Пацанская история (2022) WEB-DLRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211032.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211029.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211028.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211025.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211024.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211019.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211000.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210995.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210986.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210985.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210979.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210964.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210954.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210950.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210939.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210937.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210927.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210925.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210919.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210917.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210915.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210913.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210904.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210897.jpg" />
 </div>
 
 
@@ -668,6 +616,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD8A292F73104ED6A8D971207EBD44F24AD3A2A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602027   (210893) от 04.01.2023
+
+Голливудский финал / Hollywood Ending (2002) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для съемок нового суперхита боссы крупной киностудии нанимают капризного и непредсказуемого Вэла Ваксмана. Это подарок судьбы для всеми забытого обладателя двух «Оскаров», докатившегося до съемок рекламы. Вэл не хочет упустить шанс напомнить Голливуду о себе. Но вскоре из-за перенапряжения его поражает редкий недуг — истерическая слепота.
+Теперь несчастному гению (   Читать дальше...   )Производство: США / DreamWorks SKG, Gravier Productions, Perdido ProductionsЖанр: мелодрама, комедияРежиссер: Вуди АлленАктеры: Вуди Аллен, Теа Леони, Трит Уильямс, Джордж Хэмилтон, Дебра Мессинг, Айзек Мизрахи, Мэриэн Селдес, Тиффани Тиссен, Марк Веббер, Боб Дориан, Иван МартинПеревод: Многоголосый закадровый (R5)Субтитры: русские, английскиеПродолжительность: 01:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60C3815013106B8F78B054713AA81797B9B0171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568665   (210892) от 09.08.2022
+
+Скрежет / Pahanhautoja / Hatching (2021) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210892.jpg" />
+</div>
+
+
+###  Подробнее
+
+12-летняя Тинья занимается гимнастикой и всячески пытается угодить озабоченной имиджем матери — достичь высот в спорте и быть идеальной дочерью. Однажды после череды неприятных событий девочка находит брошенное, как она думала, птичье яйцо, решает не дать ему погибнуть и забирает домой. Находка достигает невероятных размеров, и вскоре из яйца вылупляется неведомая (   Читать дальше...   )Производство: Финляндия, Швеция / Evil Doghouse Productions, Film i Väst, Hobab, Silva Mysterium Oy, uMedia FamilyЖанр: УжасыРежиссер: Ханна БергхольмАктеры: Сиири Солалинна, София Хейккиля, Яни Воланен, Рейно Нордин, Ойва Оллила, Ида Мяаттянен, Сайя Лентонен, Стелла Леппикорпи, Хертта Ниминен, Аада ПунакивиПеревод: Дублированный (Back Board Cinema)Язык озвучки: Русский, финскийСубтитры: Русские (Forced, Full), английские, французскиеПродолжительность: 01:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC9ABA9272177F5CD260F91C47CDEABBE29A832
 ```
 
 https://mybot314.ru/tekegram_catalog/

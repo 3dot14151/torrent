@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433776.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433775.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Chromium 85.0.4183.121 UNGOOGLED [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433748.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Vivaldi 3.3.2022.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433746.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Futuremark 3DMark 2.13.7004 Developer Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433742.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Demon's Eye (feat. Doogie White) - Under The Neon (2015) [FLAC|tracks + .cue]<Ha
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433712.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Comedy Баттл. Последний сезон. Выпуск №28  / Коме
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433710.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433708.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Macgo Windows Blu-ray Player 2.16.6.2108 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433703.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ From First To Last - 6 Альбомов + 1 EP (2003-2015) [MP3|320 кб/с] <Po
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433696.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Snoop Dogg - I Wanna Thank Me (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Fun
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433692.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Status Quo - Backbone (2019) Limited Edition [FLAC|Lossless|tracks] <Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433689.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Maxthon Browser 5.3.8.1500 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433688.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ AudioRealism - ABL3 3.2.2 VSTi (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433685.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Ulysses 17 (51691) CR2 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433683.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Uninstall Tool 3.5.9 Build 5650 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433678.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ SolveigMM Video Splitter 3.5.1210.2 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_433657.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Deep Data Recovery 2.0.0 b20200831 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433628.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Google Chrome 85.0.4183.121 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433620.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ MEmu 7.2.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433619.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Receipts 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433613.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Twitterrific 5 for Twitter 5.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433610.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Espresso 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433607.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ PDF Squeezer 3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433606.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ EtreCheck Pro 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433604.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ App Tamer 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433600.jpg" />
 </div>
 
 

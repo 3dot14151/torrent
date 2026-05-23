@@ -6,7 +6,7 @@ Conqueror A.D. 1086 (1995) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316394.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tale of Imerion (2002) [Multi] (1.0.3) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305729.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Polaris Sector (2016) [Ru/En/Spa] (1.06с/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304768.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Close Combat: The Bloody First (2019) [Multi] (1.00.02) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302572.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.13.0) License PROPER-PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301795.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Eastside Hockey Manager (2015) [En] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296447.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sid Meier's Civilization: Beyond Earth (2014) [Ru/En] (1.1.2.4035/dlc) Repack R.
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296301.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Master of Orion (2016) [Ru/Multi] (54.6/dlc) License CODEX [Collector's Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295154.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Spellforce 3 (2017) [Ru/Multi] (1.38) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290705.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Settlers® 2 (1996) [En/Ge/Fr] (1.51) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288875.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Settlers® 3 (2000) [En/Ge] (1.60/dlc) License GOG [Ultimate Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288867.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Armies of Exigo / Armies of Exigo: Хроники великой войны (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277279.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Hinterland: A New Kingdom / Hinterland: Das Neue Koenigreich (2010) [Multi] (1.0
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277277.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275939.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Sid Meier's Civilization III (2001) [Ru] (1.22) Repack
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275931.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ War For The Overworld (2015) [Ru/Multi] (1.5.0f3/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275416.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Jurassic War (1997) [Ru] (1.05) Repack R.G. Games
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275073.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.13.0) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274176.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Master of Orion Dilogy (1993/1996) [Ru] (1.3/1.31) Repack Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273906.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Sid Meier's Civilization V / Sid Meier's Civilization 5 (2014) [Ru/En] (1.0.3.27
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270925.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.1.2/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270051.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Polaris Sector (2016) [Ru/En/Sp] (1.06d) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266530.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Sid Meier's Civilization VI / Sid Meier's Civilization 6 (2016) [Ru/En] (1.0.0.3
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264155.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Pandora: First Contact (2013) [Multi] (1.6.7/dlc) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264046.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Age of Empires II: HD Edition (2013) [Ru/En] (5.6/dlc) Repack R.G. Механи�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263642.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Sid Meier's Civilization: Beyond Earth (2014) [Ru/En] (1.1.2.4035/dlc) Repack xa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263320.jpg" />
 </div>
 
 

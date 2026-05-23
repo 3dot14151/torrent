@@ -1,116 +1,3 @@
-###  Публикация: 1087594   (144397) от 28.12.2016
-
-Вышел ангел из тумана (2005) SATRip (Московский академический театр сатиры)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Пенсионерка Екатерина Кондратьевна Первухина отмечает день рождения. К ней на праздник приехали все ее родные и близкие. Два брата, ее сыновья - бедный ученый и богатый деляга, еще совсем недавно живущие в мире и согласии, теперь открыто враждуют между собой, и лишь на дне рождении матери решают разыграть семейную идиллию, примирение. Но Екатерина Кондратьевна сама (   Читать дальше...   )Производство: Россия, Московский академический театр сатирыЖанр: Трагикомедия, спектакльРежиссер: Никита ШиряевАктеры: Ольга Аросева, Лев Дуров, Андрей Зенин, Борис Тенин мл., Татьяна Титова, Луиза Мосендз, Ольга Мотина, Светлана Малюкова, Зоя Зелинская, Павел МисаиловПродолжительность: 02:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD30487A9DD2F54E7BB260E7B292F4E52DF81328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590235   (144146) от 16.12.2012
-
-Легенды Ретро FM (2012) CamRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-15 декабря в спорткомплексе «Олимпийский» состоялся восьмой международный фестиваль «Легенды Ретро FM». Все гости шоу провели вечер в компании суперзвезд отечественной и зарубежной эстрады, потанцевали,  спели хором  любимые  песни и  совершили  незабываемое  путешествие в 70-е, 80-е и 90-е! Почти все артисты, выступившие на сцене «Олимпийского», приехали на «Легенды Ретро FM» впервые! В супершоу приняли участие: AL BANO, ЮРИЙ  АНТОНОВ, C.С. CATCH, АНЖЕЛИКА  ВАРУМ, ЛЕВ ЛЕЩЕНКО, SECRET SERVICE, МИРАЖ, BACCARA, ЮРИЙ  ЛОЗА, (   Читать дальше...   )01. Intro: балет Тодес
-Александр Айвазов
-02. Лилии
-03. Валентинов день
-Baccara
-04. Cara Mia
-05. Sorry I'm A Lady
-06. Yes Sir, I Can Boogie
-Лев Лещенко
-07. Прощай(   Читать дальше...   )Жанр: КонцертПродолжительность: 04:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B36E1F78DA6BA478F90F98F18F2531C414C0BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970030   (143532) от 29.12.2015
-
-Михаил Зощенко - Грустный Зощенко (2003) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Известный режиссер и актёр Владимир Андреев исполняет рассказы Михаила Зощенко: "Мелкий случай из личной жизни", "Тридцать лет спустя"...Производство: Россия, Студия фондовых и архивных программ телеканала "Культура"Жанр: Моноспектакль, литературное чтение, комедияРежиссер: Константин АнтроповАктеры: Владимир АндреевПродолжительность: 00:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3437F9C7445E9F3E013F2C9885FB51CAC8A86528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347593   (143520) от 28.12.2019
-
-Decrepit Birth - Epigenetic Triplicty (360° Visualizer) (2017) WEB-DL [H.264/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-360° Visualizer Music VideoЖанр: Technical Death MetalПродолжительность: 00:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF1FE95DBFD7983A1F5152D72B6AF3D7AA74E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678604   (143266) от 22.11.2023
 
 AC/DC - Let There Be Rock (1980) BDRemux [H.264/1080p]
@@ -119,7 +6,7 @@ AC/DC - Let There Be Rock (1980) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143266.jpg" />
 </div>
 
 
@@ -151,7 +38,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143263.jpg" />
 </div>
 
 
@@ -180,7 +67,7 @@ Ice Nine Kills - Music Videos 9X (2015-2019) WEB-DL [H.264/VP9/720p/1080p/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143253.jpg" />
 </div>
 
 
@@ -209,7 +96,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143224.jpg" />
 </div>
 
 
@@ -235,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143017.jpg" />
 </div>
 
 
@@ -262,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142784.jpg" />
 </div>
 
 
@@ -291,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142579.jpg" />
 </div>
 
 
@@ -320,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142555.jpg" />
 </div>
 
 
@@ -346,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142275.jpg" />
 </div>
 
 
@@ -376,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141852.jpg" />
 </div>
 
 
@@ -403,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141692.jpg" />
 </div>
 
 
@@ -432,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141214.jpg" />
 </div>
 
 
@@ -458,7 +345,7 @@ tyDi feat. Christina Novelli - Fire & Load (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140438.jpg" />
 </div>
 
 
@@ -484,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139947.jpg" />
 </div>
 
 
@@ -510,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139921.jpg" />
 </div>
 
 
@@ -539,7 +426,7 @@ Suicide Silence - Videoclips 20X (2007-2019) WEB-DL [VP9/2160p, H.264/1080p, 720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139841.jpg" />
 </div>
 
 
@@ -568,7 +455,7 @@ Lindsey Stirling - What Child is This (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139775.jpg" />
 </div>
 
 
@@ -594,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139247.jpg" />
 </div>
 
 
@@ -624,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139182.jpg" />
 </div>
 
 
@@ -650,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138692.jpg" />
 </div>
 
 
@@ -680,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138610.jpg" />
 </div>
 
 
@@ -708,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138584.jpg" />
 </div>
 
 
@@ -724,6 +611,115 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21E5EC045BE442BAE3D605E5535D632312051C9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088538   (138329) от 31.12.2016
+
+Лучшие песни-2016 (2016.12.31) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Праздничный концерт из Государственного Кремлевского дворца.
+На главной сцене страны собрались самые талантливые певцы и артисты, которые в течение всего года радовали нас своими песнями и выступлениями.Телекомпания: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED4E7F349C85B71B76021BBCE939AE3709C9AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088566   (138265) от 31.12.2016
+
+Все звезды в Новый год (2016.12.31) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимые новогодние песни в исполнении самых лучших и народных артистов! В Кремле на проведении главной Елки страны выступят: группировка «Ленинград», Филипп Киркоров, Надежда Кадышева и ансамбль «Золотое кольцо», Эмин, Лайма Вайкуле, Лолита, Иосиф Кобзон, Валерия, Лев Лещенко, Кристина Орбакайте, Валерий Леонтьев, Ани Лорак, Стас Пьеха, Слава, «А’Студио», «ВИА Гра», (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F63578BDBE4BA01CF8598474FC3358DCEE3D98D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 854414   (138164) от 31.12.2014
+
+Mark Knopfler: Концерт в Берлине 2007 / Live In Berlin 2007 (2014) HDTVRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Марка Нопфлера, который проходил в Берлине в 2007 году.
+Марк Нопфлер - британский рок-музыкант, певец и композитор, один из сооснователей группы Dire Straits. Его вокал лучше всего описывается немецким термином Sprechgesang - не совсем пение, но и не разговор. Он использует гитару так, как будто она является его вторым «голосом». Наибольшую популярность приобрёл (   Читать дальше...   )01. Donegan's Gone
+02. Rudiger
+03. Let It All Go
+04. The Fizzy And The Still(   Читать дальше...   )Жанр: Rock, КонцертПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609AC8A1620B4A67B6699F85457F277B293D8DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088704   (138122) от 31.12.2016
+
+Все звезды в Новый год (2016.12.31) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимые новогодние песни в исполнении самых лучших и народных артистов! В Кремле на проведении главной Елки страны выступят: группировка «Ленинград», Филипп Киркоров, Надежда Кадышева и ансамбль «Золотое кольцо», Эмин, Лайма Вайкуле, Лолита, Иосиф Кобзон, Валерия, Лев Лещенко, Кристина Орбакайте, Валерий Леонтьев, Ани Лорак, Стас Пьеха, Слава, «А’Студио», «ВИА Гра», (   Читать дальше...   )Телекомпания: НТВ HDЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEBE23773FCE54F96C00E1DA8A2706F43A32450C
 ```
 
 https://mybot314.ru/tekegram_catalog/

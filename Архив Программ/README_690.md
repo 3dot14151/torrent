@@ -6,7 +6,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701171.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Vivaldi 1.0.167.2 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701155.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IObit Smart Defrag Pro 7.4.0.114 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701151.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WSCC (Windows System Control Center) 7.0.0.8 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701138.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ MediaHuman YouTube Downloader 3.9.9.68 (0302) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701135.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Tag&Rename 3.9 Final RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701127.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Image Uploader 1.3.1 Build 4317 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701124.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ One Commander 3.4.37.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701122.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ IObit Uninstaller 4.3.0.122 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701117.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ ASCOMP BackUp Maker 7.405 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701083.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Cockos - REAPER 5.972 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701074.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Mirillis Splash 2.6.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701072.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ AOMEI Partition Assistant Technician Edition 8.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701067.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Blackmagic Design DaVinci Resolve Studio 15.3.0.008 RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701064.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ AlReader v2.5.100925 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_701044.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701043.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Adobe Photoshop 2020 21.2.2.289 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701038.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5032.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701022.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Corel VideoStudio Ultimate 2022 25.0.0.373 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700983.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ ScrollNavigator 5.6.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700959.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ AOMEI Partition Assistant Technician Edition 8.1.0 (Repack & Portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700931.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ MSI Afterburner 4.6.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700930.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ FlashBoot 2.1f + Portable  [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_700916.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Parkdale 2.95 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700866.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Unchecky 0.3.7.5 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700860.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ V-Ray Next 4.10.02 for 3ds Max 2013-2019 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700802.jpg" />
 </div>
 
 

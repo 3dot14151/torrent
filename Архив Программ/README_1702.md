@@ -6,7 +6,7 @@ AIDA64 Extreme Edition 6.75.6134 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206470.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 05.10.2022) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206460.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FBackup 9.8.815 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206449.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Rainlendar Lite 2.20.0 Build 175 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206445.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ FontLab 8.2.0.8620 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206443.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ ASAP Utilities for Excel  8.0.1 Home and Student  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206435.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Opera One 101.0.4843.43 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206424.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Windows Update Viewer 0.5.17.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206417.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Realtek Ethernet Driver 11.11.1206 | 10.63 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206414.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Everyone Piano 2.5.7.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206408.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Balabolka 2.15.0.838 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206396.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ OneCommander Pro 3.49.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206393.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206392.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Topaz Video AI 3.3.10 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206387.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ FastCopy 5.3.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206381.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VidCoder 8.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206376.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ WizTree 4.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206368.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Emurasoft EmEditor Professional 22.5.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206353.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ R-Studio Network 9.3 Build 191227 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206352.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Desktop.Calendar.Tray.OK 4.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206344.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ NoMachine 8.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206340.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Cobian Reflector 2.4.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206339.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ CudaText 1.197.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206323.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ FanControl V166 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206314.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Skype 8.101.0.212 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206313.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ OCCT 12.0.12 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206308.jpg" />
 </div>
 
 

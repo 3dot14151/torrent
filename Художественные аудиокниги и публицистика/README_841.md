@@ -1,86 +1,3 @@
-###  Публикация: 1674798   (160860) от 06.11.2023
-
-Александр Дюма (отец) | Женская война (2018) [MP3, Ольга Андреева]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Малоизвестный роман классика французской литературы Александра Дюма.
-1650 год, гражданская война во Франции. Королева Анна Австрийская воюет с принцессой Конде. Главный герой, барон Каноль, влюблен одновременно в двух женщин, которые находятся по разную сторону баррикад. К чему может привести жизнь между молотом и наковальней?..
-
-«Ковиньяк, поглощенный созерцанием (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, исторический романПеревод: Владимира Михайловича СтроеваИздательство: МедиаКнигаПродолжительность: 15:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A4C771634CFF2D5B161F218F3064A05D5A71EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674799   (160859) от 06.11.2023
-
-Александр Дюма (отец) | Кавалер Красного замка (2022) [MP3, Николай Орловский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Зарубежная классика.
-Аудиостудия «Ардис» предлагает вашему вниманию исторический роман Александра Дюма «Кавалер Красного замка», известный также как «Шевалье де Мезон-Руж».
-1793 год. После казни короля Людовика XVI в Париже, в мрачном застенке ещё бьется сердце несчастной королевы Марии-Антуанетты, чья участь, увы, почти предопределена. Группа заговорщиков-роялистов, (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, исторический романИздательство: Студия «АРДИС»Продолжительность: 17:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7B90401C94C2E5DDE7232C3A9C9605C05590592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674608   (160853) от 06.11.2023
-
-Чингиз Абдуллаев | Дронго (Книга 73), Разорванная связь (2023) [MP3, Яна Качеровская]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Две супружеские пары решили пошалить – заняться грешными свингерскими забавами. Удовольствие оказалось сомнительным, а через день один из незадачливых свингеров был убит в номере отеля. Самое интересное, что в убийстве обвиняют… эксперта-аналитика Дронго. Для него теперь дело чести найти настоящего убийцу и этим спасти не только свою репутацию, но и свободу. Подозреваемых (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 06:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48555631BDBB0F61827C8C53D4454C5A61A5D3D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674743   (160851) от 06.11.2023
 
 Джек Лондон | Дочь снегов (2023) [MP3, Алексей Воскобойников]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160851.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160850.jpg" />
 </div>
 
 
@@ -141,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160831.jpg" />
 </div>
 
 
@@ -167,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160823.jpg" />
 </div>
 
 
@@ -195,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160820.jpg" />
 </div>
 
 
@@ -221,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160782.jpg" />
 </div>
 
 
@@ -249,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160780.jpg" />
 </div>
 
 
@@ -276,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160772.jpg" />
 </div>
 
 
@@ -302,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160771.jpg" />
 </div>
 
 
@@ -328,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160767.jpg" />
 </div>
 
 
@@ -355,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160765.jpg" />
 </div>
 
 
@@ -381,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160744.jpg" />
 </div>
 
 
@@ -408,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160732.jpg" />
 </div>
 
 
@@ -434,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160725.jpg" />
 </div>
 
 
@@ -462,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160666.jpg" />
 </div>
 
 
@@ -488,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160653.jpg" />
 </div>
 
 
@@ -514,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160649.jpg" />
 </div>
 
 
@@ -540,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160634.jpg" />
 </div>
 
 
@@ -567,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160627.jpg" />
 </div>
 
 
@@ -594,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160622.jpg" />
 </div>
 
 
@@ -622,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160617.jpg" />
 </div>
 
 
@@ -648,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160615.jpg" />
 </div>
 
 
@@ -674,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160613.jpg" />
 </div>
 
 
@@ -685,6 +602,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F12C27B6D32DDA8A9328989E5071A6B1E1CED580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675042   (160612) от 07.11.2023
+
+Артуро Перес-Реверте | Клуб Дюма, или Тень Ришелье (2016) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие романа «Клуб Дюма, или Тень Ришелье» происходит в особом мире – мире книг. Герои этой истории – библиофилы, букинисты, переплетчики и просто страстные любители литературы. Одни из них отдают предпочтение романам «плаща и шпаги», другие – детективам, третьи пытаются разгадать тайны, скрытые в трудах по демонологии. Главный герой – Дин Корсо – охотник за книгами. (   Читать дальше...   )Жанр: Зарубежная литература, роман, интеллектуальный детективИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 13:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362D8EF40D7363C405A280008CF41BC1C07DBBEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674998   (160607) от 07.11.2023
+
+Мила Бачурова, Василий Криптонов | Князь Барятинский (Книга 2). Императорская Академия (2023) [MP3, Игорь Демидов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мне удалось серьёзно пошатнуть планы чёрных магов, однако теперь передо мной стоят новые задачи. Меня ждёт Императорская Академия – лучшее учебное заведение Российской Империи. Вот только в Академии мне, похоже, не очень рады. Покушение следует за покушением. В окружении Императора зреет заговор. Но враги напрасно считают меня изнеженным аристократом. За обманчивой (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 10:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89192497D9F212CEC529B54424B1FEAA5EB3DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674832   (160601) от 07.11.2023
+
+Дмитрий Коровников | Адмирал Империи (Книга 7) (2023) [MP3, Михаил Обухов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пограничные звёздные системы Российской Империи атакованы ударными флотами Американской Сенатской Республики. Мы начинаем наши «Хроники» с описания одного из самых кровопролитных и беспощадных столкновений начала 23 века. В мировой историографии этот конфликт назван – «Второй Александрийской войной». В наши учебники истории его первый этап вошёл под названием: «Отечественная (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, Космическая фантастикаИздательство: ЛитРес: чтецПродолжительность: 05:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6C0A9288149FFE9B948B7C5499245187A3D4B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

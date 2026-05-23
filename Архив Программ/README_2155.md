@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0518) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55940.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55939.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pulsar Modular Complete Effects Bundle 2024.5.20 VST3, AAX (x64) RePack by TCD [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55937.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ OpenNumismat 1.9.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55934.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Glary Utilities Pro 6.10.0.14 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55930.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Floorp Browser 11.13.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55927.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Autorun Organizer 5.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55925.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Glarysoft Malware Hunter PRO 1.184.0.805 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55921.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Change MAC Address 24.05 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55915.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ DesktopDigitalClock 5.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55914.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ ACDSee Photo Studio Ultimate 2024 17.1.1.3800 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55913.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Adobe Photoshop Lightroom Classic 2024 13.3.0.17 (x64) Portable by 7997 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55891.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ ADB AppControl 1.8.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55889.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Adobe Photoshop Lightroom Classic 2024 13.3.0.17 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55874.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Mailbird Pro 3.0.13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55873.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Psiphon 3 build 183 (20.05.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55867.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Adobe After Effects 2024 24.4.0.47 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55858.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Ashampoo WinOptimizer 27.00.02 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55853.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ TechSmith Camtasia 23.4.8 (Build 53233) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55849.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Xrecode 3 1.149 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55846.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ O&O ShutUp10++ 1.9.1437 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55840.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ DefenderUI 1.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55835.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ YT Downloader 9.8.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55833.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ O&O Defrag Professional 28.1 Build 10015 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55827.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ RAM Saver Professional 24.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55826.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ HandBrake 1.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55823.jpg" />
 </div>
 
 

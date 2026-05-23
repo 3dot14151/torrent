@@ -6,7 +6,7 @@ Maid-san wa Taberu Dake / The Food Diary of Miss Maid / Горничная, ко
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063260.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ghost Concert: Missing Songs / Концерт-призрак: пропавшие
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063259.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Ingoku Danchi | Жилой комплекс извращенок [2026, TV, 1 и
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063181.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Ponkotsu Fuuki Iin to Skirt-take ga Futekisetsu na JK no Hanashi | Беспол�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063167.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Liar Game | Игра лжецов [2026, TV, 1 из 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063151.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Reincarnation no Kaben / Petals of Reincarnation / Лепестки реинка
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063148.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Shunkashuutou Daikousha: Haru no Mai | Agents of the Four Seasons: Dance of Spri
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063143.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Tongari Boushi no Atelier | Witch Hat Atelier | Ателье колдовски�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063060.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Marriagetoxin / Marriage Toxin / Брачный токсин [2026, TV, 1 из ?
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063032.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Class de 2 Banme ni Kawaii Onnanoko to Tomodachi ni Natta / I Made Friends with 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063031.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Replica Datte, Koi o Suru. / Even a Replica Can Fall in Love / Даже копи
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063027.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tadaima, Ojama Saremasu! | Pardon the Intrusion, I'm Home! | Я вернулас
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063018.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Megami: Isekai Tensei Nani ni Naritai Desuka; Ore: Yuusha no Rokkotsu de / Бо�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063016.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Isekai Nonbiri Nouka 2 | Farming Life in Another World 2 | Фермерская 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063013.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062998.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Nippon Sangoku | Троецарствие Японии [2026, TV, 1 из 12] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062988.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Hidarikiki no Eren | Eren the Southpaw | Левша Эрен [2026, TV, 1 из 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062985.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Kanojo, Okarishimasu 5 | Девушка на час [ТВ-5] [2026, TV, 1 из 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062936.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Bungou Stray Dogs 5 | Великий из бродячих псов 5 [2023, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062669.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Niwatori Fighter | Rooster Fighter | Боевой петух [2026, TV, 1 из 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062563.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?): Next
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062508.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Ao no Hako | Blue Box | Голубая шкатулка [ТВ-1] [2024, TV, 25 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062417.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Bungou Stray Dogs 4 | Великий из бродячих псов 4 [2023, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062313.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Sekirei | Wagtail | Сэкирэй [2008, TV, 12 эп. + 1 OVA] BDRip 1080p 10-b
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062312.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Steel Ball Run JoJo's Bizarre Adventure | Steel Ball Run: JoJo no Kimyou na Bouk
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062059.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Hibi wa Sugiredo Meshi Umashi | Food for the Soul | Дни проходят, а 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062058.jpg" />
 </div>
 
 

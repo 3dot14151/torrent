@@ -6,7 +6,7 @@ Adobe Acrobat Pro 2023.008.20458 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123464.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chromium-Gost 120.0.6099.216 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123457.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Microsoft .NET 8.0.1 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123456.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Soft Organizer Pro 9.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123454.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Windows 10 Manager 3.9.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123453.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ GFI Kerio Control 9.4.3 build 8353 [x64] 4xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123449.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Google Chrome 120.0.6099.217 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123442.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Darktable 4.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123441.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Pipette 24.1.9.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123440.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Google Chrome 120.0.6099.217 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123434.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Clipboard Master 5.7.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123431.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Microsoft Visual Studio 2022 Enterprise 17.8.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123426.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Total Commander 11.02 (11.01.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123424.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ File & Image Uploader 8.4.0 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123423.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ GeoGebra 6.0.819.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123422.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ FireAlpaca 2.11.14 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123415.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Sandboxie 5.67.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123414.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ QOwnNotes 24.1.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123411.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.33 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123408.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ PDFCreator 5.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123407.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Sandboxie plus 1.12.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123406.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ RJ TextEd 16.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123386.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ MiniTool Power Data Recovery 11.8 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123382.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Windows 11 Debloater 2.0.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123379.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Office Tool Plus 10.6.2.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123378.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ MobaXterm 23.6 build 5186 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123361.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ FotoJet Photo Editor 1.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040155.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Avdshare Audio Converter for Mac 7.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040152.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Blocs 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040151.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SiteSucker 4.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040150.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Bigasoft Audio Converter for Mac 5.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040144.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ WinX HD Video Converter for Mac 6.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040123.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Bigasoft Total Video Converter for Mac 5.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040119.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Money Pro - Personal Finance 2.7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039958.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Keep It 1.9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039957.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ HDR Pro 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039956.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Nova 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039955.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Resolutionator 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039950.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ TunesKit AceMovi Video Editor 2.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039946.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Sketch n Cartoonize 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039942.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Viper FTP 5.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039938.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Photomatix Pro 6 v6.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039933.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Audio Hijack 3.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039929.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Sync Folders Pro+ 4.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039927.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Aiseesoft Mac FoneLab for iOS 10.2.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039925.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ SSDReporter 1.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039905.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Terragen Professional 4 v4.5.56 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039894.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Mirror for Samsung TV 3.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039821.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Presentify - Screen Annotation 4.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039650.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ File Cabinet Pro 8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039649.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ ReadKit 2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039648.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Timemator 2 v2.7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039647.jpg" />
 </div>
 
 

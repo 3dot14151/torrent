@@ -6,7 +6,7 @@ Nekomonogatari (Kuro) | История кошки (чёрная глава) [201
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752601.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Oshiete! Galko-chan | Расскажи нам, Гяруко-тян! [2016, TV, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751747.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Juushinki Pandora | Last Hope | Небесная машина Пандора [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749452.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Obey Me! | Повинуйся мне! [2021, ONA, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_749412.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Marmalade Boy (1995) | Marmalade Boy Movie | Мальчик-мармелад - �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748615.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Marmalade Boy | Мальчик-мармелад [1994, TV, 76 из 76] BDRip 960
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_748609.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ramen Daisuki Koizumi-san | Ms. Koizumi Loves Ramen Noodles | Коизуми-с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747485.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hakata Tonkotsu Ramens | Тонкоцу рамен из Хакаты [2018, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747396.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku | Death March to the Parallel Worl
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747254.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Imouto sae Ireba Ii. | A Sister's All You Need | Только сестра мн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745781.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Killing Bites | Смертельный укус [2018, TV, 12 эп.] WEB-DL 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745774.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ ReLIFE | ReLIFE Kanketsuhen | Повторная жизнь [2016, 2018, TV+OVA,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743128.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Koi wa Ameagari no You ni | After the Rain | Любовь похожа на пр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743054.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Dagashi Kashi 2 | Магазинчик сладостей [ТВ-2] [2018, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743044.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Miira no Kaikata | How to Keep a Mummy | Как ухаживать за муми
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743043.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Fate/EXTRA Last Encore | Судьба: Дополнение - Последний
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743042.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Nanatsu no Bitoku | The Seven Heavenly Virtues | Семь Святых Добр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742978.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Pop Team Epic | Эпическая поп-команда [2018, TV, 12] WEBRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740539.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Violet Evergarden / Виолетта Эвергарден [2018, TV, 13] HDTV 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739923.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Mayoi Neko Overrun! / Stray Cats Overrun! / Нашествие бродячих 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739574.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ World Trigger 3rd Season | Импульс мира [ТВ-3] [2021, TV, 14 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738630.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Maiko-san Chi no Makanai-san | Kiyo in Kyoto: From the Maiko House | Повар�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736764.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Akikan! / Empty Can / Пустая банка [2009, TV, 12] SDTV 1080p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734392.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Oshi ga Budoukan Itte Kuretara Shinu | If My Favorite Pop Idol Made It to the Bu
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733998.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Tales of Luminaria: The Fateful Crossroad | Сказания Луминарии:
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732703.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Bakuon!! | Мотоклуб [2016, TV, 12 эп.+2OVA+4SP] BDRip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731875.jpg" />
 </div>
 
 

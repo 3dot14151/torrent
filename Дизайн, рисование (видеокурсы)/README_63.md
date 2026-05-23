@@ -6,7 +6,7 @@ Gumroad, Zak Boxall | REALISTIC Creature Texturing Painting Tutorial Using Mari 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210674.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mackley Studios, Chris Tedin | Autodesk Maya Mythical Creature Animation (2017) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210637.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Skillshare, Darrin Lile | Create a Victorian Room with Blender and Substance Pai
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210628.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CGMA, Sean Mcewan | Procedural Modeling for Production in Houdini (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210562.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Art of Aaron Blaise, Aaron Blaise | How to Draw: Drawing Human Anatomy (2016
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210295.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Yiihuu, wingfox, Zaoeyo | Masterclass Motion Graphic Animation in Cinema 4D (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210275.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Vertex Workshop, Ackeem Durrant | Character Creation For Games by Ackeem Durrant
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210230.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Artstation Masterclasses, The Gnomon Workshop, Brian Recktenwald | Designing a M
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210191.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Yiihuu, WingFox | Movie CG Opening Concept Short Film: Ultrain-Ultrain (2021) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210188.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Schoolism, Nathan Fowkes | Digital Landscape Painting Workout (2021) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209935.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Schoolism, Iain McCaig | Drawing Workout (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209803.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Game Art Institute, Adam Skutt | Character Creation For Games with Adam Skutt (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209784.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ SideFX, Paul Esteves | Houdini 19 Nodes (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209726.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Gumroad, Frank Tzeng | Zbrush BPR RENDERING package (2017) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209471.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Schoolism, Nathan Fowkes | Environment Design Workout with Nathan Fowkes (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209436.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Granich.Design, Вадим Гранич | Графсистема Swiss (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209344.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Granich.Design, Вадим Гранич | Графсистемы Брутали�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209319.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Antipin-STUDIO, Виталий Антипин | Искусство портре�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209304.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Udemy, David Bittorf | Substance Painter for Beginners - creating normal maps (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209297.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Pluralsight, Nathan Glemboski | Creating Hand Painted Textures in Substance Pain
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209291.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Artilike, Любовь Титова | Акварельный Новогодни�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209288.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Gumroad, Daniel Thiger | Substance Studies Tutorial Graphic Design (2019) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209144.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Pluralsight, Dan Cox | Hard Surface Modeling a Modular Structure for Games in 3d
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209140.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Pluralsight, Dan Cox | Sculpting Modular Structures in ZBrush (2016) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209107.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 2 (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209087.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Epic Games, Kaye Vassey | Making the Most of Animation Blueprints (2018) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209079.jpg" />
 </div>
 
 

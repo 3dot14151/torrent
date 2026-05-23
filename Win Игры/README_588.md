@@ -1,29 +1,3 @@
-###  Публикация: 1787815   (6576) от 22.08.2025
-
-Grit and Valor - 1949 (2025) [Ru/Multi] (1.4.0/dlc) Repack Let'sРlay [Resistance Edition]
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В этой дизельпанк-стратегии с элементами roguelite вы возглавите элитный отряд мехов в альтернативной версии Второй мировой войны. Думайте быстро, сражайтесь с силами Оси и освобождайте Европу. Улучшайте мехов и пилотов, чтобы добраться до вражеского штаба!Тип издания: RepackРазработчик: Milky Tea StudiosЖанр: Экшены, Казуальные игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC5C05BC1FCD18D7CA8FC6942EEF363D70CA0697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804018   (6574) от 22.08.2025
 
 System Shock 2: 25th Anniversary Remaster (2025) [Multi] (1.2.4546) License GOG
@@ -32,7 +6,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (1.2.4546) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6574.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.07.1151/dlc) Repack Let's�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6573.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10837) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6571.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Bioweaver (2024) [Ru/Multi] (2.0.8b) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6570.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dust Fleet (2023) [Multi] (6.4.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6569.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Bleeding Deities (2025) [En] (1.0.7) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6559.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Oxide Room 208 (2025) [Ru/Multi] (1.06) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6550.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversar
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6546.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) Repack Yaroslav98
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6541.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Unholy Priest (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6521.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Unholy Priest (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6518.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Monospaced Lovers (2024) [Ru/Multi] (1.0.5.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6506.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Herdling (2025) [Ru/Multi] (1.1.2) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6486.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Beyond Citadel (2025) [En] (0.99b) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6485.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Dystopika (2024) [Ru/Multi] (1.5.6+53) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6465.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Reflections of Life 14: Gone But Not Forgotten (2025) [En] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6447.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6380.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ AI Limit (2025) [Ru/Multi] (1.1.001/dlc) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6379.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (1.1.40.1) Repack Let'sРlay
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6377.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Iron Harvest (2020) [Ru/Multi] (1.4.8.2986/dlc) Repack Let'sРlay [Deluxe Editio
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6366.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ YetiParty (2025) [Ru/En] (build 19685742) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6361.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Damnation (2009) [Multi] (1.0) Scene RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6360.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Stone Simulator - Just Be a Rock (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6359.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Photo Studio Simulator (2025) [Ru/Multi] (0.98) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6351.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (build 19692871) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6332.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (build 19692871) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99BA1AAA6CA2D50574F019F65D111C79E1CD97AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696928   (6235) от 24.08.2025
+
+Coral Island (2023) [Multi] (1.2-1238/dlc) Scene Tenoke
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Coral Island – классический симулятор фермы, переносящий вас на тропический остров, где вы будете выращивать урожай, ухаживать за живностью и общаться с второстепенными персонажами. Ваша задача – создать собственную ферму, постепенно расширять территорию, приобретать новые саженцы и животных. В геймплее присутствует 16 персонажей, с которыми вы способны построить (   Читать дальше...   )Тип издания: SceneРазработчик: Stairway GamesЖанр: Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755974C6A3AB9A50683C590B5C7033DF7D94F185
 ```
 
 https://mybot314.ru/tekegram_catalog/

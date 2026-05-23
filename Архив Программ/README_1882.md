@@ -6,7 +6,7 @@ Macrorit Partition Expert 5.8.7 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166578.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Photoshop 2024 25.1.0.120 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166570.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wondershare Filmora 10.0.7.0 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166569.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ JRiver Media Center 26.0.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166537.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft .NET 7.0.1 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166527.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Google Earth Pro 7.3.6.9326 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166525.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ PrivaZer 3.0.84 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166517.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ AAF DCH Optimus Sound 6.0.9279.1 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166510.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Viber 19.1.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166502.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Psiphon 3 build 176 (DC 13.12.2022) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166490.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Microsoft Windows and Office ISO Download Tool 8.45.0.152 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166489.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Zoner Photo Studio X 19.1909.2.198 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166472.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ AIDA64 Extreme /Engineer / Business 6.85.6300 RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166471.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Skylum Luminar AI 1.0.0.7348 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166464.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Futuremark 3DMark 2.21.7324 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166463.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ CCleaner 6.07.10191 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166462.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ PrivaZer 3.0.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166429.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ WinToHDD 5.9 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166428.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Skype 8.55.0.141 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166426.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ AOMEI Partition Assistant Technician Edition 9.13.0 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166419.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Microsoft .Net Framework 13.12.22 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166412.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ AOMEI Backupper Technician Plus 7.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166401.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Zemana AntiMalware Premium 3.2.28.0 RePack by Umbrella Corporation [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166385.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ BELOFF 2021.12 Minimal (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166364.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ PDF Shaper Professional 9.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166361.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BELOFF 2021.12 Lite (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166344.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 847723   (553413) от 16.06.2019
-
-VidTrim Pro - Video Editor v2.6.1 [Ru/Multi] - видеоредактор
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-VidTrim Pro является редактором видео. Она включает в себя несколько функций, таких как обрезка, захват кадра и транскодирование. Вы также можете поделиться своим видео с друзьями прямо через приложение.Тип издания: ПираткаРазработчик: GoseetПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B84E76270F2829DF57B7E6432CBDA606B7A73DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309358   (551834) от 18.06.2019
-
-Спортивные программы Fitify от разработчика Martin Mazanec v16 Premium [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Набор спортивных программ от разработчика Martin Mazanec:Тип издания: Пиратка (Разблокирован Premium)Релиз состоялся: 05.2019Разработчик: Martin MazanecПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF1EAD6F58965ED0E81286BB4A42025C473E335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237548   (551355) от 24.07.2018
 
 Cloud Radio Pro ( Record & Lyrics ) v5.3.1 [Ru/Multi] - Онлайн радио для устройств под управлением ОС Android
@@ -58,7 +6,7 @@ Cloud Radio Pro ( Record & Lyrics ) v5.3.1 [Ru/Multi] - Онлайн радио 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551355.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551301.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Screen Translator Plus v3.2.1 [Ru/Multi] - Переводчик буфера о�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549996.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547567.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538294.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ RunKeeper 5.8.3 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535155.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ FX File Explorer Plus v8.9.1.3 [En/Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535110.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527929.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ Viber 5.5.0.2477 [Multi/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524698.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524381.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ Power Shortcuts Pro 1.2.2 Mod by cergor [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522610.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ HelloChinese 5.0.6 [Ru/Multi] - Учим китайский
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522126.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ Perfectly Clear v4.3.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518954.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ vRGB - LED ИК Пульт Управления v4.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517602.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ Rain Alarm Plus / Дождевая сигнализация плюс - Все ф
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517600.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ SMD info v1.34 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517590.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ Electronics Calculator Pro v1.6.2 [En] - различные утилиты дл�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516986.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ PickU - Редактор фотографий 3.6.6 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516658.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ Momo Music Player 1.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516643.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ Supershift - График смен v2022.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516599.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516597.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515710.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ Video Converter, Compressor 0.9.4 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515581.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ Pixlr Pro 3.4.63 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515524.jpg" />
 </div>
 
 
@@ -670,6 +618,59 @@ Pixlr - фоторедактор с множеством бесплатных ф
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4844D383C12BE0ACCAE3A069DD9C33F23BECCC3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744828   (513555) от 24.08.2015
+
+SMS Backup & Restore Pro v7.46 [Ru/Multi]  - создание резервных копий сообщений SMS
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513555.jpg" />
+</div>
+
+
+###  Подробнее
+
+SMS Backup & Restore — утилита для создания резервных копий сообщений SMS и их восстановления. Возможно создание бекапов автоматически по расписанию. При создании резервной копии можно указать название файла. В настройках приложения вы можете изменить каталог, где сохраняются файлы резервных копий.Тип издания: Взломана / ПираткаРелиз состоялся: 20.08.2015Разработчик: Ritesh SahuПоддерживаемая ОС: Android 1.5+Язык интерфейса: Мульти / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19116B82E5EB3C9E971FAD4D3FA893334D2D612A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561660   (513527) от 06.07.2022
+
+JAVAD Mobile Tools v4.4.5 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Javad Mobile Tools (J-Mobile) позволяет подключать приемники JAVAD GNSS к вашим устройствам с Android™ через Bluetooth® или WiFi. Так же возможно подключение через Интернет для управления удаленными базовыми станциями.
+J-Mobile разработана для ГНСС приемников JAVAD TRIUMPH-2, TRIUMPH-1/1M, ALPHA, SIGMA и новейших TRIUMPH-3 (необходима OAF-опция), TRIUMPH-OMEGA (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 11 июл. 2021 гРазработчик: JAVAD GNSS INCПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63A36CC44CDBE42329C283C01BF48C4D0252C61A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Mac Restart 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022296.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Memory Clean 3 v1.0.21 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022103.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ TechSmith Camtasia 2020 Studio v2020.0.18 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022092.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Sketch 71.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022072.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Digital Clock 3D 2.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021220.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ ForkLift 3.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021211.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Kaleidoscope 2.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021026.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ OmniFocus Pro 3 v3.11.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021018.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Magnet 2.6.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020982.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Capture One 21 Pro Pro v14.1.1.63 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020979.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Comic Strip Factory 1.0.137 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020876.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Paint X - Paint, Draw and Edit 6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020833.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ UkeLib Chords Pro 1.3.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020698.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ GtrLib Chords Pro 1.3.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020681.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Awesome Mails Pro 4 v4.0.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020671.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Flotato Pro 36 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020324.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ NAMO 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020320.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Dato 2.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020177.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ AYVY 1.11.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020176.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Firefox Developer Edition for Mac 89.0 Beta [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019995.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ StarUML 4.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019972.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Templates for Keynote - DesiGN 7.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019955.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Cloud Outliner Pro 2.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019832.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Rumpus PRO 9 v9.0.1 + Tether Client 1.1  [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019829.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Dark Mode for Safari 3.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019825.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Audio Playr 2.3.1  [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019816.jpg" />
 </div>
 
 

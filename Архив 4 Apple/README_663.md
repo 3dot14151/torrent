@@ -6,7 +6,7 @@ Mirror for Fire TV  2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129118.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bartender 4 v4.1.29 beta U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129112.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ FontLab 8 v.8.3.0.8762 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123263.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Fork 2.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123261.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Final Draft 13 v.13.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123260.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Money Pro - Personal Finance 2.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123257.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Path Finder 2166 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123250.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Navicat Premium 16.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123112.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Wondershare PDFelement Pro OCR 10.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123108.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Little Snitch 5.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123107.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ SiteSucker Pro 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123093.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Pixelmator Pro 3.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123083.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Proxyman for Mac 4.16.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123059.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Boxy SVG 4.21.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123052.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ SiteSucker 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123051.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Noir – Dark Mode for Safari 2024.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123048.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ MarsEdit 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123047.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ XMind Pro 2024 24.01 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122958.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Ableton Live Suite 11 v.11.3.20 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122943.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Bookends 14.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122914.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Ghost Buster Pro 2.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122902.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Navicat Data Modeler Essentials for Mac 3.3.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122900.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Find Any File (FAF) 2.4.2b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122895.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Navicat for Oracle on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122880.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Text Workflow 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122879.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Navicat for SQLite on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122878.jpg" />
 </div>
 
 

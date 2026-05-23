@@ -1,83 +1,3 @@
-###  Публикация: 1589137   (190578) от 08.11.2022
-
-Стивен Кинг | Темная половина (2013) [MP3, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Известный писатель Тед Бюмонт выпустил несколько книг под псевдонимом Джордж Старк. А затем — `похоронил` свой псевдоним: на местном кладбище появилась даже могила Старка. Но случилось так, что Старк воскрес, и жизнь Теда Бюмонта превратилась в нескончаемый кошмар...Жанр: УжасыПродолжительность: 22:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F83E77912DB3591457DEAF26E09103D5872FCB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589138   (190569) от 08.11.2022
-
-Андрей Волохович и др. | Тайны закрытого города Североуральск-19. Сборник (2022) [MP3, АБАДДОН]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Североуральск-19! Скрытый от людских глаз храм секретов, советская утопия за колючей проволокой и тюрьма добровольного содержания. Город потерянных людей. Тех, чьи судьбы сплелись воедино между индустриальным молотом и политической наковальней. Тех, кто своими глазами встретил необъяснимое и жуткое, кого Североуральск-19 пережевал и выплюнул на (   Читать дальше...   )Жанр: МистикаПродолжительность: 06:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA193B716104F28CFD48ADFEE2A03E7AF1C39E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589211   (190555) от 08.11.2022
-
-Намор | В третью стражу (Книга 1). Автономное плавание (2022) [MP3, Семён Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-И вновь наши современники, попавшие в прошлое. На этот раз в Западную Европу 1 января 1936 года. Три старых (во всех смыслах) друга. Русский, украинец и еврей, почти как в анекдоте.
-
-Они оказались в чужих телах. Перед ними непростой выбор: просто выжить где-нибудь в Латинской Америке или попытаться предотвратить грядущее кровавое безумие… Или изменить хоть что-то… (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 09:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF86F89F06EBC3DD09D0F5CD933BDC5F9E884D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589126   (190539) от 08.11.2022
 
 Михаил Михеев | Стрелок (Книга 4). Т-34. Время выбрало нас (2022) [MP3, Дмитрий Шабров]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190539.jpg" />
 </div>
 
 
@@ -114,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190518.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190416.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190407.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190405.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190404.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190403.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190402.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190387.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190366.jpg" />
 </div>
 
 
@@ -348,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190365.jpg" />
 </div>
 
 
@@ -374,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190343.jpg" />
 </div>
 
 
@@ -400,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190324.jpg" />
 </div>
 
 
@@ -427,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190267.jpg" />
 </div>
 
 
@@ -453,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190223.jpg" />
 </div>
 
 
@@ -480,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190216.jpg" />
 </div>
 
 
@@ -508,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190147.jpg" />
 </div>
 
 
@@ -536,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190137.jpg" />
 </div>
 
 
@@ -564,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190116.jpg" />
 </div>
 
 
@@ -593,7 +513,7 @@ Goblins | Свартхевди - северянин (2023) [MP3, CHUGA]
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190099.jpg" />
 </div>
 
 
@@ -619,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190091.jpg" />
 </div>
 
 
@@ -645,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190067.jpg" />
 </div>
 
 
@@ -671,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190066.jpg" />
 </div>
 
 
@@ -682,6 +602,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B9E81FAAB0209092DA48913F202BB4555C5E2FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659462   (190065) от 11.09.2023
+
+Брендон Сандерсон | Элантрис (2023) [MP3, Степан Дружинин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родиться арелонцем — значит иметь шанс стать одним из богоподобных сияющих элантрийцев. Но так было до катастрофы, а когда она произошла, сказочный город превратился в разлагающийся город-призрак, и населяли его уже не совершенные создания, а несчастные живые мертвые. Но вот незадача, стать одним из элантрийцев по прежнему мог каждый, даже... сын императора.
+
+Как (   Читать дальше...   )Жанр: ФентезиПеревод: booktranИздательство: Аудиокнига своими рукамиПродолжительность: 19:25:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E7956210D5B35DA6295987BEB4F6298EB4EC9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659429   (190042) от 11.09.2023
+
+Михаил Задорнов, Владимир Качан - | Задорнизмы и Качанушки (2008) [MP3, Михаил Задорнов, Владимир Качан]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190042.jpg" />
+</div>
+
+
+###  Подробнее
+
+На диске представлены "Задорнизмы" - ностальгические монологи Михаила Задорнова, и "Качанушки" - песни Владимира Качана на стихи Леонида Филатова, Валерия Шульжик и др.Жанр: ЮморИздательство: АудиокнигаПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD377014C25899E93630F56F72F4F680E715636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589619   (190022) от 10.11.2022
+
+Тайга Ри | Грозовая охота (Книга 2). Турнир (Том 1) (2022) [MP3, Татьяна Манетина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главной героине Вайю Блау дан шанс изменить свою жизнь и участь своего рода. Последняя в семье оставшаяся в живых, она оказалась в тюрьме и ожидала казни. Но десять её предков выразили готовность лишить себя посмертия в загробном мире ради шанса исправить судьбу рода. И вот Блау, вновь маленькая девочка, очутилась в тёмной пещере, искусанная скорпионами. Её задачей (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 13:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859ED52B7C91782F95ACD6E60C3EE7D533DBC93B
 ```
 
 https://mybot314.ru/tekegram_catalog/

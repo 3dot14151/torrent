@@ -6,7 +6,7 @@ Wise Care 365 Pro 4.61.439 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766078.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Autorun Organizer 5.15 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766073.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mac-Talla Nan Creag - The Sorrow Of Derdriu (2019) [MP3|320 Kbps] <Electronic, E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766035.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wise Care 365 Pro 5.2.5.520 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766034.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ MediaHuman Audio Converter 1.9.6.6 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766031.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ ON1 Photo RAW 2019.2 v13.2.0.6564 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766030.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Volume Ace Pro (Lite-Mod) v3.6.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766024.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Telegram Desktop 3.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766018.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ LDPlayer 4.0.73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766014.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Wireshark 3.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766013.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Notepad++ 8.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766009.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ TreeSize Professional 8.2.1.1622 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766008.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ High Contrast - 5 Albums (2002-2012) [FLAC|Lossless|tracks+.cue] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_766000.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ PhotoFiltre Studio X 10.14.1 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765981.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765976.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765973.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Advanced SystemCare Pro 13.6.0.291 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_765972.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ MAGIX Movie Edit Pro 2019 Premium 18.0.2.233 (x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765963.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Bluebeam Revu eXtreme 2018.3.4 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765957.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Run-Command 3.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765955.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765948.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ History Eraser Pro 6.2.0 [Ru] - Стиратель истории
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765937.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Volume2 1.1.7.449 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765930.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ FFmpeg Media Encoder v4.4.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765924.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Maxthon Browser 6.1.3.1000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765921.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Iridium Browser 2021.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765905.jpg" />
 </div>
 
 

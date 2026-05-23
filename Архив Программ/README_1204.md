@@ -6,7 +6,7 @@ Chromium 85.0.4183.121 UNGOOGLED [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433748.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Vivaldi 3.3.2022.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433746.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Futuremark 3DMark 2.13.7004 Developer Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433742.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Macgo Windows Blu-ray Player 2.16.6.2108 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433703.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Maxthon Browser 5.3.8.1500 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433688.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AudioRealism - ABL3 3.2.2 VSTi (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433685.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Uninstall Tool 3.5.9 Build 5650 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433678.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ SolveigMM Video Splitter 3.5.1210.2 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_433657.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Deep Data Recovery 2.0.0 b20200831 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433628.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Google Chrome 85.0.4183.121 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433620.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ MEmu 7.2.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433619.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Registry Winner 6.9.9.6 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433575.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ MyDraw 4.1.1 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433567.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ O&O Defrag Professional 23.0 Build 3080 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433564.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ SUPERAntiSpyware Professional 5.6.1006 [Мульти\Рус]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_433531.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Windows Repair (All In One) 1.9.0 + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_433522.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Google Chrome 85.0.4183.121 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433480.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Adobe XD 33.1.12.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433461.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ NVIDIA GeForce Experience 2.5.15.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433426.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Mp3tag 2.72 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433425.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ O&O Defrag Professional 23.0 Build 3080 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433418.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ AIMP 4.60 Build 2146 Final RePack (& Portable) by elchupacabra (Standart) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433407.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ SAM CoDeC and DeCoDeR Pack 2012 4.60 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_433343.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433305.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ IObit Driver Booster Pro 6.0.2.632 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433297.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ MInstAll v.21.09.2020 By Andreyonohov & Leha342 (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433285.jpg" />
 </div>
 
 
